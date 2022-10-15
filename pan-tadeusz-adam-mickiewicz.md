@@ -1,3 +1,4 @@
+Bez przytomności, ledwie że trupem nie padła,\
 Nie mogła nic przemówić: aż się jej rzuciły\
 Strumieniem łzy — poznałem, jak byłem jej miły!
 
