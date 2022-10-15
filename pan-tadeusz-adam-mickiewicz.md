@@ -1,3 +1,4 @@
+Głośno, i sam nie wiedział, czy go miało śmieszyć\
 To dziwaczne spotkanie, czy wstydzić, czy cieszyć.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem na folwarku nie uszło baczności,\
