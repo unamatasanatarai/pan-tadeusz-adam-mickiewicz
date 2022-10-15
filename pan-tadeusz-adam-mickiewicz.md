@@ -1,3 +1,4 @@
+I gdzieniegdzie błyskania ognisk obozowych,\
 Słychać kolejne hasła stanowisk wojskowych.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spali gospodarz domu, wodze i żołnierze;\
