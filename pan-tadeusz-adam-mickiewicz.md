@@ -1,3 +1,4 @@
+Że nie są kanonicznie z sobą powiązani\
 Zbyt bliskim pokrewieństwem; i nawet niepewno,\
 Czy ciocia Telimena jest synowca krewną,\
 Choć ją stryj zowie siostrą, bo wspólni rodzice\
