@@ -1,3 +1,4 @@
+Kryć się za płoty, studnie, za ściany obory;\
 Hrabia z jazdą ma czekać sposobniejszej pory.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Plany Robaka pojął i wykonał cudnie\
