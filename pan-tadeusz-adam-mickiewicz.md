@@ -1,3 +1,4 @@
+Grożąc białymi zęby, a wąsy najeżał;\
 Rapier z rąk upuszczony przy ziemi zatrzymał\
 Kolanami i głownię prawą ręką imał,\
 Cisnąc ją: rapier z tyłu za nim wyciągniony,\
