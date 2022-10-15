@@ -1,3 +1,4 @@
+Niebaczny Saku, jakiż zapał cię unosi!\
 Nigdy już odtąd gniewnej nie przebłagasz Zosi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy przypomina starodawne czasy:\
