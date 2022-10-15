@@ -1,3 +1,4 @@
+My od dzisiaj do zamku nabyliśmy prawa\
 I mimo całą strony przeciwnej zajadłość\
 Dowiodę, że zamczysko wzięliśmy w posiadłość.\
 Wszakże kto gości prosi w zamek na wieczerzę,\
