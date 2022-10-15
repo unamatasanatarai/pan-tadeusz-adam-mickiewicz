@@ -1,3 +1,4 @@
+Że gościnna, i wszystkich w gościnę zaprasza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie dwukonną bryką wjechał młody panek\
 I obiegłszy dziedziniec zawrócił przed ganek.\
