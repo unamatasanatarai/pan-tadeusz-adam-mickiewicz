@@ -1,3 +1,4 @@
+«Panie Wojski, niech wasze na potem odłoży\
 Te historie. Prawda, że sejmik ciekawy:\
 Ale my głodni, każ wać przynosić potrawy».
 
