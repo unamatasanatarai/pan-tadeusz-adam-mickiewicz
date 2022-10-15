@@ -1,3 +1,4 @@
+Wiesz, tasak co od księcia miałem w podarunku;\
 Pas opatrzyć, czy kula jest w każdym ładunku».\
 «Strzelby — krzyknęli wszyscy — mieć na pogotowiu!»\
 Asesor wołał ciągle: «Ołowiu, ołowiu!\
