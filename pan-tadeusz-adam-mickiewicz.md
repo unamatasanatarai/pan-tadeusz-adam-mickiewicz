@@ -1,3 +1,4 @@
+Szlachta odwieczna, w której krew rycerska płynie,\
 Wszyscy przychylni panów Horeszków rodzinie,\
 Wszyscy nieprzyjaciele zabici Sopliców!\
 Stamtąd zbiorę ze trzystu wąsatych szlachciców;\
