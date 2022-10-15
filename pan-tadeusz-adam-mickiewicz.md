@@ -1,3 +1,4 @@
+Z wierzchu ozdoby sztuczne, nie rylcem, nie dłutem,\
 Ale zręcznie ciesielskim wyrzezane sklutem,\
 Krzywe jak szabasowych ramiona świeczników;\
 Na końcu wiszą gałki, coś na kształt guzików,\
