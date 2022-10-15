@@ -1,3 +1,4 @@
+By wziąć w areszt ogara, że wpadł w cudze gaje:\
 Na Litwie, chwała Bogu, stare obyczaje.\
 Mamy dosyć zwierzyny dla nas i sąsiedztwa,\
 I nie będziemy nigdy o to robić śledztwa;\
