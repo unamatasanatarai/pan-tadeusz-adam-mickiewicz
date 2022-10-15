@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jakoż po wszystkich izbach panował ruch wielki:\
 Roznoszono potrawy, sztućce i butelki.\
 Mężczyźni tak jak weszli, w swych zielonych strojach,\
 Z talerzami, z szklankami, chodząc po pokojach,\
