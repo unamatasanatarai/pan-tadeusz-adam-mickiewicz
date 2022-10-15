@@ -1,3 +1,4 @@
+Kokardę i na piersiach Hrabi przyszpiliła).\
 Niech cię ten kolor wiedzie na działa ogniste,\
 Na kopije błyszczące i deszcze siarczyste;\
 A kiedy się rozsławisz walecznymi czyny,\
