@@ -1,3 +1,4 @@
+Jutro będę dla sprawy w powiatowym mieście;\
 I do waszmościów z drogi zajadę po kweście».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Niech też do Niehrymowa ksiądz na nocleg zdąży —\
