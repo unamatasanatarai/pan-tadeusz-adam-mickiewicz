@@ -1,3 +1,4 @@
+Pono z Robakowego wzniosła się kaptura!\
 Wstydzicie się swych pudeł! Niech was wstyd nie pali:\
 Znałem myśliwych lepszych od was, a chybiali;\
 Trafiać, chybiać, poprawiać, to kolej strzelecka.\
