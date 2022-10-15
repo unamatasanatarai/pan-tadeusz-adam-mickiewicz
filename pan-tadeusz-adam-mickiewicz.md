@@ -1,3 +1,4 @@
+Raczyła się obrócić; dziewczyna wstydliwa\
 Obraca się, lecz oczy rękami zakrywa.\
 Tadeusz patrzył wesół i zacierał ręce.
 
