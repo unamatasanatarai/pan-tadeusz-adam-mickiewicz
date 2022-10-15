@@ -1,3 +1,4 @@
+Zdawała się najwyżej bujać między niemi;\
 Przodem gołębie białe, które w biegu płoszy,\
 Leciały jak przed wozem bogini rozkoszy.
 
