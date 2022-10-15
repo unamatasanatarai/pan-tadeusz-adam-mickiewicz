@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na zachód, jeszcze ozłocona\
 Świeci ziemia ponuro, żółtawo-czerwona:\
 Już chmura, roztaczając cienie na kształt sieci,\
