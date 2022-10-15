@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Któż by zgadnął, że owi tak mało ruchomi,\
 Owi milczący ludzie — są nasi znajomi,\
 Sędziowscy towarzysze? Z hucznego śniadania\
 Wyszli na uroczysty obrzęd grzybobrania.\
