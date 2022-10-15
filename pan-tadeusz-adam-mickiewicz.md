@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem, Podhajscy i Isajewicze,\
 Birbasze, Wilbikowie, Biergiele, Kotwicze,\
 Widząc szlachtę Dobrzyńskich w tej ciężkiej niewoli,\
