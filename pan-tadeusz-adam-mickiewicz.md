@@ -1,3 +1,4 @@
+Ale ja, z kniaziów! Pytać u mnie o patenta,\
 Kiedym został szlachcicem? Sam Bóg to pamięta!\
 Niechaj Moskal w las idzie pytać się dębiny,\
 Kto jej dał patent rosnąć nad wszystkie krzewiny».\
