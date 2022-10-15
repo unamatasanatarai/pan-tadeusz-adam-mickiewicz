@@ -1,3 +1,4 @@
+W gorącej wodzie, czy też kręcisz jak lis szczwany,\
 Co indziej kitą wije, a sam indziej bieży?\
 Wyzwaliśmy, zapewne, i bić się należy.\
 Ale jechać dziś, skądżeś waszeć tak się zaciął?\
