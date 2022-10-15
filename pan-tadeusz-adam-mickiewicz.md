@@ -1,3 +1,4 @@
+Sokół i Kusy razem spadli na szaraka\
 Ze dwóch stron w jednej chwili, jak dwa skrzydła ptaka,\
 I zęby mu jak szpony zatopili w grzbiecie.\
 Kot jęknął raz, jak nowo narodzone dziecię,\
