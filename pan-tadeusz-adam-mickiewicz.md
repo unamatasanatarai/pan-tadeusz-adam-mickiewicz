@@ -1,3 +1,4 @@
+Pan żartuje, co? Zamek, Horeszków siedlisko,\
 Ma pójść w ręce Sopliców? Niech pan tylko raczy\
 Zsiąść z konia. Pójdźmy w zamek. Niech no pan obaczy.\
 Pan sam nie wie, co robi. Niech się pan nie wzbrania,\
