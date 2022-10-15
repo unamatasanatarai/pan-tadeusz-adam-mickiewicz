@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Cwałująca czereda zleciała na błonia,\
 Gdy Hrabia ujrzał zamek i zatrzymał konia.\
 Pierwszy raz widział zamek z rana i nie wierzył,\
