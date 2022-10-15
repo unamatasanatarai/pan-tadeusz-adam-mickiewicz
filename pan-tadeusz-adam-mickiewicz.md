@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Z nimfy zniknieniem, całe czarowne przezrocze\
 Zmieniło się. Te wstęgi, te kraty urocze\
 Złote, srebrne: niestety! więc to była słoma?
 
