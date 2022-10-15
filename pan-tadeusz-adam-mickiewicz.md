@@ -1,3 +1,4 @@
+Że im oprócz ojczyzny nic się nie podoba).\
 Orłowski, który życie strawił w Peterburku,\
 Sławny malarz (mam jego kilka szkiców w biurku)\
 Mieszkał tuż przy cesarzu, na dworze, jak w raju:\
