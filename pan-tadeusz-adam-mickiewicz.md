@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A chrapali tak twardym snem, że ich nie budzi\
 Blask latarek i wniście kilkudziesiąt ludzi,\
 Którzy wpadli na szlachtę jak pająki ścienne,\
 Nazwane *kosarzami*, na muchy wpółsenne:\
