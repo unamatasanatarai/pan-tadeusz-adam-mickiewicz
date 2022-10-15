@@ -1,3 +1,4 @@
+«Po cóż się łudzić — krzyknął — zgaduję po czasie:\
 Moja nimfa tajemna pono gęsi pasie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z nimfy zniknieniem, całe czarowne przezrocze\
