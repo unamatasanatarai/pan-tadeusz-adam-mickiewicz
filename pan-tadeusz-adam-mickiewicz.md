@@ -1,3 +1,4 @@
+Ja muszę z Soplicowa wyjeżdżać co prędzej».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ho! — rzekł Stryj — pewnie jakieś miłośne zatargi!\
 Uważałem, że waszeć wczoraj gryzłeś wargi,\
