@@ -1,3 +1,4 @@
+Wpływu takiego starzec bynajmniej nie szukał;\
 Owszem, chciał się go pozbyć, klientów swych fukał,\
 I najczęściej wypychał milczkiem za drzwi domu.\
 Rady rzadko udzielał i nie lada komu;\
