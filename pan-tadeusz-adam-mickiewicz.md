@@ -1,3 +1,4 @@
+A ten bałabanowskiej swej Sagalasówki.\
 Hrabia też i Tadeusz jadą nieweseli,\
 Wstydząc się, że chybili i że się cofnęli:\
 Bo na Litwie, kto źwierza wypuści z obławy,\
