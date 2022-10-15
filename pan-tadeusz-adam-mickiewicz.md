@@ -1,3 +1,4 @@
+Kieliszki napełniając węgrzynem obfitym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale tymczasem wielki serwis barwę zmienił,\
 I odarty ze śniegu już się zazielenił.\
