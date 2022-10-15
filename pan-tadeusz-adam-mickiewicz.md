@@ -1,3 +1,4 @@
+Bo pani Telimena nie odda mi Zosi!»\
 «Będziem prosić» rzekł Sędzia.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Nikt jej nie uprosi —\
