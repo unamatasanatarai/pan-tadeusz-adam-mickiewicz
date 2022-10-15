@@ -1,3 +1,4 @@
+Policmajster powinność służby swej rozumiał:\
 Bardzo się nad zuchwalstwem czynownika zdumiał\
 I odwiódłszy na stronę po bratersku radził,\
 By przyznał się do winy i tym grzech swój zgładził.\
