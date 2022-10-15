@@ -1,3 +1,4 @@
+I mgłę muskał, wygładzał, rozścielał na błonie;\
 Tymczasem słonko z góry tysiącem promieni\
 Tło przetyka, pośrebrza, wyzłaca, rumieni.\
 Jak para mistrzów w Słucku lity pas wyrabia:\
