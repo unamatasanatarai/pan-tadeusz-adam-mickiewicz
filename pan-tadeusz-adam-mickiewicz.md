@@ -1,3 +1,4 @@
+Słoiki i flaszeczki, i proszki, i muszki;\
 Wesoł, na pannę młodą patrzył tryumfalnie.\
 Panna młoda kończyła robić gotowalnię:\
 Siedziała przed zwierciadłem radząc się bóstw wdzięku;\
