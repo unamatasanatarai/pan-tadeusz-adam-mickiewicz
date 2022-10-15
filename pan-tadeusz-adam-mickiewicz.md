@@ -1,3 +1,4 @@
+W podróżach swych dalekich wiele zwiedził świata;\
 Gazet pilny czytelnik, polityki świadom,\
 W niebytność Maćka zwykle przewodził obradom.\
 Ten tak rzecz kończył:
