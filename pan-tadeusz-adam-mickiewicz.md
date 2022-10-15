@@ -1,3 +1,4 @@
+Proporszczyk, człowiek młody, zręcznie się uwijał;\
 Ilekroć mu przeciwnik broń na bok odbijał,\
 On cofał się: młodego nie mógł Maciek zgonić,\
 I tak nie raniąc, musiał tylko siebie bronić.\
