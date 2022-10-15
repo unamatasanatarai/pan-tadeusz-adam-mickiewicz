@@ -1,3 +1,4 @@
+Podwoje dolne zamknąć i ryglem zawalić.\
 W zamku całym był tylko: pan Stolnik, ja, pani,\
 Kuchmistrz i dwóch kuchcików, wszyscy trzej pijani,\
 Proboszcz, lokaj, hajducy czterej, ludzie śmiali.\
