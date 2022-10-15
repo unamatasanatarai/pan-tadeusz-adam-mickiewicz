@@ -1,3 +1,4 @@
+Teraz ich każda prawie używa rodzina,\
 A rzadki wie, iż mają początek z Dobrzyna,\
 I były tam potrzebne: kiedy w reszcie kraju\
 Głupim naśladownictwem weszły do zwyczaju.
