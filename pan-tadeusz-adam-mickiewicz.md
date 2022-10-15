@@ -1,3 +1,4 @@
+Wysunęła się cicho postać, na kształt mary:\
 Gerwazy; poznano go po wzroście, po licach,\
 Po srebrzystych na żółtej kurcie Półkozicach.\
 Stąpał jako słup prosto, niemy i surowy,\
