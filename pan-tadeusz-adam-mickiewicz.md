@@ -1,3 +1,4 @@
+Nic nie opuszczaj!» «Panie Kluczniku, zaczekaj\
 — Rzekł śmiało, ręce za pas włożywszy Protazy —\
 Gotów jestem wypełniać wszelkie stron rozkazy,\
 Ale ostrzegam, że akt nie będzie miał mocy,\
