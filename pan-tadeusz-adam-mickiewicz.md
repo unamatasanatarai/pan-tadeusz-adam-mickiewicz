@@ -1,3 +1,4 @@
+Tylą farb żywych, różnych, mak źrenicę mami.\
 W środku kwiatów, jak pełnia pomiędzy gwiazdami,\
 Krągły słonecznik licem wielkim, gorejącem,\
 Od wschodu do zachodu kręci się za słońcem.
