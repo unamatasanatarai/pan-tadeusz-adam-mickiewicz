@@ -1,3 +1,4 @@
+Przyznawano mu nawet (czemu pleban przeczy)\
 Wiadomość nadzwyczajnych i nadludzkich rzeczy.\
 To pewna, że powietrza zmiany zna dokładnie,\
 I częściej niż kalendarz gospodarski zgadnie.\
