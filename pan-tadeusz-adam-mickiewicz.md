@@ -1,3 +1,4 @@
+Ów, co korki kobietom wystrzelał z patynków,\
 Ów łotr nad łotry, sławny w czasy wiekopomne,\
 Ów Jacek, vulgo Wąsal — nazwiska nie wspomnę...\
 Ale mu nie czas teraz dojeżdżać niedźwiedzi;\
