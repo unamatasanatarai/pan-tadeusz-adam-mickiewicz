@@ -1,3 +1,4 @@
+Warunkiem intercyzy, wyrzec się kontusza;\
 Więc się Rejent rad nierad po francusku przebrał.\
 Widno, że mu frak duszy połowę odebrał,\
 Stąpa, jakby kij połknął, prosto, nieruchawo,\
