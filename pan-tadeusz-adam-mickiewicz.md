@@ -1,3 +1,4 @@
+Jest zarówno z panami kandydat korony!\
 Wszakże Tęczyński niegdyś z królewskiego domu\
 Żądał córy, a król mu oddał ją bez sromu.\
 Sopliców czyż nie równe Tęczyńskim zaszczyty\
