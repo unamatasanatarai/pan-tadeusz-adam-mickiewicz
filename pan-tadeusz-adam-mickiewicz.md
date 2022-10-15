@@ -1,3 +1,4 @@
+Takeś twojej tak świeżej niepomna przysięgi?\
 O łatwowierny! po cóż nosiłem te wstęgi!\
 Lecz biada rywalowi, co mię tak znieważa!\
 Po moim chyba trupie pójdzie do ołtarza!»
