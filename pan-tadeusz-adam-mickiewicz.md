@@ -1,3 +1,4 @@
+Tylu żonatych od żon, od dzieci uchodzi\
 Za granicę, pod znaki narodowe bieży?\
 Choćbym chciał zostać, czy to ode mnie zależy?\
 Ojciec mnie testamentem kazał, abym służył\
