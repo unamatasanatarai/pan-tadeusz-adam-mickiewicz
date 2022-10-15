@@ -1,3 +1,4 @@
+Zieloną, na niej z rzadka ciche grusze siedzą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Śród takich pól przed laty, nad brzegiem ruczaju,\
 Na pagórku niewielkim, we brzozowym gaju,\
