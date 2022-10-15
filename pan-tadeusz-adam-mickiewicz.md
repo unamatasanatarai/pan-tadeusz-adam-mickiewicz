@@ -1,3 +1,4 @@
+Widać rzadko zwiedzany, mieszka w nim hołota:\
 Bo brama sterczy bez wrót, ogrody bez płota,\
 Niezasiane, na grzędach już porosły brzozki;\
 Przecież ten folwark zdał się być stolicą wioski,\
