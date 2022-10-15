@@ -1,3 +1,4 @@
+Zanosząc się od płaczu! On za stołem siadał\
 I dziwniejsze od baśni historyje gadał.\
 On opowiadał, jako jenerał Dąbrowski,\
 Z ziemi włoskiej stara się przyciągnąć do Polski,\
