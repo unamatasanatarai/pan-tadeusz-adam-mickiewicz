@@ -1,3 +1,4 @@
+Oj skubać, skubać szlachtę, oj drzeć z nich łupinę!\
 Oj weźcież ich na munsztuk, bo też szlachta bryka!\
 Winszuję ci Majorze, żeś złowił Hrabika:\
 To tłuścioszek, to bogacz, panicz z antenatów;\
