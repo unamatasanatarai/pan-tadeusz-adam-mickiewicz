@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Soplicowo leżało tuż przy wielkiej drodze,\
 Którą od strony Niemna ciągnęli dwaj wodze:\
 Nasz książę Józef i król Westfalski Hieronim.\
