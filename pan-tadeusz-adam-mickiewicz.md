@@ -1,3 +1,4 @@
+Wita wchodzących, sadza, rozmową zabawia,\
 I siostrzenicę wszystkim z kolei przedstawia:\
 Naprzód Tadeuszowi, jako krewną bliską.\
 Zosia grzecznie dygnęła, on skłonił się nisko,\
