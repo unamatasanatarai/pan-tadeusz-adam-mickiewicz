@@ -1,3 +1,4 @@
+Tyle lat!... Gdziem ja nie był: a dotąd nie mogę\
 Jej zapomnieć i zawżdy jej postać kochana\
 Stoi mi przed oczyma jakby malowana!\
 Piłem, nie mogłem zapić pamięci na chwilę,\
