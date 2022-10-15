@@ -1,3 +1,4 @@
+Były ewangeliją narodową Litwy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już przyszło oficerów kilku, tłum żołnierzy;\
 Lud ich otacza, patrzy, ledwie oczom wierzy,\
