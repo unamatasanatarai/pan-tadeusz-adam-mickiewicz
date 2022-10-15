@@ -1,3 +1,4 @@
+I do płuc wysłał z niego cały zapas ducha,\
 I zagrał: róg jak wicher wirowatym dechem,\
 Niesie w puszczę muzykę i podwaja echem.\
 Umilkli strzelcy, stali szczwacze zadziwieni\
