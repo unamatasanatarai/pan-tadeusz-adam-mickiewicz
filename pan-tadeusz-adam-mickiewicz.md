@@ -1,3 +1,4 @@
+Gdy wróg ostatni wyda krzyk boleści,\
 Umilknie, światu swobodę obwieści —\
 Wtenczas — dębowym liściem uwieńczeni,\
 Rzuciwszy miecze, siędą rozbrojeni\
