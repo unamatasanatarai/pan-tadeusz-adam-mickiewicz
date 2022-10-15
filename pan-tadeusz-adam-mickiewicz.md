@@ -1,3 +1,4 @@
+Pamiętali o sobie. Rada była pani,\
 Że jej dowcip tak bardzo Tadeusza bawił;\
 Młodzieniec jej nawzajem komplementy prawił.\
 Telimena mówiła coraz wolniej, ciszéj,\
