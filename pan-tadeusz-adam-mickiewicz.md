@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Cóż to, Państwo Dobrzyńscy! A to co się święci?\
 A my, czy to będziemy z pod prawa wyjęci?\
 Kiedy nas zapraszano z naszego zaścianku,\
 A zapraszał nas klucznik Rębajło Mopanku,\
