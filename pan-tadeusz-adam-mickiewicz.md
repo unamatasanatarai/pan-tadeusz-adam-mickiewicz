@@ -1,3 +1,4 @@
+Owdzie podnosi złotą kitę kukuruza;\
 Gdzieniegdzie otyłego widać brzuch harbuza,\
 Który od swej łodygi aż w daleką stronę,\
 Wtoczył się jak gość między buraki czerwone.
