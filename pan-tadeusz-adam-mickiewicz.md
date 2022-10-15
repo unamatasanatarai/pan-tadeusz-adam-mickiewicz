@@ -1,3 +1,4 @@
+Którem tulił, hodował jak najmilsze dziecię,\
 Tyś zabił w oczach ojca — a jam ci przebaczył!\
 Ty!...»
 
