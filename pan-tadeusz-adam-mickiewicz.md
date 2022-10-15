@@ -1,3 +1,4 @@
+Upiekł się tam jak piskorz; a tych nie policzę,\
 Którym uszy obciąłem. Jeden tylko został,\
 Który dotąd ode mnie pamiątki nie dostał:\
 Rodzoniutki braciszek owego wąsala!\
