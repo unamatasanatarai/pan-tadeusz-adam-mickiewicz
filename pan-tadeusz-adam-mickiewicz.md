@@ -1,3 +1,4 @@
+Ale też nie jest z lada wsi, lada szlachcianka,\
 Idzie z jaśnie wielmożnych, jest wojewodzianka,\
 Rodzi się z Horeszkówny; małżonka dostanie!\
 Staraliśmy się tyle o jej wychowanie!\
