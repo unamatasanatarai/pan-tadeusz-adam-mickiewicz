@@ -1,3 +1,4 @@
+Co krok wstrzymują woły i podjezdki w bronie\
 I poglądają z trwogą ku zachodniej stronie,\
 Jakby z tej strony miał się objawić cud jaki,\
 I uważają z trwogą wracające ptaki.
