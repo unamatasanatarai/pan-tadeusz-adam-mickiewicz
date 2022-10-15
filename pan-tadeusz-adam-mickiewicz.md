@@ -1,3 +1,4 @@
+Chwytają broń; kobiety wznoszą w niebo ręce;\
 Wszyscy pewni zwycięstwa, wołają ze łzami:\
 «Bóg jest z Napoleonem, Napoleon z nami!»
 
