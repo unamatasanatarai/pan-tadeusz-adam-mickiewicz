@@ -1,3 +1,4 @@
+Jeśli który z nich dziecku imię na chrzcie daje,\
 Zawsze zwykł za patrona brać koronijasza;\
 Świętego Bartłomieja albo Matyjasza:\
 Tak Syn Macieja zawżdy zwał się Bartłomiejem,\
