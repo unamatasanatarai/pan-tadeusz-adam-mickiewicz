@@ -1,3 +1,4 @@
+Chciał coś do niej przemówić, już usta otworzył:\
 Ale spojrzawszy w oczy Zosi, tak się strwożył,\
 Że stojąc niemy przed nią, to płonął, to bladnął;\
 Co było w jego sercu, on sam nie odgadnął.\
