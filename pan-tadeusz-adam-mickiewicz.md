@@ -1,3 +1,4 @@
+Wytrącić dwa szarwarki i pięć dni pańszczyzny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«W skok — krzyknął Podkomorzy — okulbaczyć siwą,\
 Dobiec w cwał do mojego dworu; wziąć co żywo\
