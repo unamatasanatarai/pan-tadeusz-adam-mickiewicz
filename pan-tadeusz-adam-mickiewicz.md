@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Sędzia chciał targować się; lecz Major nie słuchał,\
 Znowu biegał po izbie, dymem gęsto buchał,\
 Podobny do szmermelu albo do rakiety.\
 Chodziły za nim prosząc i płacząc kobiety.\
