@@ -1,3 +1,4 @@
+Wieść, nie wiem czyli pewna, w całej okolicy\
 Głosiła, że on pierwszy przywiózł z zagranicy\
 I upowszechnił wówczas, w tamecznym powiecie,\
 Ową piosenkę, sławną dziś na całym świecie,\
