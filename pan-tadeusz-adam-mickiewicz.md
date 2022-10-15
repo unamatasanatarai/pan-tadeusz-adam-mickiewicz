@@ -1,3 +1,4 @@
+Szczęściem znajoma! Robak! Zdziwili się oba.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Widno, że Hrabia kędyś ruszył z całym dworem,\
 I bardzo śpieszył, bo drzwi zostawił otworem.\
