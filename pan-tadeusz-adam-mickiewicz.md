@@ -1,3 +1,4 @@
+Tadeusz utrzymywał, że będąc silniejszy\
 I do robienia ciężkim oszczepem zręczniejszy,\
 Chciał wyręczyć Hrabiego: tak sobie niekiedy\
 Przemawiali śród gwaru i wrzasku czeredy.
