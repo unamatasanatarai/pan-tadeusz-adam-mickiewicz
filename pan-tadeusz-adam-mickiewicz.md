@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Inne pospólstwo grzybów, pogardzone w braku\
 Dla szkodliwości albo niedobrego smaku,\
 Lecz nie są bez użytku: one zwierza pasą\
 I gniazdem są owadów i gajów okrasą.\
