@@ -1,3 +1,4 @@
+Jej kolana i tuląc główki jak pisklęta\
 pod skrzydło matki. Ona rzekła: «Czy to pięknie\
 Tak krzyczeć? Czy to grzecznie? Ten pan się zalęknie.\
 Ten pan nie przyszedł straszyć; to nie dziad szkaradny,\
