@@ -1,3 +1,4 @@
+Czy młodzież lepsza, ale widzę mniej zgorszenia.\
 Ach, ja pamiętam czasy, kiedy do ojczyzny,\
 Pierwszy raz zawitała moda francuszczyzny!\
 Gdy raptem paniczyki młode z cudzych krajów\
