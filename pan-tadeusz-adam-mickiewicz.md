@@ -1,3 +1,4 @@
+Tylko śpiewali krzycząc: «Wódki, miodu, wina!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Długo się przysłuchiwał ksiądz Robak piosence,\
 Na koniec chciał ją przerwać; wziął w obydwie ręce\
