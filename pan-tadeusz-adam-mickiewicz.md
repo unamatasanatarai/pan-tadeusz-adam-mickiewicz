@@ -1,3 +1,4 @@
+Dostanie urząd, order; wtenczas niech porzuci\
 Służbę, jeżeli zechce, niech do domu wróci,\
 Mając już i znaczenie, i znajomość świata.\
 I cóż brat myśli o tym?» — «Jużci, w młode lata —\
