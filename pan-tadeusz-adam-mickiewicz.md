@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Na to Klucznik rzecze:\
 «Dziwne są sprawy w świecie, kto wszystko dociecze!\
 Ja też powiem waszeci rzecz choć nie tak cudną\
 Jak ów omen, a przecież do pojęcia trudną.\
