@@ -1,3 +1,4 @@
+Pośliznęła się nieco i w tym roztargnieniu\
 Na pana Tadeusza wsparła się ramieniu.\
 Przeprosiwszy go grzecznie, na miejscu swym siadła\
 Pomiędzy nim i stryjem, ale nic nie jadła;\
