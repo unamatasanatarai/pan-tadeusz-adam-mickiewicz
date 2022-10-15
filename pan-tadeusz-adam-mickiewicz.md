@@ -1,3 +1,4 @@
+Na kołnierzyku wiszą dwa sznurki bursztynu,\
 Na skroniach zielonego wianek rozmarynu;\
 Wstążki warkoczów Zosia rzuciła na barki,\
 A na czoło włożyła, zwyczajem żniwiarki,\
