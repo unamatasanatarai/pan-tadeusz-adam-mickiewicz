@@ -1,3 +1,4 @@
+Strzelbę złoży na siodle lub pod końską szyję,\
 Niby to bronę włóczy, niby jedzie miedzą,\
 A coraz się przybliża, kędy ptaki siedzą:\
 Tak skradał się Tadeusz.
