@@ -1,3 +1,4 @@
+Patrzą w sad, gdzie wśród pączków barwistego maku\
 Stał ułan jak słonecznik, w błyszczącym kołpaku\
 Strojnym blachą złocistą i piórem koguta;\
 Przy nim dziewczę w zielonej sukience jak ruta\
