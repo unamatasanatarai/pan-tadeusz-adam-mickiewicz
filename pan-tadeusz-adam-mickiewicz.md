@@ -1,3 +1,4 @@
+Obrał drugie. Już ławę jak taran murowy\
 W tył dźwignął dla zamachu; już ugiąwszy głowy,\
 Z wypiętą na przód piersią, z podniesioną nogą,\
 Miał wpaść... ujrzał Wojskiego, uczuł w sercu trwogę.
