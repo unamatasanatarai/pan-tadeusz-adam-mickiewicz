@@ -1,3 +1,4 @@
+Stanęła Podczaszyca dwukolna dryndulka,\
 Która się po francusku zwała karyjulka:\
 Zamiast lokajów, w kielni siedziały dwa pieski,\
 A na kozłach Niemczysko chude na kształt deski;\
