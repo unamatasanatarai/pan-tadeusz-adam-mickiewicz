@@ -1,3 +1,4 @@
+Wtenczas każdy się do niej przez ciekawość ciśnie,\
 Wszystkie jej ruchy, rzuty oczu jej uważa,\
 Słowa jej podsłuchiwa i drugim powtarza;\
 A kiedy wejdzie w modę raz młoda osoba,\
