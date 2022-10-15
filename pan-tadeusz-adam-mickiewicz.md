@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną nim na skroniach włosy\
 Poprawili, już groźne ucichły odgłosy.\
 Szmer zmieszany ze śmiechem śród ciżby się szerzył;\
