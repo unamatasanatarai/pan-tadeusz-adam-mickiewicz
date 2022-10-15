@@ -1,3 +1,4 @@
+Podobna do pyzatych Boreasza dzieci.\
 Brakło cymbałów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Było cymbalistów wielu,\
