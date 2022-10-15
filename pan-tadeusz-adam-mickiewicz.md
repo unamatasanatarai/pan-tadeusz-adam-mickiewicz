@@ -1,3 +1,4 @@
+Że Wojski wciąż gra jeszcze, a to echo grało.\
 Ile drzew, tyle rogów znalazło się w boru,\
 Jedne drugim pieśń niosą jak z choru do choru.\
 I szła muzyka coraz szersza, coraz dalsza,\
