@@ -1,3 +1,4 @@
+Krągły słonecznik licem wielkim, gorejącem,\
 Od wschodu do zachodu kręci się za słońcem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pod płotem wąskie, długie, wypukłe pagórki,\
