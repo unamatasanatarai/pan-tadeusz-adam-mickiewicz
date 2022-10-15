@@ -1,3 +1,4 @@
+W drugim związane razem jakby polne kwiatki,\
 *Opieńki* i rozlicznej barwy *surojadki*.\
 Wojski miał *muchomora*. Z próżnymi przychodzi\
 Rękami Telimena; z nią panicze młodzi.
