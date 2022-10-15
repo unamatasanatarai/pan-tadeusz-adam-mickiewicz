@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Proszę o głos!» zawołał pan komisarz z Klecka,\
 Człowiek młody, przystojny, ubrany z niemiecka.\
 Zwał się Buchman, lecz Polak był, w Polsce się rodził;\
 Nie wiedzieć pewnie, czyli ze szlachty pochodził,\
