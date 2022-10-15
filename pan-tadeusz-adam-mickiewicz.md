@@ -1,3 +1,4 @@
+Rejent też i Asesor chcieli końmi natrzeć;\
 Lecz Wojski wstrzymał krzycząc: «Wara! stać i patrzeć!\
 Nikomu krokiem ruszyć z miejsca nie dozwolę;\
 Stąd widzim wszyscy dobrze, zając idzie w pole».\
