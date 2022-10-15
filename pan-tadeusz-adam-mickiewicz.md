@@ -1,3 +1,4 @@
+To tylko były zwykłe sąsiedzkie zatargi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«A czy Sędzia — rzekł Major — żółtą księgę czytał?»\
 «Co to za żółta księga?» pan Sędzia zapytał.\
