@@ -1,3 +1,4 @@
+Jabłonowskiego. Owóż, ów kanclerz powiadał,\
 Że właśnie kiedy na koń król Jan Trzeci siadał,\
 Gdy nuncyjusz papieski żegnał go na drogę,\
 A poseł austryjacki całował mu nogę,\
