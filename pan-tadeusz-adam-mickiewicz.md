@@ -1,3 +1,4 @@
+Wzdrygnął się Sędzia: poznał Gerwazego hasło;\
 «Nic to — zawołał Hrabia — będzie tu nas więcéj,\
 Poddaj się Sędzio, to są moi sprzymierzeńcy».
 
