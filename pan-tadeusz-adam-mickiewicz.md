@@ -1,3 +1,4 @@
+Patrzcie, iż w każdej kupce stoi w środku człowiek,\
 Z którego ust otwartych, z podniesionych powiek,\
 Rąk niespokojnych, widać: mówca — coś tłumaczy,\
 I palcem eksplikuje, i na dłoni znaczy.\
