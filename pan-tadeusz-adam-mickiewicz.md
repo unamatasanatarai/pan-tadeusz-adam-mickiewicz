@@ -1,3 +1,4 @@
+Nikt go nie poznał. Dotąd polskie suknie nosił,\
 Lecz teraz Telimena, przyszła żona, zmusza\
 Warunkiem intercyzy, wyrzec się kontusza;\
 Więc się Rejent rad nierad po francusku przebrał.\
