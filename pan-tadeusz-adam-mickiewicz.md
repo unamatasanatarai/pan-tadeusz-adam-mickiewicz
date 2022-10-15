@@ -1,3 +1,4 @@
+Woła: «Stroj się!» (co znaczy: formuj się do szyku)\
 Ale komendy jego nie słychać śród krzyku.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stary Maciek, do ręcznych zapasów niezdolny,\
