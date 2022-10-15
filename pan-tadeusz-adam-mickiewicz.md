@@ -1,3 +1,4 @@
+Tam uciszając machał swą placką ze skóry;\
 Wreszcie podniósłszy trzonek z powagą do góry,\
 Jak laskę marszałkowską, nakazał milczenie.
 
