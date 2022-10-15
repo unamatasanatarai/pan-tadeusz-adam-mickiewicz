@@ -1,3 +1,4 @@
+Aż oba jednym razem pociągnęli kurki\
 (Niedoświadczeni!), razem zagrzmiały dwururki:\
 Chybili. Niedźwiedź skoczył; oni tuż utkwiony\
 Oszczep jeden chwycili czterema ramiony,\
