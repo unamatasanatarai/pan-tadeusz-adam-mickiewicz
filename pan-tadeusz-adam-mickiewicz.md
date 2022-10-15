@@ -1,3 +1,4 @@
+Dobrzyńskich naśladując, inna szlachta bliska\
 Brała również przydomki, zwane *imioniska*.\
 Teraz ich każda prawie używa rodzina,\
 A rzadki wie, iż mają początek z Dobrzyna,\
