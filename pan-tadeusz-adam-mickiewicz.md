@@ -1,3 +1,4 @@
+Zostawując na czole i skroniach włos gładki;\
 Pokojowa zaś świeżo zebrane bławatki\
 Uwiązawszy w plecionkę daje Telimenie,\
 Ta ją do głowy Zosi przyszpila uczenie,\
