@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A na to rzekł z ukłonem Wojski: «Prawda, Jaśnie\
 Wielmożny Podkomorzy: przypominam właśnie,\
 Co mnie mówiono niegdyś małemu dziecięciu,\
