@@ -1,3 +1,4 @@
+«Niestety — rzekła — widzę że cię nic nie wstrzyma!\
 Rycerzu mój, w wojenne kiedy wstąpisz szranki,\
 Obróć czułe spojrzenie na kolor kochanki\
 (Tu, wstążkę oderwawszy od sukni, zrobiła\
