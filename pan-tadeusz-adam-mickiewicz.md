@@ -1,3 +1,4 @@
+I palestra z fajkami! To mi kawalery!\
 Nabrałabyś się od nich pięknej manijery.\
 Teraz to pokazać się jest przynajmniej komu,\
 Mamy przecież uczciwe towarzystwo w domu.\
