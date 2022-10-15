@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Mistrz coraz takty nagli i tony natęża;\
 A wtem puścił fałszywy akord jak syk węża,\
 Jak zgrzyt żelaza po szkle: przejął wszystkich dreszczem\
 I wesołość pomięszał przeczuciem złowieszczem.\
