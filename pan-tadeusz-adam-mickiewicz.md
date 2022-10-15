@@ -1,3 +1,4 @@
+O sławie, która jeszcze nie przebrzmiała:\
 O nich pomyśleć nie mieliśmy duszy!...\
 Bo naród bywa na takiej katuszy,\
 Że, kiedy zwróci wzrok ku jego męce,\
