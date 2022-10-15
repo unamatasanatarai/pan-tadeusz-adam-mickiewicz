@@ -1,3 +1,4 @@
+(Nikt by go nie podźwignął prócz Chrzciciela ręki).\
 Chrzciciel, gdy miłą broń swą, swe Kropidło zoczył,\
 Chwycił je, ucałował, z radości podskoczył,\
 Zakręcił je nad głową i zaraz ubroczył.
