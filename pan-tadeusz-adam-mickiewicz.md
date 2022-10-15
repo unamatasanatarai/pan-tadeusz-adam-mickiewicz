@@ -1,3 +1,4 @@
+W carcer durum... a Pan Bóg wybawił mnie cudem,\
 I pozwolił umierać między swoim ludem\
 Z sakramentami...
 
