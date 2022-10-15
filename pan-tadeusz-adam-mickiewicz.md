@@ -1,3 +1,4 @@
+I biegąc serca swego doświadczać w przeszkodach\
 Zmiennych losów i w krwawych wojennych przygodach.\
 Dziś otwiera się nowa i dla mnie epoka!\
 Brzmiała odgłosem broni mej Birbante-rokka:\
