@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Niestety! Czuł Tadeusz, jak jest niepotrzebnie\
 Rzecz piękną nazbyt ściśle zważać; jak haniebnie,\
 Być szpiegiem swej kochanki; nawet jak szkaradnie,\
