@@ -1,3 +1,4 @@
+Rozbierał myślą wszystkie dzisiejsze wypadki:\
 Spotkanie się, wieczerzę przy boku sąsiadki;\
 A szczególniej mu słowo «ciocia» koło ucha\
 Brzęczało ciągle jako naprzykrzona mucha.\
