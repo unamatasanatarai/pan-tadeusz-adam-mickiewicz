@@ -1,3 +1,4 @@
+Wkoło psy gonią, straszą, rwą; on wstał na nogi\
 Tylne i spojrzał wkoło, rykiem strasząc wrogi,\
 I przednimi łapami to drzewa korzenie,\
 To pniaki osmalone, to wrosłe kamienie\
