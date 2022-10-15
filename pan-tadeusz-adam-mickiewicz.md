@@ -1,3 +1,4 @@
+Pchnięciem i wagą broni, że się aż pochylił:\
 Maciek, tam kędy bagnet wkłada się na rurę,\
 Podstawia swą rękojeść, podbija broń w górę\
 I wnet spuszczając Rózgę, tnie Moskala w rękę\
