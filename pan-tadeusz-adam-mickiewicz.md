@@ -1,3 +1,4 @@
+Co waćpaństwu do Zosi? Ja jej ręką rządzę,\
 Ja sama! Że pan Jacek dawał był pieniądze\
 Na wychowanie Zosi, i że jej wyznaczył\
 Małą pensyjkę roczną, więcej przyrzec raczył,\
