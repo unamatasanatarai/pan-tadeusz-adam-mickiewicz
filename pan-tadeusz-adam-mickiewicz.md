@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Poznał ją zaraz Hrabia. Z zadziwienia blady\
 Wstał od stołu i szukał koło siebie szpady:\
 «I tyżeś to! — zawołał — czy mnie oczy łudzą?\
 Ty? w obecności mojej ściskasz rękę cudzą?\
