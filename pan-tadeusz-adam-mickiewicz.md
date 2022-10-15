@@ -1,3 +1,4 @@
+Wszystko przygotowałem, jadę zaraz w Księstwo».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, wąs kręcąc, z gniewem na chłopca spozierał:\
 «To waść tak szczery? takeś mi serce otwierał?\
