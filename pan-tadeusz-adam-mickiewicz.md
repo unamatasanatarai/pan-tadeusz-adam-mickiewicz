@@ -1,3 +1,4 @@
+Którymi osłaniają po wierzchu kontusze,\
 A na głowy słomiane wdziali kapelusze.\
 Stąd biali wyglądają jak czyśćcowe dusze.\
 Młodzież także przebrana, oprócz Telimeny\
