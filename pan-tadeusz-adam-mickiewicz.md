@@ -1,3 +1,4 @@
+Jeśli kto i czuł wtenczas, że polskie ubranie\
 Piękniejsze jest niż obcej mody małpowanie,\
 Milczał; bo by krzyczała młodzież, że przeszkadza\
 Kulturze, że tamuje progresy, że zdradza!\
