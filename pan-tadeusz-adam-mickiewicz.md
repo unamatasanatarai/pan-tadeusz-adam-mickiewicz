@@ -1,3 +1,4 @@
+Iść za wrócone życie podziękować Bogu),\
 Tak nas powrócisz cudem na Ojczyzny łono.\
 Tymczasem przenoś moją duszę utęsknioną\
 Do tych pagórków leśnych, do tych łąk zielonych,\
