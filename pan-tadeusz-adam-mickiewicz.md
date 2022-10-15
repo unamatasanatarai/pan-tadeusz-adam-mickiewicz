@@ -1,3 +1,4 @@
+Rozkręca się, ucisza, lecz widać że płynie,\
 Bo na jego ruchomej, drgającej powłoce\
 Wzdłuż miesięczne światełko drgające migoce.\
 Jako piękny wąż żmudzki, zwany giwojtosem,\
