@@ -1,3 +1,4 @@
+Lub ma wielką chorobę. Lecz z innej przyczyny\
 Pochodziły te ruchy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    U bliskiej brzeziny\
