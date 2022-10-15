@@ -1,3 +1,4 @@
+Gdzie żaden wał, płot żaden nogi nie utrudza,\
 Gdzie, przestępując miedzę, nie poznasz, że cudza!\
 Bo na Litwie myśliwiec jak okręt na morzu,\
 Gdzie chcesz, jaką chcesz drogą, buja po przestworzu:\
