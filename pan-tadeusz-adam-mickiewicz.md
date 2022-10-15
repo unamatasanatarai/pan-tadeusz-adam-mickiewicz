@@ -1,3 +1,4 @@
+Czapka lisia spadła mu z głowy na ramiona,\
 Powiewała poważnie broda podniesiona,\
 Na jagodach miał kręgi dziwnego rumieńca,\
 We wzroku ducha pełnym błyszczał żar młodzieńca,\
