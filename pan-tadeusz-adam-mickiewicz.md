@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Te kraje rad bym myślami powitał,\
 Gdziem rzadko płakał, a nigdy nie zgrzytał:\
 Kraje dzieciństwa, gdzie człowiek po świecie\
