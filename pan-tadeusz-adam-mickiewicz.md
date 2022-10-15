@@ -1,3 +1,4 @@
+I stanęła na palcach: rzekłbyś, że podrosła;\
 Odkryła nieco piersi, wygięła się bokiem,\
 I sama siebie pilnym obejrzała okiem,\
 I znowu zapytała o radę zwierciadła;\
