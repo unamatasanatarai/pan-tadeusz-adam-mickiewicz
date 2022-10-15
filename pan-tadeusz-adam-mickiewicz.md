@@ -1,3 +1,4 @@
+A głupi wy! Na kim się mleło, na was skrupi!...\
 To póki o wskrzeszeniu Polski była rada,\
 O dobru pospolitym, głupi, u was zwada?\
 Nie można było, głupi, ani się rozmówić,\
