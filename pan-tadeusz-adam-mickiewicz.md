@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, słuchając, z wolna okulary składał\
 I, wpatrując się mocno w księdza, nic nie gadał,\
 Westchnął głęboko, w oczach łzy się zakręciły...\
