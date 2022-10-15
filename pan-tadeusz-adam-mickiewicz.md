@@ -1,3 +1,4 @@
+I wołał na Klucznika: «Zaklinam waćpana\
 Abyś został. Wnet skończę. Ledwie mam dość mocy\
 Zakończyć — Panie Klucznik, ja umrę tej nocy!»
 
