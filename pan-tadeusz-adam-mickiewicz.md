@@ -1,3 +1,4 @@
+Z którego ust otwartych, z podniesionych powiek,\
 Rąk niespokojnych, widać: mówca — coś tłumaczy,\
 I palcem eksplikuje, i na dłoni znaczy.\
 Ci mówcy zalecają swoich kandydatów;\
