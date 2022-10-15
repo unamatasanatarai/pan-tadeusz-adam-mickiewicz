@@ -1,3 +1,4 @@
+Oj biada mnie, żem nie miał choć jednej armaty!\
 Dobrze mówił Suworów: »pomnij Ryków kamrat,\
 Żebyś nigdy na Lachów nie chodził bez armat!«\
 Cóż! jegry byli pjani, Major pić pozwolił!\
