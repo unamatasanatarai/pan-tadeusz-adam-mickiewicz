@@ -1,3 +1,4 @@
+Nie uciecze, to jego można znaleźć wiosną.\
 A teraz rozejdźcie się, a nie gadać głośno\
 O tym, co było; bo to gadać, to daremno!\
 A czyja łaska panów Szlachty, proszę ze mną.\
