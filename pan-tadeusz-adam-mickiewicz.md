@@ -1,3 +1,4 @@
+Jeżeli zaś oddanie broni będzie zwlekać,\
 Robak każe otoczyć resztę i wysiekać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kapitan Ryków wcale nie prosił pardonu;\
