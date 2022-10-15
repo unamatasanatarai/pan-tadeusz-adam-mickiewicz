@@ -1,3 +1,4 @@
+Tłum szlachty go otaczał i uszy nadstawiał,\
 I nosy ku księdzowskiej chylił tabakierze;\
 Brano z niej, i kichała szlachta jak moździerze.
 
