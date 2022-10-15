@@ -1,3 +1,4 @@
+Telimena mówiła coraz wolniej, ciszéj,\
 I Tadeusz udawał, że jej nie dosłyszy\
 W tłumie rozmów: więc szepcąc tak zbliżył się do niéj,\
 Że uczuł twarzą lubą gorącość jej skroni;\
