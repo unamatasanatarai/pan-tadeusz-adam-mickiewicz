@@ -1,3 +1,4 @@
+Jak później Wołodkowicz, pan dumny, zuchwały,\
 Co rozpędzał sejmiki, gwałcił trybunały,\
 Przyjąwszy urzędowy pozew, zdarł na sztuki,\
 I postawiwszy przy drzwiach z kijami hajduki,\
