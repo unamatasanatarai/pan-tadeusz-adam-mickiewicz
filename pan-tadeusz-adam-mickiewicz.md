@@ -1,3 +1,4 @@
+Pochylił w talerz głowę, milczał i gryzł wargi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem zły duch nową pokusą go wabi,\
 Podsłuchiwać, co Zosia mówiła do Hrabi.\
