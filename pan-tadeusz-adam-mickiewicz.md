@@ -1,3 +1,4 @@
+Nigdy nigdzie stawić się w naznaczonej porze.\
 I dziś zaspał poranek; więc na sługi zrzędził,\
 Widząc myśliwców w polu cwałem do nich pędził.\
 Surdut swój angielskiego kroju, biały, długi,\
