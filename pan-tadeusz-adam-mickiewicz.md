@@ -1,3 +1,4 @@
+Bez drzew, krzewów i kwiatów: ogród na ogórki.\
 Pięknie wyrosły; liściem wielkim, rozłożystym,\
 Okryły grzędy jakby kobiercem fałdzistym.\
 Pośrodku szła dziewczyna w bieliznę ubrana,\
