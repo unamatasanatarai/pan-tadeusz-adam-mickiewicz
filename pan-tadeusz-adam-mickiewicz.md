@@ -1,3 +1,4 @@
+Marząc i kończąc pacierz wieczorny, pomału\
 Usnął ostatni w Litwie woźny trybunału.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Takie były zabawy, spory w one lata\
