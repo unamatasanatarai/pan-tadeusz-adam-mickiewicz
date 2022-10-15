@@ -1,3 +1,4 @@
+Tadeusz milczkiem za nią na grzyby pośpieszył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zamiar przechadzki bardzo Sędziego ucieszył;\
 Widział sposób rozjęcia krzykliwego sporu,\
