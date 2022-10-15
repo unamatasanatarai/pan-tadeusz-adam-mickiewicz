@@ -1,3 +1,4 @@
+Wojsko! mówią, że polskie!... Lecz te fizyliery,\
 Sapery, grenadiery i kanonijery:\
 Więcej słychać niemieckich tytułów w tym tłumie\
 Niżeli narodowych! Kto to już zrozumie!\
