@@ -1,3 +1,4 @@
+Wielki to człowiek, cesarz, ale nie Moskali,\
 Ich carowie tabaki nigdy nie bierali...»\
 «Wielki człowiek — zawołał Cydzik — a w kapocie?\
 Ja myśliłem, że wielcy ludzie chodzą w złocie:\
