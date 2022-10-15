@@ -1,3 +1,4 @@
+Jak na szalach, żebyśmy nasz ciężar poznali,\
 Musim kogoś posadzić na przeciwnej szali.\
 Zaś godna jest waszmościów uwagi osobnej\
 Grzeczność, którą powinna młodź dla płci nadobnej;\
