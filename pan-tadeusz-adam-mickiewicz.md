@@ -1,3 +1,4 @@
+Wszak lipa czarnoleska, na głos Jana czuła,\
 Tyle rymów natchnęła! Wszak ów dąb gaduła\
 Kozackiemu wieszczowi tyle cudów śpiewa!
 
