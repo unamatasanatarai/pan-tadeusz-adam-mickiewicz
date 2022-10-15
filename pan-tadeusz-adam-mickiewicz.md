@@ -1,3 +1,4 @@
+Tysiąc rubelków Sędzio, to ostatnie słówko».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia chciał targować się; lecz Major nie słuchał,\
 Znowu biegał po izbie, dymem gęsto buchał,\
