@@ -1,3 +1,4 @@
+Rząd kosiarzy otawę siekących wciąż brząka,\
 Pogwizdując piosenkę; z końcem każdej zwrotki\
 Stają, ostrzą żelezca i w takt kują w młotki.\
 Ludzi we mgle nie widać: tylko sierpy, kosy\
