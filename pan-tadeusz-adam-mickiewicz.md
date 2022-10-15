@@ -1,3 +1,4 @@
+Czy Hrabia z całym dworem wyjechał na łowy?\
 Ale po cóż broń ręczna? Tu szabla bez głowy\
 Zardzewiała, tam leży szpada bez temlaku:\
 Zapewne wybierano oręż z tego braku,\
