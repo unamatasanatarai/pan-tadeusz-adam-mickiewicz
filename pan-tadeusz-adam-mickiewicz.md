@@ -1,3 +1,4 @@
+Ten tak rzecz kończył:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Nie jest to, panie Macieju,\
 Bracie mój, a nas wszystkich Ojcze Dobrodzieju,\
