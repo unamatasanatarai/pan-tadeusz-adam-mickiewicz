@@ -1,3 +1,4 @@
+Ile tu pękło beczek wina w dobrych czasach;\
 Szlachta ciągnęła kufy z piwnicy na pasach,\
 Sproszona na sejm albo sejmik powiatowy,\
 Albo na imieniny pańskie, lub na łowy.\
