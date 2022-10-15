@@ -1,3 +1,4 @@
+Jak zaczniem ciąć, tak całe szelmostwo się zwali,\
 I tak zakwitnie szczęście i Rzeczpospolita.\
 Nieprawdaż?» «Prawda — rzekli — jakby z książki czyta».\
 «Prawda — powtórzył Chrzciciel — krop a krop i kwita».\
