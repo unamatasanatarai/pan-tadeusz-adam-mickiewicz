@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Teraz w niebie żadnego nie widziano wroga;\
 Tylko skwarzyła słońca letniego pożoga.\
 Od niej ptaki w zbożowym ukryły się lasku;\
