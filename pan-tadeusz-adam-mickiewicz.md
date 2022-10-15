@@ -1,3 +1,4 @@
+Więzić jej woli nie chcę; prosić o wzajemność,\
 Na którąm nie zasłużył, byłaby nikczemność».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy te słowa z uczuciem mówił chłopiec młody,\
