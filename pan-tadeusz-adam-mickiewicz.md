@@ -1,3 +1,4 @@
+Bo gdym szła do ogrodu pewnego poranka,\
 Chart u nóg mych zadławił mojego kochanka\
 Bonończyka! Ach, była to rozkoszna psina,\
 Miałam ją w podarunku od księcia Sukina\
