@@ -1,3 +1,4 @@
+Dostali szable, pewnie krwawy bój wybuchnie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz tam na korytarzu, Państwo uważacie\
 Tego starego księdza, co idzie w ornacie:\
