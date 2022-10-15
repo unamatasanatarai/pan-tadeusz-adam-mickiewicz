@@ -1,3 +1,4 @@
+I twarz zakrył rękami; a gdy ją odsłonił,\
 Miała wyraz żałości wielkiej i rozpaczy.\
 Hrabia, chociaż nie wiedział, co to wszystko znaczy,\
 Poglądając w twarz starca czuł jakieś wzruszenie,\
