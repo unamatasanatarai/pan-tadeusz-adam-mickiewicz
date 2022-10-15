@@ -1,3 +1,4 @@
+Podług niej później Karol-Kochanku-Radziwiłł,\
 Gdy przyjmował w Nieświeżu króla Stanisława,\
 Sprawił pamiętną ową ucztę, której sława\
 Dotąd żyje na Litwie we gminnej powieści.
