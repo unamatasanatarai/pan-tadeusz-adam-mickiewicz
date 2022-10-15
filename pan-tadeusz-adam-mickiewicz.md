@@ -1,3 +1,4 @@
+«Niech żyje — krzyknął Sędzia w górę wznosząc flaszę —\
 Miasto Gdańsk, niegdyś nasze, będzie znowu nasze!»\
 I lał srebrzysty likwor w kolej, aż na końcu\
 Zaczęło złoto kapać i błyskać na słońcu.
