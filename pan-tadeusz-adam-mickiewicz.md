@@ -1,3 +1,4 @@
+Nie dość jest przyrodzenia, nie dosyć zapału:\
 Sztukmistrz musi ulecieć w sfery ideału!\
 Nie wszystko, co jest piękne, wymalować da się!\
 Dowiesz się o tym wszystkim z książek w swoim czasie.\
