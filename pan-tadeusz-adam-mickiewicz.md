@@ -1,3 +1,4 @@
+W jednej stronie, znów bitwy szukał z drugiej strony?\
 Może, bystry polityk, duch czasu zbadywał,\
 I tam szedł, gdzie ojczyzny dobro upatrywał?\
 Kto wie! To pewna, że go nigdy nie uwiodły\
