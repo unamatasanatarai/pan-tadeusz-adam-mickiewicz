@@ -1,3 +1,4 @@
+Ożyna czarne usta tuląca do malin.\
 Drzewa i krzewy liśćmi wzięły się za ręce,\
 Jak do tańca stające panny i młodzieńce\
 Wkoło pary małżonków. Stoi pośród grona\
