@@ -1,3 +1,4 @@
+Żyjący bez rachunku. Ja tuszę i życzę\
 Zgodą zakończyć moje sądy podkomorskie.\
 Dotąd jedyna trudność jest o fundum dworskie:\
 Mam już projekt zamiany, fundum wynagrodzić\
