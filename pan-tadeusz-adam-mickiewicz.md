@@ -1,3 +1,4 @@
+Blondyny, kaszemiry, perły i kamienie,\
 I oblicze różane i żywe wejrzenie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poznał ją zaraz Hrabia. Z zadziwienia blady\
