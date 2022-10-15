@@ -1,3 +1,4 @@
+«Co za gwałty — rzekł Klucznik — tu nie ma napaści,\
 Wszak proszę pana grzecznie; jeśli ciemno waści,\
 To Scyzorykiem skrzesam ognia, że waszeci\
 Zaraz w ślepiach jak w siedmiu kościołach zaświeci».
