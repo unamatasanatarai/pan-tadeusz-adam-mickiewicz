@@ -1,3 +1,4 @@
+Ale próżno krzywdzące chartów wieści szerzył:\
 Wojski zaprzeczył i nikt kuchcie nie uwierzył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już goście zgromadzeni w wielkiej zamku sali,\
