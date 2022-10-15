@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Gerwazeńku — rzekł Woźny — po co się tak dąsać?\
 Jestem Woźny, nie moja rzecz sprawę roztrząsać;\
 Wszak wiadomo, że strona Woźnego zaprasza\
 I dyktuje mu, co chce, a Woźny ogłasza.\
