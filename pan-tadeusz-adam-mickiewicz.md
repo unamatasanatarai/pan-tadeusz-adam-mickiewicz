@@ -1,3 +1,4 @@
+Sławny malarz (mam jego kilka szkiców w biurku)\
 Mieszkał tuż przy cesarzu, na dworze, jak w raju:\
 A nie uwierzy Hrabia, jak tęsknił po kraju!\
 Lubił ciągle wspominać swej młodości czasy,\
