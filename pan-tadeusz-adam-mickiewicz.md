@@ -1,3 +1,4 @@
+Cisną się do Klucznika, podnoszą do góry\
 Szable, pałki. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Aż Maciek, dotychczas ponury,\
