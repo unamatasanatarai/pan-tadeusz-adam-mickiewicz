@@ -1,3 +1,4 @@
+
 Słońce ostatnich kresów nieba dochodziło,\
 Mniej silnie, ale szerzej niż we dnie świeciło,\
 Całe zaczerwienione, jak zdrowe oblicze\
