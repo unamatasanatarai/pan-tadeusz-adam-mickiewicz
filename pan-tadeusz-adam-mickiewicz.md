@@ -1,3 +1,4 @@
+Wyszedł na środek izby i podparł się w boki;\
 I spojrzawszy przed siebie, i kiwając głową,\
 Zabrał głos, wymawiając z wolna każde słowo,\
 Z przestankiem i przyciskiem: «A głupi! a głupi!\
