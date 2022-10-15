@@ -1,3 +1,4 @@
+Ty!...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Oby tylko równie Bóg przebaczyć raczył! —\
 Przerwał Klucznik — jeżeli masz przyjąć wijatyk,\
