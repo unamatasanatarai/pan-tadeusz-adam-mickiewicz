@@ -1,3 +1,4 @@
+Jakby o jednym z owych dawnych wielkoludów».\
 «Scyzoryk — rzecze Wojski — choć nie egzulował,\
 Ale bojąc się śledztwa, przed Moskwą się schował,\
 Całą zimę nieborak tułał się po lasach,\
