@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś pospólstwo litewskie z całej okolicy\
 Zebrało się przed wschodem wokoło kaplicy,\
 Jak gdyby na nowego ogłoszenie cudu.\
