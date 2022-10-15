@@ -1,3 +1,4 @@
+Pojedynkował, nie myśl, że jestem zawziętym\
 Na krew ludzką; broń Boże! Chciałem was zabawić,\
 Chciałem wam komedyję niby to wyprawić,\
 Wznowić koncept, który ja lat temu czterdzieście\
