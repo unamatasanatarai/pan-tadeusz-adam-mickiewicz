@@ -1,3 +1,4 @@
+Zniszczył, nie zostawiwszy sztuki na lekarstwo,\
 Jeszcze nie mogło ptastwem zakwitnąć na nowo\
 Sławne niegdyś ze drobiu swego Soplicowo.\
 Zresztą zaś miąs wszelakich był wielki dostatek,\
