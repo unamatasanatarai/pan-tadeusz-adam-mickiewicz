@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ale w izbie na prawo, kusząc Asesora,\
 Rzekł Rejent mimojazdem: «Ja mówiłem wczora,\
 Że polowanie nasze udać się nie może:\
 Jeszcze zbyt wcześnie, jeszcze na pniu stoi zboże\
