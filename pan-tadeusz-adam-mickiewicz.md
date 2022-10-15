@@ -1,3 +1,4 @@
+Asesora z Rejentem wzmogła się uparta\
 Coraz głośniejsza kłótnia o kusego charta,\
 Którego posiadaniem pan Rejent się szczycił\
 I utrzymywał, że on zająca pochwycił;\
