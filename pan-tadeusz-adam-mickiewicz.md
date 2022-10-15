@@ -1,3 +1,4 @@
+Krzyknie: zaraz w ten ogród chowają się kury,\
 Nawet gęsi i pawie, i w nagłym przestrachu\
 Gołębie, gdy nie mogą schronić się na dachu.
 
