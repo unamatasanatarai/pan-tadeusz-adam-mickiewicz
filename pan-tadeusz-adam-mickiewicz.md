@@ -1,3 +1,4 @@
+Rozmawiali przyjaźnie, jak ludzie honoru\
 Idąc na rozstrzygnienie śmiertelnego sporu:\
 Nikt ze słów zawziętości ich poznać nie zdoła;\
 Pan Rejent wiódł Kusego, Asesor Sokoła.\
