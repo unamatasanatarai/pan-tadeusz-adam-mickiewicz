@@ -1,3 +1,4 @@
+Wysławiając ich kształty, kwiaty i łodygi:\
 Tadeusz nie przestawał dąsać się i zżymać,\
 Na koniec nie mógł dłużej od gniewu wytrzymać.
 
