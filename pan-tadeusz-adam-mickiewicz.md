@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    «Bracia! ogłosił wam ksiądz na ambonie\
 Wolność, którą cesarz-król przywrócił Koronie,\
 A teraz Litewskiemu Księstwu, Polszcze całej\
 Przywraca; słyszeliście rządowe uchwały\
