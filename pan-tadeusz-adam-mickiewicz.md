@@ -1,3 +1,4 @@
+I tak na dane z kuchni hasło, niespodzianie\
 Rozeszła się armija na furażowanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy, od pokojów Sędziego odparty,\
