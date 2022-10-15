@@ -1,3 +1,4 @@
+Że jak kurek za wiatrem chorągiewkę zwracał.\
 Przyczynę zmian tak częstych na próżno byś macał:\
 Może Maciej zbyt wojnę lubił; zwyciężony\
 W jednej stronie, znów bitwy szukał z drugiej strony?\
