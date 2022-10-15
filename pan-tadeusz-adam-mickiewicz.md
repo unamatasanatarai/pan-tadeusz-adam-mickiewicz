@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Nu, panowie Dobrzyńscy! Ja sobie Żydzisko;\
 Mnie Sędzia ni brat, ni swat; szanuję Sopliców\
 Jak panów bardzo dobrych i moich dziedziców;\
 Szanuję też Dobrzyńskich, Bartków i Maciejów,\
