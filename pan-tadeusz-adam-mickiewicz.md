@@ -1,3 +1,4 @@
+Rozprawimy się jutro, plac i broń wybierzem;\
 Dziś uchodź, pókiś cały».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Dobra była rada:\
