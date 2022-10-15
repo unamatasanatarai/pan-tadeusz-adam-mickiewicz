@@ -1,3 +1,4 @@
+O sprawach, o sejmikach, a nawet żartować!!\
 Wszystko to, prawda, z pychy: żeby nie ubliżyć\
 Imieniowi Sopliców, żeby się nie zniżyć\
 Przed panem prośbą próżną, nie dostać odmowy,\
