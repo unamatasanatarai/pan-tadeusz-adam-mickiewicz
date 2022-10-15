@@ -1,3 +1,4 @@
+
 > Ostatnia uczta staropolska — Arcy-serwis — Objaśnienie jego figur — Jego ruchy — Dąbrowski udarowany — Jeszcze o Scyzoryku — Kniaziewicz udarowany — Pierwszy akt urzędowy Tadeusza przy objęciu dziedzictwa — Uwagi Gerwazego — Koncert nad koncertami — Polonez — Kochajmy się.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na koniec z trzaskiem sali drzwi na wściąż otwarto.\
