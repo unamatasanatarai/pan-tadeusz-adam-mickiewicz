@@ -1,3 +1,4 @@
+I zapewne kaleczy; śród ogarów grania\
 Słychać coraz to częściej jęk psiego konania.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Strzelcy stali i każdy ze strzelbą gotową\
