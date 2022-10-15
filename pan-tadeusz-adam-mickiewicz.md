@@ -1,3 +1,4 @@
+I słowa liturgii takim wyrzekł tonem\
 Do ludu, jak oficer stojąc przed szwadronem:\
 Postrzegali to chłopcy służący mu do mszy.\
 Spraw także politycznych był Robak świadomszy,\
