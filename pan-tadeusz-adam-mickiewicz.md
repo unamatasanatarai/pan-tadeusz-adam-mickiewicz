@@ -1,3 +1,4 @@
+Stryjaszek myśli wkrótce sprawić ci wesele;\
 Jest z czego wybrać; u nas towarzystwo liczne\
 Od dni kilku zbiera się na sądy graniczne,\
 Dla skończenia dawnego z panem Hrabią sporu.\
