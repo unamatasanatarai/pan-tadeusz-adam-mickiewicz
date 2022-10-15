@@ -1,3 +1,4 @@
+A pan kusość uważasz za dowód dobroci?\
 Zresztą zdać się możemy na sąd pańskiej cioci.\
 Choć pani Telimena mieszkała w stolicy\
 I bawi się niedawno w naszej okolicy,\
