@@ -1,3 +1,4 @@
+Pójdziecie już to najmniej w sybirną robotę».\
 «Apeluję — rzekł Sędzia — do gubernatora».\
 «Apeluj — rzekł Płut — choćby do Imperatora.\
 Wiesz, że gdy imperator zatwierdza ukazy,\
