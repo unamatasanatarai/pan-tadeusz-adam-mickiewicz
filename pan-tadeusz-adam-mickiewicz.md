@@ -1,3 +1,4 @@
+Że ma romans z dziesięciu razem kochankami?\
 Mów prawdę: chcesz mnie rzucić?» Zalała się łzami.\
 «Telimeno, cóż by świat mówił o człowieku —\
 Rzekł Tadeusz — który by teraz, w moim wieku,\
