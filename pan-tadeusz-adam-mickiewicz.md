@@ -1,3 +1,4 @@
+Którego posiadaniem pan Rejent się szczycił\
 I utrzymywał, że on zająca pochwycił;\
 Asesor zaś dowodził na złość Rejentowi,\
 Że ta chwała należy chartu Sokołowi.\
