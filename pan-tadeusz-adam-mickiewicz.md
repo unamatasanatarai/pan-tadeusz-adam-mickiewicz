@@ -1,3 +1,4 @@
+Taka była dla Zosi Dobrzyńskiego stałość.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia tańczy wesoło: lecz choć w pierwszej parze,\
 Ledwie widna z daleka. Na wielkim obszarze\
