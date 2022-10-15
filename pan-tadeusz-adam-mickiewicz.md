@@ -1,3 +1,4 @@
+Którędy mają ciągnąć? z jaką idą mocą?\
 Wiele piechoty, jazdy? Kto wie, niechaj gada!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Milczała patrząc na się kolejno gromada.\
