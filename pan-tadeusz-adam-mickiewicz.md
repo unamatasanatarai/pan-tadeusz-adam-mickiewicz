@@ -1,3 +1,4 @@
+Teraz wszedł w służbę rządu, by znaczyć w powiecie.\
 Lubił bardzo myślistwo, już to dla zabawy,\
 Już to że odgłos trąbki i widok obławy\
 Przypominał mu jego lata młodociane,\
