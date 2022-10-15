@@ -1,3 +1,4 @@
+Zsiąść z konia. Pójdźmy w zamek. Niech no pan obaczy.\
 Pan sam nie wie, co robi. Niech się pan nie wzbrania,\
 Zsiadaj pan» — i przytrzymał strzemię do zsiadania.
 
