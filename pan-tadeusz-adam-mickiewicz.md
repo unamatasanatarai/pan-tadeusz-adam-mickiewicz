@@ -1,3 +1,4 @@
+Jeżeli się przybliżą albo się spotkają,\
 Ani mówią do siebie, ani się witają,\
 Głęboko zadumani, w sobie pogrążeni.\
 Hrabia widział w nich obraz elizejskich cieni,\
