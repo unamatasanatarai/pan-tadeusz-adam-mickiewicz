@@ -1,3 +1,4 @@
+Wysiadł z powozu; konie porzucone same,\
 Szczypiąc trawę ciągnęły powoli pod bramę.\
 We dworze pusto: bo drzwi od ganku zamknięto\
 Zaszczepkami i kołkiem zaszczepki przetknięto.\
