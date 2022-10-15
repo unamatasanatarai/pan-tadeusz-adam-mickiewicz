@@ -1,3 +1,4 @@
+Z radości i z rozpaczy, zapomniał się, szalał.\
 Już chciałem znowu upaść ojcu jej pod nogi,\
 Wić się jak wąż u kolan, wołać: »Ojcze drogi,\
 Weź za syna lub zabij!« Wtem Stolnik posępny,\
