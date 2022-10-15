@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Śmiech powstał w obu izbach. Sędzia z bernardynem\
 Grał w mariasza i właśnie z wyświeconym winem\
 Miał coś ważnego zadać: już ksiądz ledwo dyszał,\
