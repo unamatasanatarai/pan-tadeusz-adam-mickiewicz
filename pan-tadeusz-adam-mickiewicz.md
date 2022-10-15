@@ -1,3 +1,4 @@
+Jako rybak pod wodą nurkujący płynie;\
 Wzniósł głowę: cicho wszędzie; do okien się skrada:\
 Cicho wszędzie; przez okna głąb pałacu bada:\
 Pusto wszędzie; na ganek wchodzi nie bez strachu,\
