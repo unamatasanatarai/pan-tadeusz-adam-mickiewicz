@@ -1,3 +1,4 @@
+I ustawicznie «Kropić, kropić!» wykrzykiwał.\
 Wzdłuż izby zaś przebiegał Brzytewka ruchawy\
 Ciągle od Kropiciela do Macieja ławy.\
 Konewka zaś powoli wszerz izbę przechodził\
