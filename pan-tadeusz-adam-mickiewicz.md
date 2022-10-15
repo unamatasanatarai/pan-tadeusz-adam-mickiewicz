@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;To mówiąc skoczył, chwycił Telimeny rękę,\
 I szerokim całusem w blade ramię klasnął;\
 Gdy Tadeusz, przypadłszy z boku, w twarz mu trzasnął.\
 I całus, i policzek ozwały się razem,\
