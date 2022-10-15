@@ -1,3 +1,4 @@
+Które mogą pomieszać twe prawne układy».\
 «Układy? — krzyknął Sędzia z niezwykłym zapałem —\
 Z układów kwita, już je skończyłem, zerwałem».\
 «A to co? — przerwał Robak — gdzie rozum, gdzie głowa?\
