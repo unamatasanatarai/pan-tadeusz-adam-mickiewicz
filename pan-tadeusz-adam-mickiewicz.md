@@ -1,3 +1,4 @@
+Słysząc, że jest osoba dobra, świat znająca:\
 A postrzegam, że ona coś tu nam zamąca,\
 Intryguje i pono Tadeuszka wabi:\
 Śledzę ją; albo może bierze się do Hrabi;\
