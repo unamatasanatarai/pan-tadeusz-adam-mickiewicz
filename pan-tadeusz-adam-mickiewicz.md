@@ -1,3 +1,4 @@
+«O, jak mnie to starego i smuci, i dziwi!\
 Cóż by to o tym starzy mówili myśliwi,\
 Widząc że w tylu szlachty, w tylu panów gronie,\
 Mają sądzić się spory o charcim ogonie?\
