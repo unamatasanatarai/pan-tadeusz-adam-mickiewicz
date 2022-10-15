@@ -1,3 +1,4 @@
+Jak wąż boa, oburącz do ust go przycisnął,\
 Wzdął policzki jak banię, w oczach krwią zabłysnął,\
 Zasunął wpół powieki, wciągnął w głąb pół brzucha\
 I do płuc wysłał z niego cały zapas ducha,\
