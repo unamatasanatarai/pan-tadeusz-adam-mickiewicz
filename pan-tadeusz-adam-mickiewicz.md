@@ -1,3 +1,4 @@
+Że w sądy o mym piesku wielki łowczy wdał się:\
 I nawet wiem z pewnością, że sam cesarz śmiał się».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Śmiech powstał w obu izbach. Sędzia z bernardynem\
