@@ -1,3 +1,4 @@
+Oba tęgo strzelali — »Sekunduj, Hreczecha!«\
 »Zgoda — rzekłem — niech zaraz dół wykopie klecha:\
 Bo taki spór nie może skończyć się na niczym;\
 Lecz bijcie się szlacheckim trybem, nie rzeźniczym.\
