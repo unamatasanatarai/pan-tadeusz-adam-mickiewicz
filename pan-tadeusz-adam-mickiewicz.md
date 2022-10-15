@@ -1,3 +1,4 @@
+Bo niedługo by swoim pozwem się nacieszył:\
 W Soplicowie zmieniano kampanii plany.\
 Do Sędziego wpadł nagle Robak zadumany,\
 I rzekł: «Sędzio, to bieda nam z tą panią ciotką,\
