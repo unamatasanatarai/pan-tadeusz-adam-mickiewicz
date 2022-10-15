@@ -1,3 +1,4 @@
+Sam tę scenę odgadłem i państwu objaśnię.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Oto na prawo widać liczne szlachty grono:\
 Pewnie ich przed sejmikiem na ucztę sproszono.\
