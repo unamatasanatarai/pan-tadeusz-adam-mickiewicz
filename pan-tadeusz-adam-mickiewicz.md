@@ -1,3 +1,4 @@
+Lecz teraz Telimena, przyszła żona, zmusza\
 Warunkiem intercyzy, wyrzec się kontusza;\
 Więc się Rejent rad nierad po francusku przebrał.\
 Widno, że mu frak duszy połowę odebrał,\
