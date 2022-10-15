@@ -1,3 +1,4 @@
+Żółta dziewanna, szczyru barwiste ogony.\
 Gniazda ptastwa różnego, w strychach gołębniki,\
 W oknach gniazda jaskółcze, u progu króliki\
 Białe skaczą i ryją w niedeptanej darni.\
