@@ -1,3 +1,4 @@
+One służą ku wielkiej sądowej paradzie;\
 Na podróż ma strój inny: szerokie rajtuzy\
 I kurtkę, której poły podpięte na guzy\
 Można zakasać albo spuścić na kolana;\
