@@ -1,3 +1,4 @@
+Jest na to sposób. W zamku wiem ja pewną skrzynię,\
 W której jest Horeszkowskie stołowe naczynie,\
 Przy tym różne sygnety, kanaki, manele,\
 Kity bogate, rzędy, cudne karabele.\
