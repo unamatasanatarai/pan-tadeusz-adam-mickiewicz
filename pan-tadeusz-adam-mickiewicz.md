@@ -1,3 +1,4 @@
+Łyse, skarłowaciałe, robaczliwe, chore,\
 Pochyliwszy konary mchem kołtunowate\
 I pnie garbiąc, brzydkimi grzybami brodate,\
 Siedzą wokoło wody jak czarownic kupa\
