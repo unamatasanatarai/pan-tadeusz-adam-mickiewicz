@@ -1,3 +1,4 @@
+Stronami domy, niby wioski i zaścianki,\
 Okryte zamiast śronu cukrowymi pianki;\
 Na krawędziach naczynia stoją dla ozdoby\
 Niewielkie z porcelany wydęte osoby\
