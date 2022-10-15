@@ -1,3 +1,4 @@
+Tak mówiąc na Sędziego mrugał; widać z miny,\
 Że miał i taił inne, ważniejsze przyczyny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;O dwa tysiące kroków zamek stał za domem,\
