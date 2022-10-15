@@ -1,3 +1,4 @@
+Sąsiadka zaśmiała się, lecz nie powiedziała\
 Kogo owa szczęśliwsza gałka oznaczała.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Inaczej bawiono się w drugim końcu stoła;\
