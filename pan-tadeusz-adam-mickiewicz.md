@@ -1,3 +1,4 @@
+Palcami wskazywały mię wszystkie kobiety;\
 Nawet wydrukowano o całym zdarzeniu\
 Romans, gdzie wymieniony jestem po imieniu.\
 Romans ma tytuł: Polak, czyli tajemnice\
