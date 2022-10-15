@@ -1,3 +1,4 @@
+A przecież, ile wnoszę z panów zadziwienia,\
 Widzę, iż ten kunszt piękny godzien był widzenia!\
 Nie wiem, czy się podobna okazja zdarzy\
 Częstować w Soplicowie takich dygnitarzy.\
