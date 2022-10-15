@@ -1,3 +1,4 @@
+I mimo całą strony przeciwnej zajadłość\
 Dowiodę, że zamczysko wzięliśmy w posiadłość.\
 Wszakże kto gości prosi w zamek na wieczerzę,\
 Dowodzi, że posiadłość tam ma albo bierze;\
