@@ -1,3 +1,4 @@
+Lecz na pamięć znał imię i kształt każdej gwiazdy:\
 Wskazywał palcem miejsca i drogę ich jazdy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś mało go słuchano, nie zważano wcale\
