@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wojski pragnął młodzieńców poróżnionych zgodzić\
 Przykładami mądrymi: więc zaczął wywodzić\
 Historyję o dziku Nalibockich lasów\
 I o kłótni Rejtana z księżęciem Denassów.\
