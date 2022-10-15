@@ -1,3 +1,4 @@
+Aż go powoli wprawił w przyjemne marzenie,\
 Ruch jednostajny rożnów kręcących pieczenie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia od rana pisał, zamknąwszy się w izbie;\
