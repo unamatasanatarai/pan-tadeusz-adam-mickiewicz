@@ -1,3 +1,4 @@
+Tylko kiedy niekiedy kaptur mnicha bury\
 Wznosi się nad tumany jako sęp nad chmury.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Woźny już dawniej wyszedł ku domowi Hrabi.\
