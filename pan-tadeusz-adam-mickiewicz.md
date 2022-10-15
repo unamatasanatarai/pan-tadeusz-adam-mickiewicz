@@ -1,3 +1,4 @@
+Prawować się o lisa i przyzywać drabów,\
 By wziąć w areszt ogara, że wpadł w cudze gaje:\
 Na Litwie, chwała Bogu, stare obyczaje.\
 Mamy dosyć zwierzyny dla nas i sąsiedztwa,\
