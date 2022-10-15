@@ -1,3 +1,4 @@
+Rzuca się w prawo, w lewo, skacze skróś strumienia,\
 Rozkrzyżowana, z włosem rozpuszczonym, blada,\
 Pędzi w las, podskakuje, przyklęka, upada,\
 I nie mogąc już powstać, kręci się po darni;\
