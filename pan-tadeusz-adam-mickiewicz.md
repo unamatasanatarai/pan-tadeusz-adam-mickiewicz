@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jegrów więcej przybywa. Mieszają się, tłuką;\
 Szlachta w zgiełku nie może ciąć krzyżową sztuką,\
 Jegry nie mogą strzelać; już walczą wręcz z bliska,\
 Już stal ząb za ząb o stal porwawszy się pryska,\
