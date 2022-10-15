@@ -1,3 +1,4 @@
+Proboszcz, lokaj, hajducy czterej, ludzie śmiali.\
 Więc za strzelby, do okien. Aż tu tłum Moskali,\
 Krzycząc: »Ura!«, od bramy wali po tarasie;\
 My im ze strzelb dziesięciu palnęli »A zasie«.\
