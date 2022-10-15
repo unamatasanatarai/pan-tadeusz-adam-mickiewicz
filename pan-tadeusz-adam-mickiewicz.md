@@ -1,3 +1,4 @@
+Widzę i opisuję, bo tęsknię po tobie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Panno święta, co Jasnej bronisz Częstochowy\
 I w Ostrej świecisz Bramie! Ty, co gród zamkowy\
