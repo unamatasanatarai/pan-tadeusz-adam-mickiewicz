@@ -1,3 +1,4 @@
+Od niej ptaki w zbożowym ukryły się lasku;\
 Tamte leżą w murawie, te kąpią się w piasku.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Śród ptaszych głów sterczały główki ludzkie małe,\
