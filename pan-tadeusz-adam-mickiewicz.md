@@ -1,3 +1,4 @@
+Tak nas powrócisz cudem na Ojczyzny łono.\
 Tymczasem przenoś moją duszę utęsknioną\
 Do tych pagórków leśnych, do tych łąk zielonych,\
 Szeroko nad błękitnym Niemnem rozciągnionych;\
