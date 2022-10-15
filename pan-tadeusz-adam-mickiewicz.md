@@ -1,3 +1,4 @@
+On rzekł: «Wielmożni szlachta bracia dobrodzieje,\
 Forum myśliwskim tylko są łąki i knieje;\
 Więc ja w domu podobnych spraw nie decyduję,\
 I posiedzenie nasze na jutro solwuję,\
