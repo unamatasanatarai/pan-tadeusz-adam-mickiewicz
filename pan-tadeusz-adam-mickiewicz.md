@@ -1,3 +1,4 @@
+Pono źle zrozumieli! Klucznik wszystko splątał!\
 Ten wariat Hrabia, słyszę, pobiegł do Dobrzyna,\
 Nie mogłem go uprzedzić, ważna w tym przyczyna:\
 Stary Maciek mnie poznał, a jeśli odkryje,\
