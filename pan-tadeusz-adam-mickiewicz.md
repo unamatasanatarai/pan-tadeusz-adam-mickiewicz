@@ -1,3 +1,4 @@
+Dominik, co zastawił dobra swe i sprzęty\
 I dwa uzbroił nowe konne regimenty.\
 Jedź, jedź, a weź pieniądze: rąk tam dosyć mamy,\
 Ale grosza brak w Księstwie; jedź wasze, żegnamy».
