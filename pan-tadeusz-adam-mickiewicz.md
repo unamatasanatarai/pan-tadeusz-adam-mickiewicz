@@ -1,3 +1,4 @@
+Wkrótce tu nie zostanie nikt z nas przy komendzie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc Płut na Tadeusza krzyknął z wielkim gniewem:\
 «Panie Polak, wstydź się pan, chować się za drzewem;\
