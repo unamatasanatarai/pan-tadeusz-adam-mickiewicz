@@ -1,3 +1,4 @@
+I nigdy na nim noga moja nie postanie!\
 Nazywam się Hreczecha, a od króla Lecha,\
 Żaden za zającami nie jeździł Hreczecha».
 
