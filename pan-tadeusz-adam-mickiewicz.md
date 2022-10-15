@@ -1,3 +1,4 @@
+Tadeusz przecież zważał i w bok strzelał okiem,\
 I nie śmiejąc iść prosto, przysuwał się bokiem:\
 Jak strzelec, gdy w ruchomej gałęzistej szopie,\
 Usiadłszy na dwóch kołach, podjeżdża na dropie,\
