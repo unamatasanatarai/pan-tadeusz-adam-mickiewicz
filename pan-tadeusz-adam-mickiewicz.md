@@ -1,3 +1,4 @@
+I tak rapier na próbę szedł z rak do rąk ciągiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz jenerał Kniaziewicz, wzrostem najsłuszniejszy\
 Pokazało się, iż był w ręku najsilniejszy:\
