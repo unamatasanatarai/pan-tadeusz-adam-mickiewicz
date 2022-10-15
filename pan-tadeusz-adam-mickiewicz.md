@@ -1,3 +1,4 @@
+Dawał mu folwark pięciu dymów w dożywocie\
 I wyznaczył mu rocznie tysiąc złotych w złocie.\
 Lecz Dobrzyński odpisał: «Niech Pociej Macieja\
 A nie Maciej Pocieja ma za dobrodzieja».\
