@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    O świcie zjawił się w Dobrzynie\
 Konny posłaniec; biega od chaty do chaty,\
 Budzi jak na pańszczyznę. Wstają szlachta braty,\
