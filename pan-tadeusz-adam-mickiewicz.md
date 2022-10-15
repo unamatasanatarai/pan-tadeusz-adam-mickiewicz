@@ -1,3 +1,4 @@
+Zawiązałeś ty węzeł i mojemu Panu!\
 Nieszczęśniku!... I tyżeś? do takiego stanu?\
 Jacek Wąsal kwestarzem? Wielkie sądy Boże!...\
 I teraz, ha! bezkarnie ujść tobie nie może,\
