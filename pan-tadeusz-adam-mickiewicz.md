@@ -1,3 +1,4 @@
+No, Tadeuszku, przyznaj mi się waść, a szczerze».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jużci — bąknął Tadeusz — prawda: są przyczyny\
 Inne, kochany stryju, może z mojej winy!\
