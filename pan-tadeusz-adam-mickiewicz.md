@@ -1,3 +1,4 @@
+«Kapitanie! nie splamisz czci twojej pardonem.\
 Dałeś próby, rycerzu nieszczęsny, lecz mężny,\
 Twojej odwagi: porzuć opór niedołężny,\
 Złóż broń, nim cię naszymi szablami rozbroim;\
