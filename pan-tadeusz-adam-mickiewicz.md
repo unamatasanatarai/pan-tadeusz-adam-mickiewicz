@@ -1,3 +1,4 @@
+Mam czas. Teraz, mój bracie, poślij do plebana,\
 Aby tu jak najrychlej przybył z wijatykiem;\
 Oddal stąd wszystkich, zostań tylko sam z Klucznikiem,\
 Zamknij drzwi».
