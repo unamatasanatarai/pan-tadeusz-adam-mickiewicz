@@ -1,3 +1,4 @@
+Niedźwiedź wyskoczył w górę jak kot przed chartami\
 I głową na dół runął, i czterma łapami\
 Przewróciwszy się młyńcem, cielska krwawe brzemię\
 Waląc tuż pod Hrabiego, zbił go z nóg na ziemię.\
