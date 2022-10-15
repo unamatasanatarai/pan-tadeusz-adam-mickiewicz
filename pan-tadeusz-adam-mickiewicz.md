@@ -1,3 +1,4 @@
+Siedzi i zda się dumać o losach jarzyny;\
 Tam, plącząc stronki w marchwi zielonej warkoczu,\
 Wysmukły bób obraca na nią tysiąc oczu;\
 Owdzie podnosi złotą kitę kukuruza;\
