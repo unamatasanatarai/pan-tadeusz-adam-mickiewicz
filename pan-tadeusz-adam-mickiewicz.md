@@ -1,3 +1,4 @@
+Jak chcieliśmy go wieszać na belce w stodole,\
 Iż był tyran dla chłopstwa a sługa Moskali;\
 Ale się chłopi głupi nad nim zlitowali!\
 (Upiec go muszę kiedyś na tym Scyzoryku.)\
