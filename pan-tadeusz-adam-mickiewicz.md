@@ -1,3 +1,4 @@
+Z palcem zmierzonym prosto w Tadeusza oczy:\
 «Tego chciałam! — krzyknęła — ha, języku smoczy!\
 Serce jaszczurcze! To nic, żem tobą zajęta\
 Wzgardziła Asesora, Hrabię i Rejenta,\
