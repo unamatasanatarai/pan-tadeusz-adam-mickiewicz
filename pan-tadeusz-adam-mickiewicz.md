@@ -1,3 +1,4 @@
+Obejmuje ją wkoło i dusi mistrz srogi.\
 Sen szlachecki był jeszcze twardszy niż sen muszy:\
 Żaden nie bzyka, leżą wszyscy jak bez duszy,\
 Chociaż byli chwytani silnymi rękoma\
