@@ -1,3 +1,4 @@
+Hulać to hulać! Sędzio, daj beczkę siwuchy:\
 Major pozwoli, niechaj piją jegry zuchy!»\
 «Prosiłbym — rzecze Major — lecz w tym nie ma musu».\
 «Daj Sędzio — szepnął Robak — beczkę spirytusu».\
