@@ -1,3 +1,4 @@
+A sam ku ogrodowi ruszył po kryjomu.\
 Dobiegł wkrótce parkanu, znalazł w nim otwory\
 I wcisnął się po cichu, jak wilk do obory.\
 Nieszczęściem, trącił krzaki suchego agrestu:\
