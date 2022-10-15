@@ -1,3 +1,4 @@
+Zmarszczkami pooraną, posępną, surową.\
 Dawniej pomiędzy szlachtą z wesołości słynął;\
 Ale od bitwy, w której dziedzic zamku zginął,\
 Gerwazy się odmienił i już od lat wielu\
