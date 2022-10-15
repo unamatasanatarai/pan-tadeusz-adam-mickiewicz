@@ -1,3 +1,4 @@
+Zaraz dokończę scenę ostatnią sejmików.\
 Oto nowy marszałek na ręku stronników\
 Wyniesion z refektarza. Patrz, jak szlachta braty\
 Rzucają czapki, usta otwarli, — wiwaty!\
