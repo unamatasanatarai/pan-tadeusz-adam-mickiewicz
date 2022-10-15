@@ -1,3 +1,4 @@
+Dał mu poważnie rękę do pocałowania,\
 I w skroń ucałowawszy uprzejmie pozdrowił;\
 A choć przez wzgląd na gości niewiele z nim mówił,\
 Widać było z łez, które wylotem kontusza\
