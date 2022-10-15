@@ -1,3 +1,4 @@
+Znowu gadać o swojej Libiji i spisie,\
 O swych królach murzyńskich i o swym tygrysie.\
 Markotno to się stało panu Rejtanowi.\
 Był człek żywy, uderzył po szabli i mówi:\
