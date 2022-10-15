@@ -1,3 +1,4 @@
+Że się nie stało zadość Buchmanowej radzie.\
 Szlachta żegna się śpiesznie i już w drogę rusza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Sędzia zatrzymał w izbie Tadeusza\
