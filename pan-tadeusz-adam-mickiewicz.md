@@ -1,3 +1,4 @@
+Jeden staw, co toń jasną i brzeg miał piaszczysty,\
 Modrą piersią jęk wydał cichy, uroczysty;\
 Drugi staw, z dnem błotnistym i gardzielem mętnym,\
 Odpowiedział mu krzykiem żałośnie namiętnym:\
