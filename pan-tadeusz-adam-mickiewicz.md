@@ -1,3 +1,4 @@
+Zadzwonił w tabakierkę złotą, o głos prosi.\
 «Godzieneś pochwał — rzecze — Hrabio, mój sąsiedzie,\
 Że dbasz o interesa nawet przy obiedzie,\
 Nie tak jak modni wieku twojego panicze,\
