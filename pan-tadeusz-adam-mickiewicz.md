@@ -1,3 +1,4 @@
+Których lud znał imiona i czcił jak patronów,\
 Których wszystkie tułactwa, wyprawy i bitwy\
 Były ewangeliją narodową Litwy.
 
