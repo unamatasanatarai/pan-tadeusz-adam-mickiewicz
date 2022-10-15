@@ -1,3 +1,4 @@
+I smycz tkany jedwabny, którego robota\
 Równie cudna jak kamień, co się na nim świeci.\
 Chciałem ten sprzęt zostawić w dziedzictwie dla dzieci,\
 Jeślibym się ożenił: ten sprzęt mnie darował\
