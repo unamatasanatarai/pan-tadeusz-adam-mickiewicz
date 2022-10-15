@@ -1,3 +1,4 @@
+Het za morze, Moskalom zapewne wygodzi;\
 Ale co stąd wyniknie, wie asan dobrodziéj?\
 Oto, szlachta litewska wtenczas na koń wsiędzie\
 I szable weźmie, kiedy bić się z kim nie będzie;\
