@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ten Major, Polak rodem z miasteczka Dzierowicz,\
 Nazywał się (jak słychać) po polsku Płutowicz,\
 Lecz przechrzcił się; łotr wielki, jak się zwykle dzieje\
 Z Polakiem, który w carskiej służbie zmoskwicieje.\
