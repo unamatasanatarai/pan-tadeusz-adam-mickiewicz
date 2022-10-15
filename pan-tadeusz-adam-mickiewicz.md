@@ -1,3 +1,4 @@
+Odkrył od razu wielką, straszną tajemnicę —\
 Przebóg! naróżowana!
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Czy róż w złym gatunku,\
