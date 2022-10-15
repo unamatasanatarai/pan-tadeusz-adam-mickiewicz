@@ -1,3 +1,4 @@
+Hrabia nie pojął; nie znał wiejskiego zwyczaju:\
 Więc zdziwiony niezmiernie biegł pędem do gaju.
 
 Grzybów było w bród. Chłopcy biorą krasnolice,\
