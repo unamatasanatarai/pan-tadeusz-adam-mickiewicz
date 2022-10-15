@@ -1,3 +1,4 @@
+Biegłem tuż za niedźwiedziem; a pan Wojski woła:\
 »Stój na miejscu!« Jak tam stać? Niedźwiedź w pole wali,\
 Rwąc z kopyta jak zając coraz daléj, daléj;\
 Aż mi ducha nie stało, dobiec ni nadziei,\
