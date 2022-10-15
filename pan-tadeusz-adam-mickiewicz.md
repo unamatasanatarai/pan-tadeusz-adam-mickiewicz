@@ -1,3 +1,4 @@
+Zajaśniały na wzgórkach, spadają na błonie:\
 Konnica! Dziwne stroje, niewidziane bronie!\
 Pułk za pułkiem; a środkiem, jak stopione śniegi,\
 Płyną drogami kute żelazem szeregi;\
