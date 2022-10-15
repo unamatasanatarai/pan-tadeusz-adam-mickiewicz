@@ -1,3 +1,4 @@
+Ze środka głów, wyskoczył w góre słup błyszczący:\
 Był to rapier sążnistej długości, szeroki\
 Na całą piędź, a sieczny na obadwa boki,\
 Widocznie miecz teutoński z norymberskiej stali\
