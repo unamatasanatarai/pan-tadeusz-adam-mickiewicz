@@ -1,3 +1,4 @@
+Pozostały ostatni z Horeszki dworzanów;\
 Starzec wysoki, siwy, twarz miał czerstwą, zdrową,\
 Zmarszczkami pooraną, posępną, surową.\
 Dawniej pomiędzy szlachtą z wesołości słynął;\
