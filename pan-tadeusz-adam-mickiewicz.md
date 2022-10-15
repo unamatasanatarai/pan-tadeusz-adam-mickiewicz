@@ -1,3 +1,4 @@
+Wyglądała za parkan nad trójkąt Rykowa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ku tej sernicy Wojski z Woźnym milczkiem idą,\
 Każdy zbrojny ogromnym drągiem jakby dzidą;\
