@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na stołkach dokoła\
 Siedziały chłopy, chłopki tudzież szlachta drobna,\
 Wszyscy rzędem; ekonom sam siedział z osobna.\
