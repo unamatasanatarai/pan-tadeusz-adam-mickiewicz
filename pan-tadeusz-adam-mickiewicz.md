@@ -1,3 +1,4 @@
+Na zachód obłok na kształt rąbkowych firanek,\
 Przejrzysty, sfałdowany, po wierzchu perłowy,\
 Po brzegach pozłacany, w głębi purpurowy,\
 Jeszcze blaskiem zachodu tlił się i rozżarzał,\
