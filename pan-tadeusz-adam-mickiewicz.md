@@ -1,3 +1,4 @@
+A któż wojsko opłaci? czy nie wy, Litwini?\
 Wy tylko grosz dajecie do moskiewskiej skrzyni».\
 «Kat by dał — krzyknął Wilbik — gwałtem od nas biorą».\
 «Oj, dobrodzieju — chłopek ozwał się z pokorą,\
