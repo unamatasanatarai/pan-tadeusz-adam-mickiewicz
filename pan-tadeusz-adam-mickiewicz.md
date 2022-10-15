@@ -1,3 +1,4 @@
+I tą laską z kolei jako mistrz obrzędu,\
 Wskazuje wszystkim miejsca i gości usadza.\
 Naprzód, jako najpierwsza województwa władza,\
 Podkomorzy-Marszałek wziął miejsce zaszczytne:\
