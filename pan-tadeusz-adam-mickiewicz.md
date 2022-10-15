@@ -1,3 +1,4 @@
+Szukają Tadeusza, który stał na stronie\
 I coś pilnego szeptał swojej przyszłej żonie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Zofio! muszę ciebie w bardzo ważnej rzeczy\
