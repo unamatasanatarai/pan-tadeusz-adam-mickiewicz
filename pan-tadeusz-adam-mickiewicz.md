@@ -1,3 +1,4 @@
+Przerażony zasadzką szereg w kłąb się zwija,\
 Cofa się, rzuca rannych; Chrzciciel ich dobija.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stodoła już daleko; bojąc się odwodu\
