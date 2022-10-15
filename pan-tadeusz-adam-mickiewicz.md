@@ -1,3 +1,4 @@
+I, wsparłszy się oburącz na gałkę słoniową\
 Trzciny ogromnej, z taką ozwał się przemową:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Widzi aśćka, od czasu jak tu u nas gości\
