@@ -1,3 +1,4 @@
+Na koniec w Soplicowie, w swym ojczystym gnieździe,\
 Gdy gotował powstanie zginął na zajeździe.\
 Właśnie o jego śmierci nadeszła wiadomość\
 Do Warszawy w tę chwilę, gdy cesarz jegomość\
