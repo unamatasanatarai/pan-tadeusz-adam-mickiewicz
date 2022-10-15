@@ -1,3 +1,4 @@
+Dąb, włożywszy pięć wieków na swój kark garbaty,\
 Wspiera się, jak na grobów połamanych słupach,\
 Na dębów, przodków swoich, skamieniałych trupach.
 
