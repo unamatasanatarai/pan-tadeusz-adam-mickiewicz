@@ -1,3 +1,4 @@
+Ściany dymne i brudne jak czarna opona,\
 A z przodu rzeźba sterczy jak cyces na czole.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W środku karczmy jest podział jak w żydowskiej szkole:\
