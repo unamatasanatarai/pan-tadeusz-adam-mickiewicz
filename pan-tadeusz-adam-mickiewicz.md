@@ -1,3 +1,4 @@
+Wreszcie wracają, z wolna skacząc przez zagony,\
 Spuściły uszy, tulą do brzucha ogony\
 I przybiegłszy, ze wstydu nie śmieją wznieść oczu,\
 I zamiast iść do panów, stały na uboczu.
