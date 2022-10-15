@@ -1,3 +1,4 @@
+Wysokie czoła, czarne oczy, orle nosy;\
 Z Dobrzyńskiej ziemi ród swój starożytny wiedli,\
 A choć od lat czterystu na Litwie osiedli,\
 Zachowali mazurską mowę i zwyczaje.\
