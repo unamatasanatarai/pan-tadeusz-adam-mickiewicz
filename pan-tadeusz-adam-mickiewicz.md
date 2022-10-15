@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Woźny już dawniej wyszedł ku domowi Hrabi.\
 Jak lis bywalec, gdy go woń słoniny wabi,\
 Bieży ku niej, a strzelców zna fortele skryte,\
 Bieży, staje, przysiada coraz, wznosi kitę\
