@@ -1,3 +1,4 @@
+Wiwat wojsko, wiwat lud, wiwat wszystkie stany!»\
 Tysiącem głosów, zdrowia grzmiały na przemiany.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tylko Buchman radości podzielać nie raczył;\
