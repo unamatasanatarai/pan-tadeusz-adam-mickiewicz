@@ -1,3 +1,4 @@
+Niech we krwi wrogów nasze utoną urazy!\
 Nie będziem się zbójczymi rozpierać żelazy;\
 Niech się inaczej spór nasz zalotny roztrzygnie:\
 Walczmy, kto kogo czuciem miłości wyścignie!\
