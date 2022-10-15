@@ -1,3 +1,4 @@
+Napoleon sam wszystkich pobiwszy, nareszcie\
 Powie: »Obejdę się ja bez was, kto jesteście?«\
 Więc nie dość gościa czekać, nie dość i zaprosić,\
 Trzeba czeladkę zebrać i stoły pownosić,\
