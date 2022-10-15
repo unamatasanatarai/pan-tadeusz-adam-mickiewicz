@@ -1,3 +1,4 @@
+Że Wojski wciąż gra jeszcze, a to echo grało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zadął znowu. Myśliłbyś, że róg kształty zmieniał\
 I że w ustach Wojskiego to grubiał, to cieniał,\
