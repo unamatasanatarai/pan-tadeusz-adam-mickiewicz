@@ -1,3 +1,4 @@
+We wzroku ducha pełnym błyszczał żar młodzieńca,\
 Aż gdy na Dąbrowskiego starzec oczy zwrócił,\
 Zakrył rękami, spod rąk łez potok się rzucił:\
 «Jenerale — rzekł — ciebie długo Litwa nasza\
