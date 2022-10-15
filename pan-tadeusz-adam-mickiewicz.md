@@ -1,3 +1,4 @@
+Nie wiedzieć pewnie, czyli ze szlachty pochodził,\
 Lecz o to nie pytano; i wszyscy Buchmana\
 Szacowali, iż służył u wielkiego pana,\
 Był dobry patryjota i pełen nauki,\
