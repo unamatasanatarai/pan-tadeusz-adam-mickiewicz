@@ -1,3 +1,4 @@
+I jeśli będzie wolna, poproszę o rękę.\
 Teraz porzucam Litwę może na czas długi,\
 Może Zosi tymczasem podobać się drugi;\
 Więzić jej woli nie chcę; prosić o wzajemność,\
