@@ -1,3 +1,4 @@
+Poznajmy z sobą państwo młodych, będziem zważać;\
 Nie można szczęścia drugich tak na traf narażać.\
 Ostrzegam tylko wcześnie: niech brat Tadeusza\
 Nie namawia, kochać się w Zosi nie przymusza;\
