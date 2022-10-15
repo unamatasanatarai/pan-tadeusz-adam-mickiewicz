@@ -1,3 +1,4 @@
+Biesiadę godną miłych sercom polskim gości\
 I odpowiedną wielkiej dnia uroczystości,\
 Co jest świętem kościelnym i świętem rodziny:\
 Jutro odbyć się mają trzech par zaręczyny.\
