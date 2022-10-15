@@ -1,3 +1,4 @@
+«Jak to? — rzekł — czyś z rozumu obrana? gdzie? po co?\
 Jechać za mną? Ja, będąc sam prostym żołnierzem,\
 Włóczyć, czy markietankę?» — «To my się pobierzem»\
 Rzekła mu Telimena. «Nie, nigdy! — zawoła\
