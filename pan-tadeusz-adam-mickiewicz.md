@@ -1,3 +1,4 @@
+Stał dwór szlachecki, z drzewa, lecz podmurowany;\
 Świeciły się z daleka pobielane ściany,\
 Tym bielsze, że odbite od ciemnej zieleni\
 Topoli, co go bronią od wiatrów jesieni.\
