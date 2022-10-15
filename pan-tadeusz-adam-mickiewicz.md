@@ -1,3 +1,4 @@
+Prawą rękę poważnie na zegar położył,\
 A lewą wziął się pod bok. Tak oburącz wsparty,\
 «Podkomorzeńku! — krzyknął — wolne pańskie żarty,\
 Wróbel mniejszy niż puszczyk, a na swoich wiorach\
