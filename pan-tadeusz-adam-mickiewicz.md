@@ -1,3 +1,4 @@
+Napoleon już idzie! i my już czekali!\
 Gadano: już w Koronie, już Prusaka pobił,\
 Wkracza do nas! A on! co? pokój w Tylży zrobił!\
 Czy tylko prawda? Czy ty nie zwodzisz sam siebie?»\
