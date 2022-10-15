@@ -1,3 +1,4 @@
+I worek kul; wsypał je do swego szturmaka,\
 Drugi, równie nabiwszy, ustąpił dla Saka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jegrów więcej przybywa. Mieszają się, tłuką;\
