@@ -1,3 +1,4 @@
+Czyż nie piękniejsze stokroć wiatr i niepogoda?\
 U nas dość głowę podnieść: ileż to widoków!\
 Ileż scen i obrazów z samej gry obłoków!\
 Bo każda chmura inna: na przykład jesienna\
