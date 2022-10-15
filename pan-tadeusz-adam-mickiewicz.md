@@ -1,3 +1,4 @@
+Niech lepiej niedźwiedź czeka pośród tych rogaczy,\
 Aż mi go Sędzia razem z zamkiem oddać raczy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy zgadując, na co się zanosi,\
