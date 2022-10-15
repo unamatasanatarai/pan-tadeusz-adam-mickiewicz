@@ -1,3 +1,4 @@
+Bo on szybuje w trawie jako szczupak w Niemnie;\
 Tam ozwał się nad głową ranny wiosny dzwonek,\
 Również głęboko w niebie schowany skowronek;\
 Ówdzie orzeł szerokim skrzydłem przez obszary\
