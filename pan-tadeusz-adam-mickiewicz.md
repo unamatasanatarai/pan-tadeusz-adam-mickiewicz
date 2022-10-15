@@ -1,3 +1,4 @@
+Prócz tego za wczorajszy niegrzeczny uczynek\
 Musi mnie deprekować, albo pojedynek!»\
 «Ale Sędzio, cóż będzie, jak się Jacek dowie?\
 Wszak on umrze z rozpaczy! Czyliż Soplicowie\
