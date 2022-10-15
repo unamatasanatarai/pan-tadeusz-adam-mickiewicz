@@ -1,3 +1,4 @@
+A młodzież na dziedzińcu biła się w palcaty,\
 Lub ujeżdżała pańskie tureckie bachmaty».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Weszli w sień. Rzekł Gerwazy: «W tej ogromnej sieni\
