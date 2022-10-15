@@ -1,3 +1,4 @@
+To mi tabaka, co to idzie aż do czuba!\
 Od czasu jak nos dźwigam (tu głasnął nos długi)\
 Takiej nie zażywałem (tu kichnął raz drugi);\
 Prawdziwa bernardynka, pewnie z Kowna rodem,\
