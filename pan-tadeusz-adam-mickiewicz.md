@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Zofio! muszę ciebie w bardzo ważnej rzeczy\
 Radzić się; już pytałem stryja, on nie przeczy.\
 Wiesz, iż znaczna część wiosek które mam posiadać,\
