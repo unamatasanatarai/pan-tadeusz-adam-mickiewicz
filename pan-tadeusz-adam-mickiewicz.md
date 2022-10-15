@@ -1,3 +1,4 @@
+Grzmiały ze środka puszczy. Strzelcy — ci w las śpieszą,\
 Tamci kurki odwodzą, a wszyscy się cieszą;\
 Jeden Wojski w żałości, krzyczy, że chybiono.\
 Strzelcy i obławnicy poszli jedną stroną\
