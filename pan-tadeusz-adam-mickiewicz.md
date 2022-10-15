@@ -1,3 +1,4 @@
+Więc kto będzie śmiał Jacka zmarłego rodzinie\
 Wspomnieć kiedy o dawnej zagładzonej winie,\
 Ten podpadnie za karę takiego wyrzutu,\
 Gravis notæ maculæ, wedle słów Statutu\
