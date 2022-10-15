@@ -1,3 +1,4 @@
+A potem do folwarku wybrał się na zwiady,\
 Szukając sług, żeby się rozpytać o Hrabię.\
 W pustym folwarku ledwie wynalazł dwie babie,\
 Od których słyszy, że pan i dworska drużyna\
