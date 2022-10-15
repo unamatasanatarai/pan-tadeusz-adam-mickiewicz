@@ -1,3 +1,4 @@
+I dziecko co się lula, i zucha co hula!\
 Ach! ach! Majorze, dzisiaj żyjem, jutro gnijem,\
 To tylko nasze, co dziś zjemy i wypijem!\
 Panie Sędzio, wszakże to czas podobno śniadać?\
