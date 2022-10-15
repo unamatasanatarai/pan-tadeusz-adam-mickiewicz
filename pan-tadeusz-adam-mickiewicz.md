@@ -1,3 +1,4 @@
+A jenerał Dąbrowski wpada do Poznania\
 I cesarski przynosi rozkaz: do powstania!\
 W tydzień jeden tak lud nasz Prusaków wychłostał\
 I wygnał, na lekarstwo Niemca byś nie dostał!\
