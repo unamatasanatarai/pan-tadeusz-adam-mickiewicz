@@ -1,3 +1,4 @@
+Plac zajęli. Pan Wojski, jakby przebudzony\
 Z głębokiego dumania, w środku się postawił,\
 Wąsy siwe pokręcił, kapoty poprawił,\
 Iskrzyły mu się oczy (zawżdy postrzegano\
