@@ -1,3 +1,4 @@
+Ja cię tu zaraz po tych zauszniczkach płatnę.\
 Fora za drzwi! Do korda! Tomasz, karabelę!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem do Podkomorzego skoczą przyjaciele;\
