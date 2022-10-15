@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Czy ktoś Zosi poradził wyjść w takiej sukience,\
 Czy instynktem wiedziała (bo dziewczyna zgadnie\
 Zawsze instynktem, co jej do twarzy przypadnie):\
