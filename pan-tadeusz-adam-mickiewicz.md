@@ -1,3 +1,4 @@
+Mamy dosyć zwierzyny dla nas i sąsiedztwa,\
 I nie będziemy nigdy o to robić śledztwa;\
 I zboża mamy dosyć, psy nas nie ogłodzą,\
 Że po jarzynach albo po życie pochodzą:\
