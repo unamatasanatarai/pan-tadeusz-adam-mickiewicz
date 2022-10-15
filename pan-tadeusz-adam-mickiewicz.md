@@ -1,3 +1,4 @@
+Na znak, że nie odmawia; więc go w środek wiodą,\
 Podają krzesło, usiadł, cymbały przynoszą,\
 Kładą mu na kolanach. On patrzy z rozkoszą\
 I z dumą: jak weteran w służbę powołany,\
