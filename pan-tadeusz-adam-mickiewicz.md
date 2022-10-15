@@ -1,3 +1,4 @@
+Wojna z Rosyją jeszcze nieprędko się zacznie;\
 Tymczasem, kto miał udział najczynniejszy w bitwie,\
 Ten nie może bezpieczny zostać się na Litwie:\
 Musicie więc do Księstwa uciekać Panowie,\
