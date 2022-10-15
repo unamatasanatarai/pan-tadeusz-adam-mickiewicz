@@ -1,3 +1,4 @@
+Chart u nóg mych zadławił mojego kochanka\
 Bonończyka! Ach, była to rozkoszna psina,\
 Miałam ją w podarunku od księcia Sukina\
 Na pamiątkę; rozumna, żywa jak wiewiórka:\
