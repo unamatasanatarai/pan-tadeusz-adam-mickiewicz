@@ -1,3 +1,4 @@
+*Na koniec pada u nóg konika wiernego,*\
 *A konik nogą grzebie mogiłę dla niego.*\
 Piosenka stara, wojsku polskiemu tak miła!\
 Poznali ją żołnierze; wiara się skupiła\
