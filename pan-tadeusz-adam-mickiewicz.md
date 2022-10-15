@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Owe obłoki ranne, zrazu rozpierzchnione\
 Jak czarne ptaki, lecąc w wyższą nieba stronę,\
 Coraz się zgromadzały. Ledwie słońce zbiegło\
 Z południa, już ich stado pół niebios obiegło\
