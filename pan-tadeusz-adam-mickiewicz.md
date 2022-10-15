@@ -1,3 +1,4 @@
+Biega więc do Macieja starego po radę.\
 On koło wozów całą ustawia gromadę,\
 Każe czekać.
 
