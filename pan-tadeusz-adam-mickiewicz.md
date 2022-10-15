@@ -1,3 +1,4 @@
+On, czapkę zdjąwszy, wodza rękę ucałował.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poloneza czas zacząć. — Podkomorzy rusza\
 I z lekka zarzuciwszy wyloty kontusza,\
