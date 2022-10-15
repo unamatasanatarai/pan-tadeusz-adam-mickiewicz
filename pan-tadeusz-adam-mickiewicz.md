@@ -1,3 +1,4 @@
+Skąd mu się wzięła mina i wesołość taka.\
 Sędzia wnet kucharzowi powtórzył rozkazy:\
 Wniesiono wazę, cukier, butelki i zrazy.\
 Płut i Ryków tak czynnie zaczęli się zwijać,\
