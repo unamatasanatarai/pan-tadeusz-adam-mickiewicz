@@ -1,3 +1,4 @@
+Przysiągłbyś, że krzyk z zamku, że pod mgły zasłoną\
 Mury odbudowano i znów zaludniono.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia lubił widoki niezwykłe i nowe,\
