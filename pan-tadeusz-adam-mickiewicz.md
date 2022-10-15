@@ -1,3 +1,4 @@
+Doszli potem najwyższych krajowych urzędów,\
 Przynajmniej tom skorzystał, że mi w moim domu\
 Nikt nigdy nie zarzuci, bym uchybił komu\
 W uczciwości, w grzeczności; a powiem to śmiało,\
