@@ -1,3 +1,4 @@
+Z drugiego czarny trzewik; po bokach błyszcząca\
 Śnieżną pończoszką, chustką, białością rąk, lica,\
 Wydawała się z dala jak pstra gąsienica,\
 Gdy wpełźnie na zielony liść klonu.
