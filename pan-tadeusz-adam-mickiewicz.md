@@ -1,3 +1,4 @@
+Szlachta, już wolna, wpada na kwestarskie wozy;\
 Z nich dobywa rapiery, pałasze, tasaki,\
 Kosy, strzelby; Konewka znalazł dwa szturmaki\
 I worek kul; wsypał je do swego szturmaka,\
