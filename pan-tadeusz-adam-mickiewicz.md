@@ -1,3 +1,4 @@
+Odbijał bardzo pięknie, jak od zboża kłosów!\
 Zdjęto puderman, całe ubranie gotowe.\
 Zosia białą sukienkę wrzuciła przez głowę,\
 Chusteczkę batystową białą w ręku zwija,\
