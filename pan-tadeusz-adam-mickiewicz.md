@@ -1,3 +1,4 @@
+Na przykład zrobić małą podróż do stolicy,\
 Młodego chłopca na świat wielki wyprowadzić,\
 Kroki jego kierować, pomagać mu, radzić,\
 Serce mu kształcić, mieć w nim przyjaciela, brata,\
