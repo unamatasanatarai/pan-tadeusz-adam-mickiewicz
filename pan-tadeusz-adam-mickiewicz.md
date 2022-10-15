@@ -1,3 +1,4 @@
+I swe z tego powodu z Stolnikiem zatargi.\
 Lecz mówił nieporządnie, często mieszał skargi\
 I żale we swą spowiedź, często rzecz przecinał,\
 Jak gdyby już ją kończył, i znowu zaczynał.
