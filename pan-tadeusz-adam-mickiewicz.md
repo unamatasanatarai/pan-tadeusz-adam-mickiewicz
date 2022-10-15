@@ -1,3 +1,4 @@
+Wszyscy myśleli, że był ranny lub nieżywy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Widzę — rzekł Sędzia — że się na rozbój zanosi».\
 Jęknęli wszyscy; wszystkich zagłuszył wrzask Zosi,\
