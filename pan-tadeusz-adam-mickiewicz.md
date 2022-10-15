@@ -1,3 +1,4 @@
+Nie mogła w żaden sposób skończyć toalety:\
 Ledwie będzie gotowa na godzinę czwartą.
 
 
