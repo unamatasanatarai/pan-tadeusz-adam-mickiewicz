@@ -1,3 +1,4 @@
+Opaliłaś okropnie płeć, czysta Cyganka,\
 A chodzisz i ruszasz się jak parafijanka.\
 Już ja temu wszystkiemu na przyszłość zaradzę;\
 Od dziś zacznę, dziś ciebie na świat wyprowadzę,\
