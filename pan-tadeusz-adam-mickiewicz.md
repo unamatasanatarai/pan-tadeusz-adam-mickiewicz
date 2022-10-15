@@ -1,3 +1,4 @@
+W niej świeciły się białych serów mnogie kopy;\
 Wkoło zaś wahały się suszące się snopy\
 Szałwi, benedykty, kardy, macierzanki:\
 Cała zielna domowa apteka Wojszczanki.\
