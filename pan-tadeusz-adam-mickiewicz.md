@@ -1,3 +1,4 @@
+Bo rodzinę Sopliców miał jakby w dowództwie,\
 I trzystu ich kreskami rządził wedle woli,\
 Choć sam nic nie posiadał prócz kawałka roli,\
 Szabli i wielkich wąsów od ucha do ucha.\
