@@ -1,3 +1,4 @@
+Panna Wojska, włożywszy okulary sine,\
 Zabawiała kabałą z kart Podkomorzynę.\
 W drugiej izbie toczyła młodzież rzecz o łowach\
 W spokojniejszych i cichszych niż zwykle rozmowach:\
