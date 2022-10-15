@@ -1,3 +1,4 @@
+Będzie jasno w tym zamku, ciemno w waszym dworze!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy siadł na ziemi, oparł się o ścianę,\
 I pochylił ku piersiom czoło zadumane.\
