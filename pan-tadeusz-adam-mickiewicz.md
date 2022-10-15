@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wojski rzekł kłaniając się: «Nie, jaśnie wielmożny\
 Jenerale, nie jest to żaden kunszt bezbożny!\
 Jest to pamiątka tylko owych biesiad sławnych,\
 Które dawano w domach panów starodawnych,\
