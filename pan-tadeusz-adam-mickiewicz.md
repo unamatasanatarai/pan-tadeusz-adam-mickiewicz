@@ -1,3 +1,4 @@
+I przez okno wyjrzawszy, raz jeszcze rzekł: «Głupi!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem się szlachta do Hrabiego kupi\
 Idą w karczmę. Gerwazy wspomniał dawne czasy:\
