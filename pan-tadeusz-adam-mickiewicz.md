@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Słysząc to Major wstaje i od gniewu parska:\
 «Czy ty oszalał, Ryków? To służba cesarska:\
 A służba nie jest drużba, stary, głupi Ryków!\
