@@ -1,3 +1,4 @@
+Nie chcą bawić się, ni grać, siedzą, cicho w kątkach,\
 Mężczyźni palą lulki, kobiety przy prątkach;\
 Nawet śpią muchy.
 
