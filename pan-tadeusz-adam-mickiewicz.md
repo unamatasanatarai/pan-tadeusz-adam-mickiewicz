@@ -1,3 +1,4 @@
+Gryzie go; zawiesiła kitkę nad oczyma,\
 Jak pióro nad szyszakiem u kirasyjera:\
 Chociaż tak osłoniona, dokoła spoziera,\
 Dostrzegłszy gościa, skacze gajów tanecznica\
