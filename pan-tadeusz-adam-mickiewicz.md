@@ -1,3 +1,4 @@
+«Stryjaszku dobrodzieju — rzekł — ledwie dni kilka\
 Przebawiłem tu, dni te minęły jak chwilka;\
 Nie miałem czasu z twoim domem się nacieszyć\
 I z tobą, a odjeżdżać muszę, muszę spieszyć\
