@@ -1,3 +1,4 @@
+Smyknął szarak; już Kusy, już go Sokół goni.\
 Psy wzięto na obławę wiedząc, że z powrotem\
 Na polu łatwo można napotkać się z kotem;\
 Bez smyczy szły przy koniach; gdy kota spostrzegły,\
