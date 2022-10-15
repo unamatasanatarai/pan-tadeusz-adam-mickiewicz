@@ -1,3 +1,4 @@
+Dokładniej go rozwinąć, jaśniej wytłumaczyć,\
 A naprzód komisyją legalnie wyznaczyć,\
 Która by rozważyła emigracji cele,\
 Środki, sposoby, tudzież innych względów wiele.\
