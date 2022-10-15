@@ -1,3 +1,4 @@
+Siedzą wokoło wody jak czarownic kupa\
 Grzejąca się nad kotłem, w którym warzą trupa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za tymi jeziorkami już nie tylko krokiem,\
