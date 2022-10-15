@@ -1,3 +1,4 @@
+Pochodzę, a mam krzyże nad herbem Korabiów».\
 «Poraj — krzyknął Mickiewicz — z mitrą w polu złotym,\
 Herb książęcy, Stryjkowski gęsto pisze o tym».
 
