@@ -1,3 +1,4 @@
+Ustał już wszelki opór w Soplicowskim dworze.\
 Szlachta głodna plądruje, zabiera co może:\
 Kropiciel, stanowisko zająwszy w oborze,\
 Jednego wołu i dwa cielce w łby zakropił,\
