@@ -1,3 +1,4 @@
+W domu Sędziego, w którym dosyć często bywał,\
 Lecz mało ją uważał: zadziwił się zrazu,\
 Rozeznając w niej model swojego obrazu.\
 Miejsca piękność, postawy wdzięk i gust ubrania\
