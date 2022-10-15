@@ -1,3 +1,4 @@
+Dostrzegłszy gościa, skacze gajów tanecznica\
 Z drzew na drzewa, miga się jako błyskawica;\
 Na koniec w niewidzialny otwór pnia przepada,\
 Jak wracająca w drzewo rodzime dryjada.\
