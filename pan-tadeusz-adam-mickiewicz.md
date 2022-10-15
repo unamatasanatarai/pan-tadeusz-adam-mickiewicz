@@ -1,3 +1,4 @@
+Drogich piórek, były to białych czapel czuby\
 (Na fest kładzie się tylko kitka tak bogata,\
 Której każde pióreczko kosztuje dukata).\
 Tak ubrany, na wzgórek wstąpił przed kościołem,\
