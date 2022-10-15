@@ -1,3 +1,4 @@
+I skubie go po kudłach; zwierz zwraca się czasem,\
 Spojrzy, klapnie paszczęką i białych kłów zgrzytem\
 Ledwie pogrozi; psiarnia pierzcha ze skowytem:\
 Tak i Gerwazy z groźną cofał się postawą,\
