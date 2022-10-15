@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ruszyli szczwacze z wolna, jeden tuż za drugim;\
 Ale za bramą rzędem rozbiegli się długim.\
 W środku jechali obok Asesor z Rejentem;\
 A choć na siebie czasem patrzyli ze wstrętem,\
