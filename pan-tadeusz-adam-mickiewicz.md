@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Jacku! zawołał Klucznik, mądre ty przyczyny\
 Wynajdujesz: cóż? one nie zmniejszą twej winy!\
 Bo wszakże zdarzało się już nieraz na świecie,\
 Że kto pokochał pańskie lub królewskie dziecię,\
