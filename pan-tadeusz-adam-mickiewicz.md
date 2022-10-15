@@ -1,3 +1,4 @@
+Chwycił je, ucałował, z radości podskoczył,\
 Zakręcił je nad głową i zaraz ubroczył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Co potem dokazywał, jakie klęski szerzył,\
