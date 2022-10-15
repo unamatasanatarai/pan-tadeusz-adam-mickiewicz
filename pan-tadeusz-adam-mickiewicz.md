@@ -1,3 +1,4 @@
+I spał twardo, aż zimny wiatr w oczy mu wionął,\
 Gdy skrzypiące stodoły drzwi otwarto z trzaskiem,\
 I bernardyn, ksiądz Robak, wszedł z węzlastym paskiem,\
 «Surge puer!» wołając i ponad barkami\
