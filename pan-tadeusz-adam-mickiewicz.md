@@ -1,3 +1,4 @@
+I zaczynali z Niemcem dyskurs nazbyt żwawy.\
 Szczęściem, książę jenerał przerwał te rozprawy,\
 Godząc ich po francusku: co tam gadał, nie wiem,\
 Ale ta zgoda był to popiół nad zarzewiem.\
