@@ -1,3 +1,4 @@
+Mordując nieprzyjaciół, ten z góry, ten z dołu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Kropiciel już pewne porzuca zwycięstwo;\
 Bieży na prawe skrzydło, gdzie niebezpieczeństwo\
