@@ -1,3 +1,4 @@
+Strach wam turmy! Czyż to ja wzywam na rozboje?\
 Broń Boże! Szlachta Bracia! ja przy prawie stoję.\
 Wszak Hrabia wygrał, zyskał dekretów niemało:\
 Tylko je egzekwować! Tak dawniej bywało:\
