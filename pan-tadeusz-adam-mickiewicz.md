@@ -1,3 +1,4 @@
+Dla wróblów: spada z dachów krzykliwa hołota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy się staruszek bawił widokiem biesiady,\
 Nagle króliki znikły w ziemi, a gromady\
