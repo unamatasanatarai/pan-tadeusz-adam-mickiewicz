@@ -1,3 +1,4 @@
+Szepnęły wiotkim skrzydłem nietoperze, lecą\
 Pod dom, gdzie szyby okien, twarze ludzi świecą;\
 Bliżej zaś nietoperzów siostrzyczki, ćmy, rojem\
 Wiją się przywabione białym kobiet strojem;\
