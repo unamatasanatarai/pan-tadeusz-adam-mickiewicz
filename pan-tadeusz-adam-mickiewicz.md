@@ -1,3 +1,4 @@
+To mówiąc, półgarcówką przepił do Klucznika.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Prawda! prawda! — rzekł na to Gerwazy wzruszony. —\
 Dziwneć to były losy tej naszej Korony\
