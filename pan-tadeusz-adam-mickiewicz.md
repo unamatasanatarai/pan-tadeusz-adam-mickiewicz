@@ -1,3 +1,4 @@
+Ledwie widna z daleka. Na wielkim obszarze\
 Zarosłego dziedzińca, w zielonej sukience,\
 Ustrojona w równianki i w kwieciste wieńce,\
 Śród traw i kwiatów krąży niewidzialnym lotem,\
