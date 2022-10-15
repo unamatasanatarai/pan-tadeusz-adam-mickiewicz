@@ -1,3 +1,4 @@
+Ale skoro Chrystus Pan, choć z królów pochodził,\
 Między Żydami w chłopskiej stajni się urodził,\
 Odtąd więc wszystkie stany porównał i zgodził;\
 Niech i tak będzie, kiedy inaczej nie można!\
