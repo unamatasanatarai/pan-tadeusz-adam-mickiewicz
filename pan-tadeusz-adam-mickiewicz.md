@@ -1,3 +1,4 @@
+Na koniec, gryząc palce, do krwi się zadrasnął\
 I na cały głos: «Dobrze, dobrze mi tak!» wrzasnął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;We dworze, gdzie przed chwilą tyle było krzyku,\
