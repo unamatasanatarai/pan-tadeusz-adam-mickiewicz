@@ -1,3 +1,4 @@
+Zaś godna jest waszmościów uwagi osobnej\
 Grzeczność, którą powinna młodź dla płci nadobnej;\
 Zwłaszcza gdy zacność domu, fortuny szczodroty\
 Objaśniają wrodzone wdzięki i przymioty.\
