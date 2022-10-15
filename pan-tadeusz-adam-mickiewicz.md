@@ -1,3 +1,4 @@
+A czegoż ty się chowasz za jegrów kołnierzem?\
 Nie tchórzę ja przed tobą: wynidź no zza płotów;\
 Dostałeś w twarz, jam przecie bić się z tobą gotów!\
 Po co krwi rozlew? Między nami była zwada:\
