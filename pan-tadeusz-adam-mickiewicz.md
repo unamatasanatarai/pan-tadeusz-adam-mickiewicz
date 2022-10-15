@@ -1,3 +1,4 @@
+Teraz, jakby odarte od wichrów i szronu,\
 Stoją nagie: były to laski cynamonu,\
 Lub udające sosnę gałązki wawrzynu,\
 Odziane zamiast kolców ziarenkami kminu.
