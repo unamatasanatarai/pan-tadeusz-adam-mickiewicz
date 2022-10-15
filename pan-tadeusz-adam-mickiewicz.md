@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Pani — rzekł Hrabia — racz mej śmiałości darować;\
 Przychodzę i przepraszać, i razem dziękować.\
 Przepraszać, że jej kroków śledziłem ukradkiem;\
