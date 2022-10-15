@@ -1,3 +1,4 @@
+A wiesz pan, że kto zbrojnie śmie napadać w nocy,\
 Zastrzeżono tysiącznym dwóchsetnym ukazem,\
 Że jak zło...» Wtem go Hrabia w twarz uderzył płazem.\
 Padł zgłuszony Asesor i skrył się w pokrzywy;\
