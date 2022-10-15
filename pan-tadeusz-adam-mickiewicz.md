@@ -1,3 +1,4 @@
+Po tym miejscu biegało domysłów tysiące,\
 Jako po deszczu żabki na samotnej łące;\
 Śród nich jedna króluje postać, jak w pogodę\
 Lilia jezior skroń białą wznosząca nad wodę.
