@@ -1,3 +1,4 @@
+Lecz niechaj ukształcona, dorosła panienka,\
 Nagle ni stąd, ni zowąd przed światem zabłyśnie,\
 Wtenczas każdy się do niej przez ciekawość ciśnie,\
 Wszystkie jej ruchy, rzuty oczu jej uważa,\
