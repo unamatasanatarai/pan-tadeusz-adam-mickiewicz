@@ -1,3 +1,4 @@
+Pokręcony, schowany w drobne strączki białe,\
 Dziwnie ozdabiał głowę: bo od słońca blasku\
 Świecił się jak korona na świętych obrazku.\
 Twarzy nie było widać; zwrócona na pole\
