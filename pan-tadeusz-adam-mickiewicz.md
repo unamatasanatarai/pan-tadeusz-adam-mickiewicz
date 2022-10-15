@@ -1,3 +1,4 @@
+Wszak wiecie waćpanowie, jak królowa Dydo\
 Przypłynęła do Libów i tam z wielką biédą\
 Wytargowała sobie taki ziemi kawał,\
 Który by się wołową skórą nakryć dawał:\
