@@ -1,3 +1,4 @@
+Przypomnij tylko sobie, kto tu u nas bywał:\
 Pleban, co pacierz mruczał lub w warcaby grywał,\
 I palestra z fajkami! To mi kawalery!\
 Nabrałabyś się od nich pięknej manijery.\
