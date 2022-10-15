@@ -1,3 +1,4 @@
+Spojrzał ku niebu i rzekł: «Synu! z Panem Bogiem!»\
 I zapłakał... A już był Tadeusz za progiem.\
 «Jak to? — zapytał Sędzia — nic mu brat nie powie\
 I teraz? Biedny chłopiec, jeszcze się nie dowie\
