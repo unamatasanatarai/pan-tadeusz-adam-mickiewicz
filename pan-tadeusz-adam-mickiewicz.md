@@ -1,3 +1,4 @@
+A kto schyla się ku nim, gdy błąd swój obaczy,\
 Zagniewany, grzyb złamie albo nogą kopnie:\
 Tak szpecąc trawę, czyni bardzo nieroztropnie.
 
