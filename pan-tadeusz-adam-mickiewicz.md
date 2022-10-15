@@ -1,3 +1,4 @@
+Spowiły ciasno jako niemowlę w pieluchy.\
 Zląkł się jeszcze okropniej, wnet oko zawiera,\
 Leży nie dysząc, stygnie, ledwie nie umiera!
 
