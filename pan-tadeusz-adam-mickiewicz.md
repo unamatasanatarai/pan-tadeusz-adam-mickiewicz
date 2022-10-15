@@ -1,3 +1,4 @@
+Szczuć wiosną łanię kotną tuż pod carskim nosem?«\
 Osłupiały czynownik darmo się zaklinał,\
 Że polowania dotąd jeszcze nie zaczynał,\
 Że z wielkiego łowczego wielkim pozwoleniem,\
