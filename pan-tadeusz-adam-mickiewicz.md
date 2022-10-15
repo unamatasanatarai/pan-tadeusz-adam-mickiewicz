@@ -1,3 +1,4 @@
+I cóż kochana Zosiu?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na to Zosia rzecze,\
 Wznosząc głowę i patrząc w oczy mu nieśmiało:\
