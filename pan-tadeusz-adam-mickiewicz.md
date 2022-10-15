@@ -1,3 +1,4 @@
+Rządząc tańcem, jak anioł nocnych gwiazd obrotem.\
 Zgadniesz gdzie jest: bo ku niej obrócone oczy,\
 Wyciągnięte ramiona, ku niej zgiełk się tłoczy.\
 Darmo się Podkomorzy zostać przy niej sili:\
