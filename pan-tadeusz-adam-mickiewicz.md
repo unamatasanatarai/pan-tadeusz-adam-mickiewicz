@@ -1,3 +1,4 @@
+Piłem, nie mogłem zapić pamięci na chwilę,\
 Ani pozbyć się, chociaż przebiegłem ziem tyle!\
 Teraz oto w habicie jestem Bożym sługą,\
 Na łożu, we krwi... o niej mówiłem tak długo! —\
