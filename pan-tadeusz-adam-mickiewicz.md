@@ -1,3 +1,4 @@
+Pod nim pierś jako pączek pod listkiem się tuli.\
 Od ramion świecą białe rękawy koszuli,\
 Jako skrzydła motyle do lotu wydęte,\
 U dłoni skarbowane i wstążką opięte.\
