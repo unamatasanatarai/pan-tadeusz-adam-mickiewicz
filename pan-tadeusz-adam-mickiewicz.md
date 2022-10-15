@@ -1,3 +1,4 @@
+Tu znajdziesz pono mitry i w niejednym domu».\
 «Waść ma krzyż w herbie — wołał Podhajski — to skryta\
 Aluzyja, że w rodzie bywał neofita».\
 «Fałsz — przerwał Birbasz — Przecież ja z tatarskich hrabiów\
