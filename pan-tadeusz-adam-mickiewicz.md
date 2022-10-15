@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;W Soplicowie domowi i goście, po kłótni\
 Wczorajszej, wstali z siebie nieradzi i smutni.\
 Próżno Wojszczanka damy na kabałę sprasza,\
 Mężczyznom próżno karty dają do mariasza:\
