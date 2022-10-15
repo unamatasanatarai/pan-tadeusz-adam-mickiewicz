@@ -1,3 +1,4 @@
+Nieba włoskiego! Stąd też w kunszcie pejzażów,\
 Włochy były, są, będą, ojczyzną malarzów!\
 Stąd też, oprócz Brejgela (lecz nie van der Helle,\
 Ale pejzażysty: bo są dwaj Brejgele)\
