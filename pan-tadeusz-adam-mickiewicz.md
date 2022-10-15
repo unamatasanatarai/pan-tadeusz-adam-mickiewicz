@@ -1,3 +1,4 @@
+Roją się nieźliczone piechoty mrowiska.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wszyscy na północ: rzekłbyś, że w on czas z wyraju\
 Za ptastwem i lud ruszył do naszego kraju,\
