@@ -1,3 +1,4 @@
+I liścia makowego nasypie pod głowę.\
 Miejsce piękne i ciche: tu się często schrania\
 Telimena, zowiąc je *Świątynią dumania*.
 
