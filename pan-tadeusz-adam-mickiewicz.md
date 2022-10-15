@@ -1,3 +1,4 @@
+I słysząc zaklętego chłopca skargę głośną,\
 Każdy ptak chłopcu jedno pióro rzucił:\
 On zrobił skrzydła i do swoich wrócił...
 
