@@ -1,3 +1,4 @@
+Gdzie pójdzie, kiedy gdzie iść, my nie wiemy sami?\
 Bracia szlachta! Panowie! potrzeba rozsądku!\
 Dobrodzieje! potrzeba ładu i porządku!\
 Chcecie wojny, więc zróbmy konfederacyją;\
