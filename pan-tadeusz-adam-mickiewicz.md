@@ -1,3 +1,4 @@
+Także z drzewa, gotyckiej naśladowstwo sztuki.\
 Z wierzchu ozdoby sztuczne, nie rylcem, nie dłutem,\
 Ale zręcznie ciesielskim wyrzezane sklutem,\
 Krzywe jak szabasowych ramiona świeczników;\
