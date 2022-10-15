@@ -1,3 +1,4 @@
+Jak pomnim wszystko, co nas otaczało:\
 Od lipy, która koroną wspaniałą\
 Całej wsi dzieciom użyczała cienia,\
 Aż do każdego strumienia, kamienia,\
