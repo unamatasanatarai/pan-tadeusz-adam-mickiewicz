@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Daremnie broniło się serce Tadeusza;\
 Ulitował się, uczuł że go żal porusza.\
 Długo poglądał niemy, ukryty za drzewem,\
