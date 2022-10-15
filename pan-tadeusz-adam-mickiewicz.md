@@ -1,3 +1,4 @@
+Mnie tylko pozostaje, w jedno zjąć ognisko\
 Rzucone trafne myśli i rozumowania:\
 Mam nadzieję w ten sposób sprzeczne zgodzić zdania.\
 Dwie części w dyskusyji całej uważałem;\
