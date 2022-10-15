@@ -1,3 +1,4 @@
+Ona wzdychała, ale ruszyła ramiony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Sędzia rzekł: «Mój Hrabio, śpiesz się, bo już późno,»\
 A ksiądz Robak «Dość tego! — wołał z miną groźną, —\
