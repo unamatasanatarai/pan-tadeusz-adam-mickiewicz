@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Za czym wielkie powstały w całej karczmie szmery.\
 Ksiądz bernardyn uciekł się do swej tabakiery;\
 W kolej częstował mówców. Gwar zaraz ucichnął;\
 Każdy zażył przez grzeczność i kilkakroć kichnął.\
