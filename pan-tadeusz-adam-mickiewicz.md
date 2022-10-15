@@ -1,3 +1,4 @@
+Wznosząc swe kształty lekkie, niewyraźne oku,\
 Jak duchy na wpół widne, na poły w obłoku.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Między stawami w rowie młyn ukryty siedzi.\
