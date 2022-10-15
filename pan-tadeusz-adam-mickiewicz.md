@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy, słysząc to, karabelę wznasza\
 I przez Woźnego pardon powszechny ogłasza;\
 Każe rannych opatrzyć, z trupów czyścić pole,\
