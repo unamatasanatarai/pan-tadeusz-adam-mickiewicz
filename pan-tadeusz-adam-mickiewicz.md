@@ -1,3 +1,4 @@
+Godni są szczwacze chartów, godne szczwaczów charty.\
 Otóż skończony spór wasz długi i zażarty;\
 Ja, któregoście sędzią zakładu obrali,\
 Wydaję wreszcie wyrok: obaście wygrali.\
