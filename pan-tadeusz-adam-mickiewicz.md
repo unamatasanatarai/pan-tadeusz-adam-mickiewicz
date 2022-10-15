@@ -1,3 +1,4 @@
+Dano mi dobra, wziąłem; kazał przyjąć Zosię,\
 Przyjąłem, hodowałem, myślę o jej losie:\
 Dość mnie nudzi ta cała historyja babia!\
 A potem, czegóż jeszcze wlazł mi tu ten Hrabia?\
