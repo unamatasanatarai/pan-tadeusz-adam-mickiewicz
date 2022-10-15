@@ -1,3 +1,4 @@
+Co zdaje się być drzewem nie smutku, lecz nudy?\
 Mówią, że bardzo smutnie wygląda na grobie;\
 Jest to jak lokaj Niemiec we dworskiej żałobie,\
 Nieśmiejący rąk podnieść ani głowy skrzywić,\
