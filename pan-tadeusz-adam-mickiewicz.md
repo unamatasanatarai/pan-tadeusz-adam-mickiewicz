@@ -1,3 +1,4 @@
+Z Napoleonem pobić Moskalów nie sztuka.\
 Jużci on Szwabom skórę trzy razy wymłócił,\
 Brzydkie Prusactwo zdeptał, Anglików wyrzucił\
 Het za morze, Moskalom zapewne wygodzi;\
