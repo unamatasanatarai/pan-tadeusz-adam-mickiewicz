@@ -1,3 +1,4 @@
+Księga ustaw wojennych, teraz w Litwie całéj\
 Ogłoszonych: już pod stół wasze trybunały!\
 Podług ustaw wojennych, za takową psotę,\
 Pójdziecie już to najmniej w sybirną robotę».\
