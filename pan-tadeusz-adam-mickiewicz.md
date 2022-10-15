@@ -1,3 +1,4 @@
+Pan Stolnik wesół wyszedł ze strzelbą na ganek,\
 I skoro spod lamusa Moskal łeb wychylił,\
 On dawał zaraz ognia, a nigdy nie mylił;\
 Za każdym razem czarny kaszkiet w trawę padał\
