@@ -1,3 +1,4 @@
+Podkomorzy najwyższe brał miejsce za stołem:\
 Z wieku mu i z urzędu ten zaszczyt należy,\
 Idąc kłaniał się damom, starcom i młodzieży;\
 Kwestarz nie był u stołu; miejsce bernardyna,\
