@@ -1,3 +1,4 @@
+Kiedy Zosia została dzieckiem w biednym stanie,\
 Jacek ją Telimenie dał na wychowanie,\
 Słysząc, że jest osoba dobra, świat znająca:\
 A postrzegam, że ona coś tu nam zamąca,\
