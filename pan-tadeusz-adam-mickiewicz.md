@@ -1,3 +1,4 @@
+Patrzajżeż, ażebyś mnie wstydu nie zrobiła».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia skoczyła z miejsca i klasnęła w dłonie,\
 I ciotce zawisnąwszy oburącz na łonie,\
