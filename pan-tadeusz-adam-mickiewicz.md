@@ -1,3 +1,4 @@
+I rozlewa jak z mszalnej kadzielnicy wonie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A gdy w kościele było po mszy i kazaniu,\
 Wyszedł przewodniczący całemu zebraniu\
