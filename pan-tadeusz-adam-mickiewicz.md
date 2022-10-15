@@ -1,3 +1,4 @@
+Potem u Wojewody służąc za pacholę.\
 Dano mi dobra, wziąłem; kazał przyjąć Zosię,\
 Przyjąłem, hodowałem, myślę o jej losie:\
 Dość mnie nudzi ta cała historyja babia!\
