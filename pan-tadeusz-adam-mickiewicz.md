@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś dla nas, w świecie nieproszonych gości,\
 W całej przeszłości i w całej przyszłości,\
 Jedna już tylko dziś kraina taka,\
