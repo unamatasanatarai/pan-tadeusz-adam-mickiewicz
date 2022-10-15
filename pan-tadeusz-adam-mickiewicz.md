@@ -1,3 +1,4 @@
+Moje!» Wstał, jenerała porwawszy w objęcie:\
 «Teraz umrę spokojny! Jest przecie na świecie\
 Człowiek, który przytuli moje drogie dziecię;\
 Bo wszak nad tym od dawna dzień i noc boleję,\
