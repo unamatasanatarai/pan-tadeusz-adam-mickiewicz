@@ -1,3 +1,4 @@
+«Protestuję!» zawołał; pewny był ucieczki,\
 Bo za sobą miał łozę i bagniska rzeczki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po tej protestacyi, która się ozwała\
