@@ -1,3 +1,4 @@
+Nazwany był Prusakiem od swych spółrodaków:\
 Przez żart, bo nienawidził okropnie Prusaków,\
 Choć lubił o nich gadać. Człek podeszły w lata,\
 W podróżach swych dalekich wiele zwiedził świata;\
