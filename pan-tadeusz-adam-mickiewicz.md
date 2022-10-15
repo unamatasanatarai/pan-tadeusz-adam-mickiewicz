@@ -1,3 +1,4 @@
+Nie można z karabina, to choć szpadą zabić.\
 »Co puka, to nie sztuka, to wolę co kole«:\
 Mówił stary Suworów; wyjdź Majorze w pole,\
 Bo on nas powystrzela; patrz, bierze do celu».\
