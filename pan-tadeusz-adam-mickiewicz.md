@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Gerwazy umilknął i łzami się zalał,\
 Potem rzekł kończąc: «Moskal już wrota wywalał:\
 Bo po śmierci Stolnika stałem bezprzytomnie,\
