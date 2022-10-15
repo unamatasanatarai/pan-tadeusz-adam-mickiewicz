@@ -1,3 +1,4 @@
+Zawżdy z wawrzynów drzewo wolności wykwita.\
 Tylko smutno, że nam, ach, tak się lata wleką\
 W nieczynności! a oni tak zawsze daleko!\
 Tak długo czekać! nawet tak rzadka nowina —\
