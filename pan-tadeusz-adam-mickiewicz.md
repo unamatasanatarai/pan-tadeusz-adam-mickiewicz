@@ -1,3 +1,4 @@
+Tymczasem grzmi pięściami, stojąc; mocno w kroku,\
 I pilnując się z bliska Gerwazego boku,\
 Aż Saka, syna swego, postrzega w natłoku.\
 Sak prawą ręką szturmak wymierza, a lewą\
