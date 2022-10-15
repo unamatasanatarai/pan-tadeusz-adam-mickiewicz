@@ -1,3 +1,4 @@
+Równie droga jak kamień co się na niej świeci.\
 Chciałem sprzęt ten zostawić w dziedzictwie dla dzieci;\
 Dzieci pewnie mieć będę: wiesz, że się dziś żenię;\
 Ale ten sprzęt, Rejencie, proszę uniżenie,\
