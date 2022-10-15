@@ -1,3 +1,4 @@
+A nad wszystkich głowami łysina błyszcząca\
 Ukazała się nagle jak pełnia miesiąca;\
 Trzykroć weszła i trzykroć znikła w głów obłoku.\
 Klucznik idąc kłaniał się, aż dobył się z tłoku,\
