@@ -1,3 +1,4 @@
+Gniewać się o przegranę! Oczakowskie dzieło\
 Było krwawe, pod Zurich zbili nam piechotę,\
 Pod Austerlicem całą utraciłem rotę,\
 A pierwej wasz Kościuszko pod Racławicami —\
