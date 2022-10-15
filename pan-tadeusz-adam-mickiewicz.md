@@ -1,3 +1,4 @@
+Właśnie rzecz kończył. «Wyczha! puściliśmy razem\
 Ja i Asesor, razem, jakoby dwa kurki\
 Jednym palcem spuszczone u jednej dwururki;\
 Wyczha! poszli, a zając jak struna, smyk w pole,\
