@@ -1,3 +1,4 @@
+I spojrzawszy przed siebie, i kiwając głową,\
 Zabrał głos, wymawiając z wolna każde słowo,\
 Z przestankiem i przyciskiem: «A głupi! a głupi!\
 A głupi wy! Na kim się mleło, na was skrupi!...\
