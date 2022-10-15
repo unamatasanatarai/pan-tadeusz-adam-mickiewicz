@@ -1,3 +1,4 @@
+Jeszcze ryczał, chciał jeszcze powstać, gdy nań wsiadły\
 Rozjuszona Strapczyna i Sprawnik zajadły.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Natenczas Wojski chwycił na taśmie przypięty\
