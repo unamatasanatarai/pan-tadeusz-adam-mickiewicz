@@ -1,3 +1,4 @@
+Już wróble skacząc, świerkać zaczęły pod strzechą;\
 Już trzykroć gęgnął gąsior, a za nim jak echo\
 Odezwały się chórem kaczki i indyki\
 I słychać bydła w pole idącego ryki.
