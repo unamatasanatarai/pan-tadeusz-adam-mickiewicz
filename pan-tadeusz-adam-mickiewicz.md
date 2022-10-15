@@ -1,3 +1,4 @@
+Zrazu słuchała pilnie, potem dłoni ruchem\
 Przeczyła, ręką żwawo wstrząsając nad uchem,\
 Odpędzając jak owad nieprzyjemne słowa\
 Na powrót w usta mówcy —
