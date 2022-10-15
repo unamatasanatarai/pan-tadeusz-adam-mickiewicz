@@ -1,3 +1,4 @@
+Że będą długo, zawsze myśli mej przytomne,\
 I dalibóg, że nigdy ciebie nie zapomnę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena skoczywszy padła mu na szyję:\
