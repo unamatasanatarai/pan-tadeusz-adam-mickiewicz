@@ -1,3 +1,4 @@
+Przed odjazdem; bo serce młode i podróżne,\
 Wiesz dobrze, jako miewa tentacyje różne;\
 A wszakże, kiedy okiem rzuci na pierścionek\
 I przypomni młodzieniec, że już jest małżonek,\
