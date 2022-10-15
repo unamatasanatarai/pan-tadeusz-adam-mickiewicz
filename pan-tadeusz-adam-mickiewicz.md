@@ -1,3 +1,4 @@
+Choć nigdy nie dokończył i zawsze się jąkał,\
 I ciemno się tłumaczył. Wreszcie, koniec końców,\
 My zjechali, sąsiadów zwołali przez gońców.\
 Nie sami tu panowie Dobrzyńscy jesteście;\
