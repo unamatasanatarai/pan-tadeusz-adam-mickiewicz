@@ -1,3 +1,4 @@
+Ale słysząc, że radzą, głosować pośpieszał.\
 Znajdował projekt dobrym, lecz chciał przeinaczyć,\
 Dokładniej go rozwinąć, jaśniej wytłumaczyć,\
 A naprzód komisyją legalnie wyznaczyć,\
