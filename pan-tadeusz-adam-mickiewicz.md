@@ -1,3 +1,4 @@
+Dał znak.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Skrzypak u sukni zakasał rękawek,\
 Ścisnął gryf krzepko, oparł brodę o podstawek\
