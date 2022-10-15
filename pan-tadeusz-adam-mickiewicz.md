@@ -1,3 +1,4 @@
+Lasami i bagnami skradał się tajemnie,\
 Ścigany od Moskali, skakał kryć się w Niemnie\
 I nurkiem płynął na brzeg Księstwa Warszawskiego,\
 Gdzie usłyszał głos miły: «Witaj nam kolego!»\
