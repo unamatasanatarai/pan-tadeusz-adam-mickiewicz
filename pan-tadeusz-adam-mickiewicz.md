@@ -1,3 +1,4 @@
+Staruszek tak swą sztukę zrobił tajemniczo,\
 Że oszukał zupełnie całe Soplicowo.\
 Kuchcik w lat kilka później szepnął o tym słowo,\
 Chcąc Assesora skłócić z Rejentem na nowo;\
