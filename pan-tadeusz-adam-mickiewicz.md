@@ -1,3 +1,4 @@
+Potem jak brylant światłe, na koniec ogniste,\
 Jak księżyc wielkie, jako gwiazda migające:\
 Tak po nieźmiernym niebie szło samotne słońce.
 
