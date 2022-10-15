@@ -1,3 +1,4 @@
+Idzie; wszyscy zazdroszczą, biegą w jego ślady,\
 On by rad ze swą damą wymknąć się z gromady:\
 Czasem staje na miejscu, rękę grzecznie wznosi\
 I żeby mimo przeszli, pokornie ich prosi;\
