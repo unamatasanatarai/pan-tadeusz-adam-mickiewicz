@@ -1,3 +1,4 @@
+Kto cię stracił. Dziś piękność twą w całej ozdobie\
 Widzę i opisuję, bo tęsknię po tobie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Panno święta, co Jasnej bronisz Częstochowy\
