@@ -1,3 +1,4 @@
+Kiedym ten serwis cudny ze skarbca dobywał,\
 To nawet Podkomorzy, i on mnie przedrwiwał!\
 Mówiąc, że to machina żmudna, staroświecka,\
 Że to ma pozór niby zabawki dla dziecka,\
