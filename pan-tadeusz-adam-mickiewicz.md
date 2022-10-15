@@ -1,3 +1,4 @@
+Nie było ran; że zjedli kury i półgąski,\
 Za to wedle statutu zapłacą nawiązki.\
 Ja na pana Hrabiego nie zanoszę skargi;\
 To tylko były zwykłe sąsiedzkie zatargi».
