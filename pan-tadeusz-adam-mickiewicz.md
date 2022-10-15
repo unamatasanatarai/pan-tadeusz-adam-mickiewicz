@@ -1,3 +1,4 @@
+Mnie, com kiedy wyjeżdżał z mojego zaścianku,\
 To liczniejszy dwór miałem niżeli książęcy,\
 Kiedym szablę dostawał, to kilka tysięcy\
 Szabel błyszczało wkoło, strasząc zamki pańskie!\
