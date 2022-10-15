@@ -1,3 +1,4 @@
+Patrzcie, jak za tą nagłą do kłótni podnietą,\
 Tłoczy się do drzwi ciżba, pewnie idą w kuchnię;\
 Dostali szable, pewnie krwawy bój wybuchnie.
 
