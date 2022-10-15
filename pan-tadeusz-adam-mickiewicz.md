@@ -1,3 +1,4 @@
+Spólną myśl widać było z uciętych wyrazów,\
 Z gestów żywych, z wydanych rozlicznych rozkazów,\
 Które, wychodząc tłumnie, razem z ust tak wielu,\
 Dążyły przecież wszystkie do jednego celu.
