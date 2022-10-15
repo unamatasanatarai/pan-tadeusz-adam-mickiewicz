@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tak zatrudniona, przecież obracała głowę\
 Na pamiętne szelestem krzaki agrestowe,\
 Nie wiedząc, że napastnik już z przeciwnej strony\
 Przybliżył się, czołgając jak wąż przez zagony,\
