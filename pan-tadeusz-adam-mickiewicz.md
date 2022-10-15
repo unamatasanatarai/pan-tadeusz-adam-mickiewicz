@@ -1,3 +1,4 @@
+Ale pływać po liściach, w ich barwie się kąpać.\
 Słomianym kapeluszem osłoniła głowę,\
 Od skroni powiewały dwie wstążki różowe\
 I kilka puklów światłych, rozwitych warkoczy;\
