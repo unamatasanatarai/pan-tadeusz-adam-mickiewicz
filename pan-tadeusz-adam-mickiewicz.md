@@ -1,3 +1,4 @@
+I stada dzikich gęsi szumią ponad lasem,\
 I znużone na popas spadają z hałasem,\
 A w głębi ciemnej nieba, wciąż jęczą żurawie.\
 Słysząc to, nocni stróże pytają w obawie,\
