@@ -1,3 +1,4 @@
+(Szponton, jest to zarazem dzida i siekiera;\
 Teraz już zaniedbany i tylko na flocie\
 Używają go; wówczas służył i piechocie).\
 Proporszczyk, człowiek młody, zręcznie się uwijał;\
