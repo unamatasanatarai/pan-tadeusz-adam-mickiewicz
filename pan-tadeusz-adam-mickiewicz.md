@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ta przerwa rozmów trwała już minut ze cztery.\
 Tymczasem, w końcu stoła, naprzód ciche szmery,\
 A potem się zaczęły wpół głośne rozmowy;\
