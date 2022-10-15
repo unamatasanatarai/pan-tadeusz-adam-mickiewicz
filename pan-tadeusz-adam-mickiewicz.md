@@ -1,3 +1,4 @@
+Między głowy i pierwej uderzył, niż błysnął;\
 Uderza w dno gitary, na wylot ją wierci,\
 Schylił się na bok Ryków i tak uszedł śmierci,\
 Lecz strwożył się. Krzyknąwszy: «Jegry! bunt! Jej Bogu!»\
