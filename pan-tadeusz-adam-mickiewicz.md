@@ -1,3 +1,4 @@
+Szczególniej zaś polubił pieśni narodowe;\
 Przywoził mnóstwo z każdej za Niemen wyprawy,\
 Kołomyjek z Halicza, mazurów z Warszawy;\
 Wieść, nie wiem czyli pewna, w całej okolicy\
