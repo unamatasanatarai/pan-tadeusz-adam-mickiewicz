@@ -1,3 +1,4 @@
+I dziwniejsze od baśni historyje gadał.\
 On opowiadał, jako jenerał Dąbrowski,\
 Z ziemi włoskiej stara się przyciągnąć do Polski,\
 Jak on rodaków zbiera na lombardzkim polu;\
