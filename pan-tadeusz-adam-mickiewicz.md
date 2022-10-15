@@ -1,3 +1,4 @@
+Uważałem, że gdy się z chłopiętami czubił,\
 Zawsze ich zbił; więc ilekroć do zamku biegał,\
 Jam go zawsze do trudnych imprezów podżegał.\
 Wszystko mu się udało: czy wydrzeć gołębie\
