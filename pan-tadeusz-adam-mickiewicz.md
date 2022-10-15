@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Więc Płut na Tadeusza krzyknął z wielkim gniewem:\
 «Panie Polak, wstydź się pan, chować się za drzewem;\
 Nie bądź tchórz, wyjdź na środek, bij się honorowie,\
 Po żołniersku». A na to Tadeusz odpowie:\
