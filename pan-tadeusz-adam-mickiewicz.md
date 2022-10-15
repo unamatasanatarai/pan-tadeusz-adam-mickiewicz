@@ -1,3 +1,4 @@
+Długiego, Ryków skoczył pod parkan ogrodu;\
 Tam, pierzchającą rotę zatrzymuje w biegu.\
 Szykuje, lecz szyk zmienia: z jednego szeregu\
 Robi trójkąt, klin ostry wystawując z przodu,\
