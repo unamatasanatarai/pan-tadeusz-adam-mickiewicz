@@ -1,3 +1,4 @@
+Tamci kurki odwodzą, a wszyscy się cieszą;\
 Jeden Wojski w żałości, krzyczy, że chybiono.\
 Strzelcy i obławnicy poszli jedną stroną\
 Na przełaj źwierza, między ostępem i puszczą,\
