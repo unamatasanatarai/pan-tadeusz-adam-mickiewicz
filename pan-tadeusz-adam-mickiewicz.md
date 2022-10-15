@@ -1,3 +1,4 @@
+Może też co o naszym wojsku wie Jegomość?»\
 — «Nic a nic» odpowiedział Robak obojętnie,\
 (Widać było, że słuchał rozmowy niechętnie)\
 «Mnie polityka nudzi; jeżeli z Warszawy\
