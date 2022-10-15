@@ -1,3 +1,4 @@
+Wnet akt spiszę, niech mi kto latarkę przyniesie,\
 A tymczasem ogłaszam: bracia, uciszcie się!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;I by donośniej mówić, wstąpił na stos wielki\
