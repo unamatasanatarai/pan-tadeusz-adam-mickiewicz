@@ -1,3 +1,4 @@
+Widzę, iż ten kunszt piękny godzien był widzenia!\
 Nie wiem, czy się podobna okazja zdarzy\
 Częstować w Soplicowie takich dygnitarzy.\
 Widzę, że pan jenerał na biesiadach zna się,\
