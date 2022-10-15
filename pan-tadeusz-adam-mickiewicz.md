@@ -1,3 +1,4 @@
+Trzy razy Moskwa kijmi zraniła me plecy,\
 Raz już wiedli na Sybir; potem Austryjacy,\
 W Szpilbergu zakopali mnie w lochach do pracy,\
 W carcer durum... a Pan Bóg wybawił mnie cudem,\
