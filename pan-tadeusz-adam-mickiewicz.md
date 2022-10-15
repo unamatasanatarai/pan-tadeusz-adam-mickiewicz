@@ -1,3 +1,4 @@
+I ubiór, od stóp do głów co najświeższej mody.\
 Jaką miała sukienkę, jaki strój na głowie,\
 Daremnie pisać, pióro tego nie wypowie;\
 Chyba pędzel by skreślił te tiule, ptyfenie,\
