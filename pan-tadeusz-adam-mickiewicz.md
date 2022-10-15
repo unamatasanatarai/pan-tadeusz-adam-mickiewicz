@@ -1,3 +1,4 @@
+Kuchcik stuknął doń w okno: kota spostrzeżono!\
 Kot, wykradłszy się z łozy, prześmignął po łące\
 I wskoczył w sad pomiędzy jarzyny wschodzące;\
 Tam siedzi: wystraszyć go łacno z rozsadniku\
