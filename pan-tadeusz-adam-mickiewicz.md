@@ -1,3 +1,4 @@
+Żyć z gęśmi, z pastuchami! Tak nogi rozszerzasz\
 Jak chłopiec, okiem w prawo i w lewo uderzasz,\
 Czysta rozwódka!... Dygnij, patrz, jaka niezwinna!»\
 «Ach ciociu — rzekła smutnie Zosia — cóż ja winna!\
