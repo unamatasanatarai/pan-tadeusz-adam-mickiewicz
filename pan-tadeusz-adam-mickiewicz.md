@@ -1,3 +1,4 @@
+Przebudza się Gerwazy: darmo się wydziera,\
 Związany w kij do swego własnego rapiera;\
 Patrzy: widzi przy oknie ludzi uzbrojonych,\
 W czarnych krótkich kaszkietach, w mundurach zielonych.\
