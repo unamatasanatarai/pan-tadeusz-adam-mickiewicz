@@ -1,3 +1,4 @@
+Choć nie słyszysz szlochania, znać, że we łzach tonie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Daremnie broniło się serce Tadeusza;\
 Ulitował się, uczuł że go żal porusza.\
