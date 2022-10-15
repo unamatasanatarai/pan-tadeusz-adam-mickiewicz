@@ -1,3 +1,4 @@
+Jaką miała sukienkę, jaki strój na głowie,\
 Daremnie pisać, pióro tego nie wypowie;\
 Chyba pędzel by skreślił te tiule, ptyfenie,\
 Blondyny, kaszemiry, perły i kamienie,\
