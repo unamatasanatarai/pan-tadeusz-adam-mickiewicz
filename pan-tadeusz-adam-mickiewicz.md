@@ -1,3 +1,4 @@
+A niewinnemu każda kochanka dziewicą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, chociaż liczył lat blisko dwadzieście,\
 I od dzieciństwa mieszkał w Wilnie, wielkim mieście,\
