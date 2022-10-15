@@ -1,3 +1,4 @@
+Dla sług swoich, a w każdej jest pewna odmiana.\
 Trzeba się długo uczyć, ażeby nie zbłądzić\
 I każdemu powinną uczciwość wyrządzić.\
 I starzy się uczyli; u panów rozmowa,\
