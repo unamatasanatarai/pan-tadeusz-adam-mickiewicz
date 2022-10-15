@@ -1,3 +1,4 @@
+Jankiel go tam posadził. Widać, że szanował\
 Wysoko bernardyna: bo skoro dostrzegał\
 Ubytek w jego szklance, natychmiast podbiegał\
 I rozkazał dolewać lipcowego miodu.\
