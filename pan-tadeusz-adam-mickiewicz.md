@@ -1,3 +1,4 @@
+Pracy też nie lękam się, bom młoda i zdrowa,\
 Umiem chodzić około domu, nosić klucze;\
 Gospodarstwa, obaczysz, jak ja się wyuczę!»
 
