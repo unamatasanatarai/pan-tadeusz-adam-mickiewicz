@@ -1,3 +1,4 @@
+Maciek stał u drzwi z Rózgą wzniesioną do góry,\
 Lgnąc do ściany, czatował jako kot na szczury,\
 Aż ciął okropnie: może głowy by trzy zwalił;\
 Lecz stary czy nie dojrzał, czy zbyt się zapalił:\
