@@ -1,3 +1,4 @@
+Nie wierzyłem, lecz w całym powiecie tak słychać».\
 Tu, poglądając w zamek, nie przestawał wzdychać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż dziwnego — rzekł Hrabia — koszt wielki, a nuda\
