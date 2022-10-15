@@ -1,3 +1,4 @@
+«Tak, tak, panie Gerwazy» — «Tak, panie Protazy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przyzba tykała kuchni, której okna stały\
 Otworem i dym jako z pożaru buchały;\
