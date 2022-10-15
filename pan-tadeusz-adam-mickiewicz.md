@@ -1,3 +1,4 @@
+Morskich szumach i wiatrach wonnych, i skał szczytach,\
 Mieszając tu i ówdzie, podróżnych zwyczajem,\
 Śmiech i urąganie się nad ojczystym krajem.
 
