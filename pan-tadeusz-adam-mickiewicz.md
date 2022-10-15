@@ -1,3 +1,4 @@
+Są obowiązki, nawet bez obowiązania!\
 Dwa serca, pałające na dwóch końcach ziemi,\
 Rozmawiają jak gwiazdy promieńmi drżącemi;\
 Kto wie! może dla tego ziemia tak do słońca\
