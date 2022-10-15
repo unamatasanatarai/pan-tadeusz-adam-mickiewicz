@@ -1,3 +1,4 @@
+Niosą pierwszy dar wiosny, świeże snopki ziela;\
 Wszystko wkoło ubrane w bukiety i w wianki,\
 Ołtarz, obraz, a nawet dzwonica i ganki.\
 Czasem poranny wietrzyk, gdy ze wschodu wionie,\
