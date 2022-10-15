@@ -1,3 +1,4 @@
+*A konik nogą grzebie mogiłę dla niego.*\
 Piosenka stara, wojsku polskiemu tak miła!\
 Poznali ją żołnierze; wiara się skupiła\
 Wkoło mistrza; słuchają, wspominają sobie,\
