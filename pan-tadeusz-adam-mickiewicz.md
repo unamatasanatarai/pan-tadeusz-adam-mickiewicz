@@ -1,3 +1,4 @@
+I zagrał: róg jak wicher wirowatym dechem,\
 Niesie w puszczę muzykę i podwaja echem.\
 Umilkli strzelcy, stali szczwacze zadziwieni\
 Mocą, czystością, dziwną harmoniją pieni.\
