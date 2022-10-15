@@ -1,3 +1,4 @@
+Gorszy się, że jej suknia tak wcięta głęboko,\
 Nieskromnie — a dopiero, kiedy podniósł oko!\
 Aż przeląkł się; bystrzejsze teraz miał źrenice.\
 Ledwie spojrzał w rumiane Telimeny lice,\
