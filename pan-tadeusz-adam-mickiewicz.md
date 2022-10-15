@@ -1,3 +1,4 @@
+Na górze, w wielkiej, niegdyś zwierciadlanej sali.\
 Dziś wydartych zwierciadeł stały puste ramy,\
 Okna bez szyb, z krużgankiem wprost naprzeciw bramy.\
 Tu wszedłszy, starzec głowę zadumaną skłonił\
