@@ -1,3 +1,4 @@
+Dobrze, żeś szczery; widzisz, głupstwo byś wypłatał,\
 Odjeżdżając: a co waść powiesz, gdybym swatał\
 Sam waści Zosię? He? Cóż, nie skoczysz z radości?»
 
