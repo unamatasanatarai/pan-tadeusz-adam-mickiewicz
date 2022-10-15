@@ -1,3 +1,4 @@
+Po drodze Woźny ciągle Sędziemu tłumaczył,\
 Dlaczego urządzenie pańskie przeinaczył:\
 We dworze żadna izba nie ma obszerności\
 Dostatecznej dla tylu, tak szanownych gości,\
