@@ -1,3 +1,4 @@
+Od których słyszy, że pan i dworska drużyna\
 Ruszyli tłumnie, zbrojnie, drogą do Dobrzyna.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Słynie szeroko w Litwie Dobrzyński zaścianek\
