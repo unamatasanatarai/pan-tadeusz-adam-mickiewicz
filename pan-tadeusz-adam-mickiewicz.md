@@ -1,3 +1,4 @@
+A kasztelan — witebski! Wszakże to w senacie\
 Niskie, drążkowe krzesło. Cóż mi radzisz, bracie?«\
 Nie pamiętam już zgoła co mu na to rzekłem,\
 Podobno nic — na konia wsiadłem i uciekłem!...»
