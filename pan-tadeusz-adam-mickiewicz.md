@@ -1,3 +1,4 @@
+Chciałbym mu opowiedzieć wypadek ciekawy,\
 Podobny do zdarzenia dzisiejszej obławy.\
 Klucznik mówił, że tylko znał jednego człeka,\
 Co tak celnie jak Robak mógł strzelić z daleka;\
