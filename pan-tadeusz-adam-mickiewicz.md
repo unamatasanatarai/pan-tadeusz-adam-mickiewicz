@@ -1,3 +1,4 @@
+Lubił ciągle wspominać swej młodości czasy,\
 Wystawiał wszystko w Polszcze: ziemię, niebo, lasy...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«I miał rozum! — zawołał Tadeusz z zapałem. —\
