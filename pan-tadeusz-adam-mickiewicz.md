@@ -1,3 +1,4 @@
+Podskoczył ku Hrabiemu i Tadeuszowi,\
 A widząc, że obadwa cali są i zdrowi,\
 Podniósł ku niebu oczy, cicho pacierz zmówił\
 I pobiegł w pole szybko, jakby go kto łowił.
