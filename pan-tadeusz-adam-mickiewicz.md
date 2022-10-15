@@ -1,3 +1,4 @@
+Jak wąż olbrzymi w tysiąc łamiący się zwojów;\
 Mieni się cętkowata, różna barwa strojów\
 Damskich, pańskich, żołnierskich, jak łuska błyszcząca,\
 Wyzłocona promieńmi zachodniego słońca\
