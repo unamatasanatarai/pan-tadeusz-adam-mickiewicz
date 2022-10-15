@@ -1,3 +1,4 @@
+Boję się, żeby to coś nie było z niemiecka!\
 Wszak wolność nie jest chłopska rzecz, ale szlachecka!\
 Prawda, że się wywodzim wszyscy od Adama,\
 Alem słyszał, że chłopi pochodzą od Chama,\
