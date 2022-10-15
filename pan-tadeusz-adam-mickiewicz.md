@@ -1,3 +1,4 @@
+Wiele też innych rzeczy sobie oświadczyli;\
 A wszystko to się stało w jednej krótkiej chwili.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale w izbie na prawo, kusząc Asesora,\
