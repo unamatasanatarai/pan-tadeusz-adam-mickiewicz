@@ -1,3 +1,4 @@
+Nie Francuza ani też Włocha, ale Piasta,\
 Jana albo Józefa, lub Maćka — i basta.\
 Wojsko! mówią, że polskie!... Lecz te fizyliery,\
 Sapery, grenadiery i kanonijery:\
