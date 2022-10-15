@@ -1,3 +1,4 @@
+Horeszkowscy, i słudzy Sędziego Soplicy.\
 On sam powagę umiał utrzymać nad groźnym\
 Klucznikiem horeszkowskim i kłótliwym Woźnym;\
 Przed Jankielem tłumili dawne swe urazy\
