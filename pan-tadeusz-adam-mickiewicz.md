@@ -1,3 +1,4 @@
+On bieży osypany iskrzącym się puchem,\
 Unoszony jak kółmi gęstych skrzydeł ruchem,\
 Zdaje się być chochlikiem, skrzydlatym złym duchem.
 
