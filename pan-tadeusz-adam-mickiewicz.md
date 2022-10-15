@@ -1,3 +1,4 @@
+Łowiąc uchem ostatnie znikające tony.\
 A tymczasem zagrzmiało tysiące oklasków,\
 Tysiące powińszowań i wiwatnych wrzasków.
 
