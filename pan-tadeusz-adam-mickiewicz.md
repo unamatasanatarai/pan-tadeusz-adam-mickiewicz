@@ -1,3 +1,4 @@
+Gdy Gerwazy w Jankiela Scyzorykiem zmierzył.\
 Żyd skoczył, wpadł w tłum; Klucznik wołał: «Precz stąd, Żydzie!\
 Nie tkaj palców między drzwi, nie o ciebie idzie!\
 Panie Prusak! że waszeć Sędziowską handlujesz\
