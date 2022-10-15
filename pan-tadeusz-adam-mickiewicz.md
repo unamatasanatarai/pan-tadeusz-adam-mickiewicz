@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wprawdzie już wtenczas w Litwie nie było zwyczajem\
 Opędzać się od pozwów szablą lub nahajem,\
 I ledwie Woźny czasem usłyszał łajanie:\
