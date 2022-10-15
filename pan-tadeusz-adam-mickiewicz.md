@@ -1,3 +1,4 @@
+Rzekł: «Pani! już ja muszę pożegnać panienkę...\
 Bądź zdrowa, wspomnij o mnie i racz czasem zmówić\
 Pacierz za mnie! Zofijo!...» Więcej nie mógł mówić.
 
