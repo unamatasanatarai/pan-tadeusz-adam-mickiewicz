@@ -1,3 +1,4 @@
+Pogwizdując piosenkę; z końcem każdej zwrotki\
 Stają, ostrzą żelezca i w takt kują w młotki.\
 Ludzi we mgle nie widać: tylko sierpy, kosy\
 I pieśni brzmią, jak muzyk niewidzialnych głosy.
