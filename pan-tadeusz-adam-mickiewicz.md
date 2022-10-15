@@ -1,3 +1,4 @@
+Bo go dla gęstwi ziela ani chart nie zgoni,\
 Ani ogar wywietrzy dla zbyt tęgiej woni.\
 W konopiach człowiek dworski, uchodząc kańczuka\
 Lub pięści, siedzi cicho, aż się pan wyfuka.\
