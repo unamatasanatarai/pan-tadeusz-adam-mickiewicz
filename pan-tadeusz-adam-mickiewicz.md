@@ -1,3 +1,4 @@
+Jeden z nich, opasany szarfą, trzymał szpadę\
 I ostrzem jej kierował swych drabów gromadę,\
 Szepcąc: «Wiąż! wiąż!» Dokoła leżą jak barany\
 Dżokeje w pętach; Hrabia siedzi niezwiązany\
