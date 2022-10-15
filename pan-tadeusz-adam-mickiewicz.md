@@ -1,3 +1,4 @@
+Że z tych niewczesnych bojów złe wynikną skutki.\
 Zbłądziliśmy i nikt tu z nas nie jest bez winy:\
 Ksiądz Robak, że zbyt czynnie rozszerzał nowiny,\
 Klucznik i szlachta, że je pojęła opacznie.\
