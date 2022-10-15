@@ -1,3 +1,4 @@
+Na zielonym obrusie łąk, jako szeregi\
 Naczyń stołowych sterczą: tu z krągłymi brzegi\
 *Surojadki* srebrzyste, żółte i czerwone,\
 Niby czareczki różnym winem napełnione;\
