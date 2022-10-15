@@ -1,3 +1,4 @@
+Zwane *pokuciem*, kwestarz ksiądz Robak zajmował.\
 Jankiel go tam posadził. Widać, że szanował\
 Wysoko bernardyna: bo skoro dostrzegał\
 Ubytek w jego szklance, natychmiast podbiegał\
