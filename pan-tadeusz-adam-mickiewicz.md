@@ -1,3 +1,4 @@
+Ze strachu od ich oczu nie mógł zwrócić oka,\
 I pod opoką siedział martwy jak opoka.\
 Tymczasem kurz na roli rośnie coraz bliżéj;\
 Pędzi na smyczy Kusy, za nim Sokół chyży,\
