@@ -1,3 +1,4 @@
+Otrząsnął pierze z rosy, tuli się do drzewa,\
 Głowę wciska w ramiona, oczy znowu mruży\
 I czeka słońca. Kędyś, u brzegów kałuży,\
 Klekce bocian. Na kopach siedzą wrony zmokłe,\
