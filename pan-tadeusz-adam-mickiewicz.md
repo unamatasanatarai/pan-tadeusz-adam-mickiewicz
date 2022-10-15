@@ -1,3 +1,4 @@
+Wzdłuż miesięczne światełko drgające migoce.\
 Jako piękny wąż żmudzki, zwany giwojtosem,\
 Chociaż zdaje się drzemać, leżąc między wrzosem,\
 Pełźnie, bo na przemiany srebrzy się i złoci,\
