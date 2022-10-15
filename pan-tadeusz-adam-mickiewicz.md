@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zyzem w oczy Hrabiemu spojrzał Podkomorzy:\
 «Bez waścinej pomocy ukarać potrafię\
 Zuchwałego szlachetkę; a waść, mości grafie,\
