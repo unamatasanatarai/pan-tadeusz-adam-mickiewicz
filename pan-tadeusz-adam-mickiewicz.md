@@ -1,3 +1,4 @@
+Wnuków, prawnuków będzie Jagiełłów stolica\
 Wskazywać palcem, mówiąc: oto jest Soplica,\
 Z tych Sopliców, co pierwsi zrobili powstanie!»
 
