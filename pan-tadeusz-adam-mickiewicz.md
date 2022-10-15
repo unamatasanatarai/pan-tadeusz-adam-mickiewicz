@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, który został w domu, kobiet, bronić\
 Z rozkazu stryja, słysząc że coraz to gorzéj\
 Wre bitwa, wybiegł, za nim wybiegł Podkomorzy,\
