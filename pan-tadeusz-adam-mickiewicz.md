@@ -1,3 +1,4 @@
+Obrysowane wkoło kręgiem pawich oczu\
 Jak wiankiem gwiazd, świeciły w zbożu jak w przezroczu,\
 Pomiędzy kukuruzy złocistymi laski,\
 I angielską trawicą posrebrzaną w paski,\
