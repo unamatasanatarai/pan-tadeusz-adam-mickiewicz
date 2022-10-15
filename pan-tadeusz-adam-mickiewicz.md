@@ -1,3 +1,4 @@
+Pewnie tam piją często za Konewki zdrowie;\
 Bez niego już by było dziś po Soplicowie!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Konewka dotąd małe dał męstwa dowody.\
