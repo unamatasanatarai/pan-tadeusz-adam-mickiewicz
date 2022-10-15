@@ -1,3 +1,4 @@
+Tyś mnie rzucił o ziemię: tak nas dwóch ocalił.\
 Jeśli prawda, że jesteś księdzem zakonnikiem,\
 Jużci sukienka broni cię przed Scyzorykiem.\
 Bądź zdrów, więcej na waszym nie postanę progu\
