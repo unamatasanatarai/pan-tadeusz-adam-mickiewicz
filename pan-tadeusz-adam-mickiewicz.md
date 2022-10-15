@@ -1,3 +1,4 @@
+Teraz wzrok nań obrócił tak ostry i dziki,\
 Że Rejent zbladnął, zaczął zapinać guziki,\
 Myśląc, że Maciej wzrokiem suknie z niego złupi.\
 Dobrzyński tylko dwakroć wyrzekł głośno: «Głupi!»\
