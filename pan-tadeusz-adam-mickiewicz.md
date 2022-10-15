@@ -1,3 +1,4 @@
+Klęczący różnobarwny tłum okrywa pole,\
 A na głos dzwonka, niby na wiatru powianie,\
 Chylą się wszystkie głowy jak kłosy na łanie.
 
