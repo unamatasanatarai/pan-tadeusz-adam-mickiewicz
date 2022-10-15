@@ -1,3 +1,4 @@
+Strzelcy dawniej milczeli; druga stołu strona\
 Umilkła, Tadeusza żółcią zarażona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nawet pan Podkomorzy nadzwyczaj ponury,\
