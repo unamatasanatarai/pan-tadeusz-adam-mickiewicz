@@ -1,3 +1,4 @@
+A przed nim leży Fedon i żywot Katona.\
 Dalej Jasiński, młodzian piękny i posępny;\
 Obok Korsak, towarzysz jego nieodstępny:\
 Stoją na szańcach Pragi, na stosach Moskali,\
