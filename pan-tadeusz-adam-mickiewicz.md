@@ -1,3 +1,4 @@
+Wdział więc jak mógł najprędzej niedzielne ubranie\
 Nagotowane z rana, bo od rana wiedział,\
 Że u wieczerzy będzie z mnóstwem gości siedział.
 
