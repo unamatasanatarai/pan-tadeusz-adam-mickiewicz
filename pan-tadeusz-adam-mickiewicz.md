@@ -1,3 +1,4 @@
+Marszałka dworu. Laskę ma na znak urzędu\
 I tą laską z kolei jako mistrz obrzędu,\
 Wskazuje wszystkim miejsca i gości usadza.\
 Naprzód, jako najpierwsza województwa władza,\
