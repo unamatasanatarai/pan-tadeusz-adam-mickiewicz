@@ -1,3 +1,4 @@
+Co się tabaki tyczy, hem, ona pochodzi\
 Z dalszej strony, niż myśli Skołuba dobrodziéj:\
 Pochodzi z Jasnej Góry. Księża paulinowie\
 Tabakę taką robią w mieście Częstochowie,\
