@@ -1,3 +1,4 @@
+I wielka chustka w pasie końcem uwiązana;\
 Słomiany, podwiązany kapelusz od ruchu\
 Nagłego chwiał się z wiatrem jako liść łopuchu,\
 Spadając to na barki, to znowu na oczy;\
