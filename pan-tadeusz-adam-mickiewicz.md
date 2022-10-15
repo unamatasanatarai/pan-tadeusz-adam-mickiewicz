@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Po wydanych rozkazach nastało milczenie;\
 Każdy dumał i rzucał dokoła wejrzenie,\
 Jak gdyby kogoś szukał; z wolna wszystkich oczy\
