@@ -1,3 +1,4 @@
+Czule, i tylko takiej drobnostki wymaga,\
 Wzruszył się, przejęły go szczery żal i litość,\
 I jeżeliby badał serca swego skrytość,\
 Może by się w tej chwili i sam nie dowiedział,\
