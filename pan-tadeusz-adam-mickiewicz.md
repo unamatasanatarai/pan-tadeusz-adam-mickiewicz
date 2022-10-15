@@ -1,3 +1,4 @@
+Pomięszana, zaledwie śmie nań rzucić okiem;\
 Chciała zasępionego Hrabiego zabawić,\
 Wyzwać w dłuższą rozmowę, w lepszy humor wprawić;\
 Bo Hrabia dziwnie kwaśny powrócił z przechadzki\
