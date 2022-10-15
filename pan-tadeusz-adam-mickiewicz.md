@@ -1,3 +1,4 @@
+Znać było, że przychodził już do wniosków mowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem brząknął w tabakierę złotą Podkomorzy,\
 I rzekł: «Mój Sędzio, dawniej było jeszcze gorzéj!\
