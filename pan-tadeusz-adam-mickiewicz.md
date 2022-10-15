@@ -1,3 +1,4 @@
+(Trzeba wiedzieć, że to jest Sopliców choroba,\
 Że im oprócz ojczyzny nic się nie podoba).\
 Orłowski, który życie strawił w Peterburku,\
 Sławny malarz (mam jego kilka szkiców w biurku)\
