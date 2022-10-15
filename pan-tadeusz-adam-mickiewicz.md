@@ -1,3 +1,4 @@
+Grzejąca się nad kotłem, w którym warzą trupa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za tymi jeziorkami już nie tylko krokiem,\
 Ale daremnie nawet zapuszczać się okiem,\
