@@ -1,3 +1,4 @@
+I stoi wypisany każdy po imieniu;\
 Herb Horeszków, Półkozic, jaśniał na sklepieniu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem.\
