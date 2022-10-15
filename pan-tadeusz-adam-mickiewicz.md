@@ -1,3 +1,4 @@
+Aż wyciągając rękę jak miecz do przebicia,\
 Z palcem zmierzonym prosto w Tadeusza oczy:\
 «Tego chciałam! — krzyknęła — ha, języku smoczy!\
 Serce jaszczurcze! To nic, żem tobą zajęta\
