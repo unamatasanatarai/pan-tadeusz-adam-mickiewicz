@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;I ja tam z gośćmi byłem, miód i wino piłem,\
 A com wiedział i słyszał, w księgi umieściłem.
 
 
