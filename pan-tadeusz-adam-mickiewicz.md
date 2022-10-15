@@ -1,3 +1,4 @@
+Był to znak, że wracali goście z polowania,\
 I krzątała się służba około śniadania.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż po wszystkich izbach panował ruch wielki:\
