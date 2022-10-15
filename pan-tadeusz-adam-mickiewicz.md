@@ -1,3 +1,4 @@
+Sklepienie całe — wprawdzie pękła jedna ściana,\
 Okna bez szyb, lecz latem nic to nie zawadzi;\
 Bliskość piwnic wygodna służącej czeladzi.\
 Tak mówiąc na Sędziego mrugał; widać z miny,\
