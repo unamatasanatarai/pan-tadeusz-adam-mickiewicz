@@ -1,3 +1,4 @@
+Wyciągnięte ramiona, ku niej zgiełk się tłoczy.\
 Darmo się Podkomorzy zostać przy niej sili:\
 Zazdrośnicy już z pierwszej pary go odbili;\
 I szczęśliwy Dąbrowski niedługo się cieszył,\
