@@ -1,3 +1,4 @@
+Od puszcz Libijskich łatał do Alpów podniebnych,\
 Ciskając grom po gromie, w Piramidy, w Tabor,\
 W Marengo, w Ulm, w Austerlitz. Zwycięstwo i Zabor\
 Biegły przed nim i za nim. Sława czynów tylu,\
