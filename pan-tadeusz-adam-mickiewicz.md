@@ -1,3 +1,4 @@
+Sędzia poznał: «Jak się masz, mój jaśnie wielmożny\
 Hrabio, i w ładownicy masz twój sprzęt podróżny\
 Do malarstwa!» W istocie, był to Hrabia młody;\
 Niedawny żołnierz: lecz że wielkie miał dochody\
