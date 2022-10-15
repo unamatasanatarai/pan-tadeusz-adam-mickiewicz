@@ -1,3 +1,4 @@
+Czy o tym była mowa? Że ktoś miał wariata\
 Banitę bratem: to co, karać go za brata?\
 To mi po chrześcijańsku! Są tu w tym konszachty\
 Hrabiego; żeby Sędzia był ciężki dla szlachty,\
