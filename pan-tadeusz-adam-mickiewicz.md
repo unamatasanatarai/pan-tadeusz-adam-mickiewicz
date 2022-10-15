@@ -1,3 +1,4 @@
+Jak rządzisz sercem moim, tak rządź mym ramieniem».\
 Wyciągnął ramię.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Ona z rumieńcem dziewiczym,\
