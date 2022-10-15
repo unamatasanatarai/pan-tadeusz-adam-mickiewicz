@@ -1,3 +1,4 @@
+Przy nim stał kwestarz, Sędzia tuż przy bernardynie.\
 Bernardyn zmówił krótki pacierz po łacinie;\
 Mężczyznom dano wódkę; wtenczas wszyscy siedli,\
 I chołodziec litewski milcząc żwawo jedli.
