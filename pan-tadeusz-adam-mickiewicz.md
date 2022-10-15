@@ -1,3 +1,4 @@
+Skinął na Tadeusza, rzucił wzrok surowy:\
 Znać było, że przychodził już do wniosków mowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem brząknął w tabakierę złotą Podkomorzy,\
