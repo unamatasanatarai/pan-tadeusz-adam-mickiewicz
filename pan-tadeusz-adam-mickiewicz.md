@@ -1,3 +1,4 @@
+Ale jam dawną miłość i złość w sercu dusił.\
 Byłem jako szalony, darmom siebie musił\
 Zająć się gospodarstwem albo interesem:\
 Wszystko na próżno! Zemsty opętany biesem,\
