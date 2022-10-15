@@ -1,3 +1,4 @@
+Dąży, i tak jest zawsze miłą dla miesiąca,\
 Że wiecznie patrzą na się i najkrótszą drogą\
 Biegą do siebie — ale zbliżyć się nie mogą!»\
 «Dość już tego — przerwała — nie jestem planetą\
