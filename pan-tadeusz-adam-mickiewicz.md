@@ -1,3 +1,4 @@
+A nie, to bizun — jutro staniesz na kobiercu!\
 I gada mnie o czuciach! o niezmiennym sercu!\
 Łgarz jesteś! pfe! Ja z waści, panie Tadeuszu,\
 Zrobię śledztwo, ja waści jeszcze natrę uszu!\
