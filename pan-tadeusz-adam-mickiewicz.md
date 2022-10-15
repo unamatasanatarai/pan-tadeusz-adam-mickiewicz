@@ -1,3 +1,4 @@
+Czemuż pan Hrabia, jeśli w malarstwie się kocha,\
 Nie maluje drzew naszych, pośród których siedzi?\
 Prawdziwie, będą z pana żartować sąsiedzi,\
 Że mieszkając na żyznej litewskiej równinie,\
