@@ -1,3 +1,4 @@
+Urodzonych tu wszystkich obecnych świadectwo,\
 I pana Asesora wzywając na śledztwo,\
 Z powodu wielmożnego Sędziego Soplicy:\
 O inkursyją, to jest o najazd granicy,\
