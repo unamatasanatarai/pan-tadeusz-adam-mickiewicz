@@ -1,3 +1,4 @@
+Do ubrania, na krzesła poręczu rozpięta;\
 A na oknach donice z pachnącymi ziołki,\
 Geranium, lewkonija, astry i fijołki.\
 Podróżny stanął w jednym z okien — nowe dziwo:\
