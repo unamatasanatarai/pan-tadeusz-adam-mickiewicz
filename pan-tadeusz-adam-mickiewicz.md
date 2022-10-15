@@ -1,3 +1,4 @@
+Tworząc barwy i kwiaty: tak dziś ziemię całą\
 Wiatr tumanami osnuł, a słońce dzierzgało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Maciej ogrzał się słońcem, zakończył pacierze,\
