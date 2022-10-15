@@ -1,3 +1,4 @@
+Upiąwszy się nogami ciągną jako liny\
 Sprężyste, uwiązane do masztu wiciny.\
 Daremnie w tył Kropiciel ciska ślepe razy;\
 Chwieje się: a wtem postrzegł, że blisko Gerwazy\
