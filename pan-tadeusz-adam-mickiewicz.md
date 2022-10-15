@@ -1,3 +1,4 @@
+Słysząc to, nocni stróże pytają w obawie,\
 Skąd w królestwie skrzydlatym tyle zamieszania,\
 Jaka burza te ptaki tak wcześnie wygania?
 
