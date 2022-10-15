@@ -1,3 +1,4 @@
+Nie śmiano łajać mnicha; a po takiej probie,\
 Nikt też nie miał ochoty zaczynać z nim zwadę,\
 Zaś kwestarz Robak, skoro uciszył gromadę,\
 Widać było, że wcale tryumfu nie szukał,\
