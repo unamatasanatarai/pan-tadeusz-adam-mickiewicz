@@ -1,3 +1,4 @@
+Ileż scen i obrazów z samej gry obłoków!\
 Bo każda chmura inna: na przykład jesienna\
 Pełznie jak żółw leniwa, ulewą brzemienna,\
 I z nieba aż do ziemi spuszcza długie smugi,\
