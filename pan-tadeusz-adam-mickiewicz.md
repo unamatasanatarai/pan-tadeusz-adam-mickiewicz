@@ -1,3 +1,4 @@
+»mopanku« powiadali wszyscy Horeszkowie,\
 Ostatni Stolnik, pan mój, miał takie przysłowie...\
 Czyż to prawda, mopanku, że pan grosza skąpisz\
 Na proces i ten zamek Soplicom ustąpisz?\
