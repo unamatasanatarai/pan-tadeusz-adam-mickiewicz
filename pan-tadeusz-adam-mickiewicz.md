@@ -1,3 +1,4 @@
+Zgadniesz gdzie jest: bo ku niej obrócone oczy,\
 Wyciągnięte ramiona, ku niej zgiełk się tłoczy.\
 Darmo się Podkomorzy zostać przy niej sili:\
 Zazdrośnicy już z pierwszej pary go odbili;\
