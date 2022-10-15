@@ -1,3 +1,4 @@
+«Jest! jest!» — wyrzekł półgłosem, zerwał się na nogi.\
 On słyszał! Oni jeszcze słuchali; nareszcie\
 Słyszą: jeden pies wrzasnął, potem dwa, dwadzieście,\
 Wszystkie razem ogary rozpierzchnioną zgrają\
