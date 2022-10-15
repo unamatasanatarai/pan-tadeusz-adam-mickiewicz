@@ -1,3 +1,4 @@
+Stojąc we drzwiach na progu, rozmawiali sami.\
 Niewielki oddzielał ich od słuchaczów przedział,\
 Więc szeptali. Tadeusz teraz się dowiedział:\
 Że ciocia Telimena jest bogata pani,\
