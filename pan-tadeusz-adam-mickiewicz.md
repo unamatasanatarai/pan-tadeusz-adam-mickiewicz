@@ -1,3 +1,4 @@
+Sama biała i w długą bieliznę ubrana\
 Kręci się, jak bijąca śród kwiatów fontanna;\
 Czerpie z sita i sypie na skrzydła i głowy,\
 Ręką jak perły białą, gęsty grad perłowy\
