@@ -1,3 +1,4 @@
+Stryj swatał ją! może by jego żoną była,\
 Gdyby nie szatan, co go plącząc w grzech za grzechem,\
 W kłamstwo za kłamstwem, wreszcie odstąpił z uśmiechem!\
 Złajany, pogardzony od wszystkich, w dni parę\
