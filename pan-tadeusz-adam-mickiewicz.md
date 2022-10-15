@@ -1,3 +1,4 @@
+Dziwi mnie. Lecz cóż? Łaska stryja dobrodzieja\
 Nie przyda się już na nic! Ach, próżna nadzieja!\
 Bo pani Telimena nie odda mi Zosi!»\
 «Będziem prosić» rzekł Sędzia.
