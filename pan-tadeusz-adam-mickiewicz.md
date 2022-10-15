@@ -1,3 +1,4 @@
+Napoleona, wodzów, Tadeusza, Zosi,\
 Wreszcie z kolei wszystkich trzech par zaręczonych,\
 Wszystkich gości obecnych, wszystkich zaproszonych,\
 Wszystkich przyjaciół, których kto żywy spamięta,\
