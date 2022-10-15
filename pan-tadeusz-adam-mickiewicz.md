@@ -1,3 +1,4 @@
+Przyklękają, w przód i w tył skacząc na przemiany.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Płut, Tadeusza widząc przed swym frontem,\
 Naradzał się po cichu z gifrejterem Gontem,\
