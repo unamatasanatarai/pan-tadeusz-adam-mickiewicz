@@ -1,3 +1,4 @@
+Wstyd!... bo by powiedziano, żem mścił się rekuzy!\
 Kluczniku, twoje serce poczciwe nie umie\
 Uczuć, ile jest piekła w obrażonej dumie.
 
