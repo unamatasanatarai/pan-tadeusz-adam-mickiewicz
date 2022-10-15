@@ -1,3 +1,4 @@
+Że się na niczym skończą wszystkie te układy,\
 Że będzie wojna. Książę wysłał mnie na zwiady,\
 Z rozkazem, żeby byli Litwini gotowi\
 Dowieść przychodzącemu Napoleonowi,\
