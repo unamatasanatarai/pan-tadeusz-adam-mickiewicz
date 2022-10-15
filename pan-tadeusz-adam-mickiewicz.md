@@ -1,3 +1,4 @@
+Mawiał: Polskę oniemić, jest to Polskę zniemczyć.\
 Starzec, wiek przegwarzywszy, chciał spoczywać w gwarze;\
 Milczenie go budziło ze snu: tak młynarze,\
 Uśpieni kół turkotem, ledwie staną osie,\
