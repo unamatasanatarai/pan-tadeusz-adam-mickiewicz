@@ -1,3 +1,4 @@
+Odjeżdżałem ze wstydem. Właśnie był poranek.\
 Wtem ujrzałem, poznałem. Wystąpił na ganek,\
 I brylantową szpinką ku słońcu migotał,\
 I wąs pokręcał dumnie, i wzrok dumny miotał...\
