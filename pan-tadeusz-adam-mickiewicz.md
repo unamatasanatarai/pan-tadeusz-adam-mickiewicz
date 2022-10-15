@@ -1,3 +1,4 @@
+Patrzyły na Adama, nim się z nim skłóciły.\
 Szczęściem, człowiek nie zbłądzi do tego ostępu,\
 Bo Trud, i Trwoga, i Śmierć bronią mu przystępu.
 
