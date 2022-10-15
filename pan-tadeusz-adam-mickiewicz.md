@@ -1,3 +1,4 @@
+Chowa, modom moskiewskim przystępu nie daje.\
 Ilekroć z Prus powracam, chcąc zmyć się z niemczyzny,\
 Wpadam do Soplicowa jak w centrum polszczyzny;\
 Tam się człowiek napije, nadysze ojczyzny!\
