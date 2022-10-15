@@ -1,3 +1,4 @@
+Szlachta żegna się śpiesznie i już w drogę rusza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Sędzia zatrzymał w izbie Tadeusza\
 I rzekł do księdza: «Czas już, żebym ci powiedział\
