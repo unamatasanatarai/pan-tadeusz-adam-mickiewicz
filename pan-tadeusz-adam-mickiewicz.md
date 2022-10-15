@@ -1,3 +1,4 @@
+Przewróciwszy się młyńcem, cielska krwawe brzemię\
 Waląc tuż pod Hrabiego, zbił go z nóg na ziemię.\
 Jeszcze ryczał, chciał jeszcze powstać, gdy nań wsiadły\
 Rozjuszona Strapczyna i Sprawnik zajadły.
