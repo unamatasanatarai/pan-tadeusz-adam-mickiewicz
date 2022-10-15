@@ -1,3 +1,4 @@
+Borykają się, kręcą, świszczącymi koły\
 Krążą po stawach, mącą do dna wody w stawach,\
 Wpadły na łąki, świszczą po łozach i trawach.\
 Pryskają łóz gałęzie; lecą traw przekosy\
