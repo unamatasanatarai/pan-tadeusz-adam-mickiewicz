@@ -1,3 +1,4 @@
+Zaraz w ślepiach jak w siedmiu kościołach zaświeci».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Gerwazeńku — rzekł Woźny — po co się tak dąsać?\
 Jestem Woźny, nie moja rzecz sprawę roztrząsać;\
