@@ -1,3 +1,4 @@
+Kto wie, czy wrócę żywy! kto wie, co się stanie!\
 W Dobrzynie! Bracie! wielkie, wielkie zamieszanie!\
 Francuz jeszcze daleko, nim przeminie zima\
 Trzeba czekać, a szlachta pono nie dotrzyma.\
