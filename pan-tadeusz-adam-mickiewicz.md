@@ -1,3 +1,4 @@
+Bo Trud, i Trwoga, i Śmierć bronią mu przystępu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czasem tylko w pogoni zaciekłe ogary,\
 Wpadłszy niebacznie między bagna, mchy i jary,\
