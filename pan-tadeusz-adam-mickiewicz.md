@@ -1,3 +1,4 @@
+Z podniesionym nad głową rapierem straszliwym\
 Leci; rozpięta na wiatr szumi taratatka,\
 Z lewego ucha spadła w tył konfederatka;\
 Leci, jezdnych i pieszych po drodze obala,\
