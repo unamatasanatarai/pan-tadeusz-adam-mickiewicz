@@ -1,3 +1,4 @@
+Już przeszło, jak ogary wpadły w otchłań lasu.
 
 Cicho. Próżno myśliwi natężają ucha;\
 Próżno jak najciekawszej mowy każdy słucha\
