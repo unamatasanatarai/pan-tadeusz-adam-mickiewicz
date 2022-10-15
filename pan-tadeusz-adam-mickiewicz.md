@@ -1,3 +1,4 @@
+Bo jakież by to były między szlachtą mowy,\
 Gdyby wiedziano, że ja Jacek...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Soplicy Horeszkowie odmówili dziewkę!\
