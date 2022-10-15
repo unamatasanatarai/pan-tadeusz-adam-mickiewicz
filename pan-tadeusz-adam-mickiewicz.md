@@ -1,3 +1,4 @@
+Odemknął szafę i w niej coś kręcić zaczynał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stały w dwóch kątach sieni, wsparte o filary,\
 Dwa kurantowe, w szafach zamknięte zegary;\
