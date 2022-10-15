@@ -1,3 +1,4 @@
+Ale ty Hrabio pewien jesteś cały zostać;\
 Wiesz, w jakim rządzie żyjesz, jesteś dość bogaty,\
 Wykupisz się od więzień połową intraty».
 
