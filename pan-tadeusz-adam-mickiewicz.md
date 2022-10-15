@@ -1,3 +1,4 @@
+Co się z nim stało, różnie powiadano o tem,\
 Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.\
 Daremnie pytaniami Klucznika dręczono;\
 Nic nie wyrzekł, prócz tych słów: pro publico bono.\
