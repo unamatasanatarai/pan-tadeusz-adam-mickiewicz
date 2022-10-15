@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz z największym na niego naciera uporem\
 Stary Gifrejter, co był pułku instruktorem,\
 Wielki mistrz na bagnety. Zebrał się sam w sobie,\
