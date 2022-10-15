@@ -1,3 +1,4 @@
+Bieży Asesor, ciągnąc za obróż Sokoła;\
 Pośpiesza za nim Rejent i Kusego woła.\
 Wojski obu z chartami przy płocie ustawił,\
 A sam się z placką muszą do sadu wyprawił.\
