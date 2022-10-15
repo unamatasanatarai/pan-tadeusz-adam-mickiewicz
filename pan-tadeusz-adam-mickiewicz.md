@@ -1,3 +1,4 @@
+Coraz głośniejsza kłótnia o kusego charta,\
 Którego posiadaniem pan Rejent się szczycił\
 I utrzymywał, że on zająca pochwycił;\
 Asesor zaś dowodził na złość Rejentowi,\
