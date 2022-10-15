@@ -1,3 +1,4 @@
+Tylko usłyszał znowu trzykrotne stukanie\
 I słowa: «Niech pan wstaje, czas na polowanie.\
 Pan zaspał». Skoczył z łóżka i obu rękami\
 Pchnął okienicę, że aż trzasła zawiasami\
