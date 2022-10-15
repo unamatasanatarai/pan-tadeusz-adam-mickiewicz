@@ -1,3 +1,4 @@
+Moskale!!!
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Nieraz Klucznik był w podobnych trwogach,\
 Nieraz miewał powrozy na ręku i nogach,\
