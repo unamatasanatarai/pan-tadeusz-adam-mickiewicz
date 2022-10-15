@@ -1,3 +1,4 @@
+Zmniejszona, zubożała. Dawniej w pańskich dworach\
 Lub wojsku, na zajazdach, sejmikowych zborach,\
 Zwykli byli Dobrzyńscy żyć o łatwym chlebie:\
 Teraz, zmuszeni sami pracować na siebie\
