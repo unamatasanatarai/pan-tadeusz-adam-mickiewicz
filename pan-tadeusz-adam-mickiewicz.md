@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Hreczecha na milczenie miał słuch bardzo czuły.\
 Sam gawęda, i lubił niezmiernie gaduły.\
 Nie dziw! Ze szlachtą strawił życie na biesiadach,\
