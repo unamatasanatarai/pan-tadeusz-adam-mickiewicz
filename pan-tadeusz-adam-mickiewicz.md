@@ -1,3 +1,4 @@
+Zwróciły się na wielki, świeży trup niedźwiedzi.\
 Leżał krwią opryskany, kulami przeszyty,\
 Piersiami w gęszczę trawy wplątany i wbity;\
 Rozprzestrzenił szeroko przednie krzyżem łapy,\
