@@ -1,3 +1,4 @@
+Bo je zbliżała dzieciom do ust po kolei;\
 Miało zaś kształt złotego rogu Amaltei.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak zatrudniona, przecież obracała głowę\
