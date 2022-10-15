@@ -1,3 +1,4 @@
+Bieży, broń wzniósłszy, szlachta rusza jego śladem:\
 Jegry przypuściwszy ich, sypnęli kul gradem:\
 Legł Isajewicz, Wilbik, Brzytewka raniony;\
 Za czym wstrzymują szlachtę Robak z jednej strony\
