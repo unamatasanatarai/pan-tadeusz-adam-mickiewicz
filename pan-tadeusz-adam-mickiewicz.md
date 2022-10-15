@@ -1,3 +1,4 @@
+Kto był lękliwy, z dala witał się i stronił:\
 Nawet lada chłop, lada Żyd, choć się pokłonił,\
 To mię zboku szyderskim przebijał uśmiechem.\
 Wyraz zdrajca brzmiał w uszach, odbijał się echem\
