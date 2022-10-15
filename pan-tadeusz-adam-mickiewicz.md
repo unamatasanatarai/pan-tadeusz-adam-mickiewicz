@@ -1,3 +1,4 @@
+By życie uprzyjemnić i wieś rozweselić.\
 Tadeusz odpowiadał śmielej, szła rzecz daléj,\
 W pół godziny już byli z sobą poufali;\
 Zaczęli nawet małe żarciki i sprzeczki.\
