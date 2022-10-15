@@ -1,3 +1,4 @@
+Zrazu rumieniła się, spuściwszy oczęta,\
 Potem śmiać się zaczęli, w końcu rozmawiali\
 O jakimś niespodzianym w ogrodzie spotkaniu,\
 O jakimś po łopuchach i grzędach stąpaniu,\
