@@ -1,3 +1,4 @@
+Pierwszy raz widział zamek z rana i nie wierzył,\
 Że to były też same mury; tak odświeżył\
 I upięknił poranek zarysy budowy:\
 Zadziwił się pan Hrabia na widok tak nowy.\
