@@ -1,3 +1,4 @@
+I drzwi tych odmykaniem codziennie się bawił.\
 W jednej z izb pustych, obrał mieszkanie dla siebie;\
 Mogąc żyć u Hrabiego na łaskawym chlebie,\
 Nie chciał, bo wszędzie tęsknił i czuł się niezdrowym,\
