@@ -1,3 +1,4 @@
+Zbito Prusaków na łeb, na szyję, wygrana!»\
 Ja, z konia zsiadłszy, zaraz padłem na kolana,\
 Dziękując Panu Bogu... Do miasta jedziemy,\
 Niby dla interesu, niby nic nie wiemy:\
