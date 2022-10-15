@@ -1,3 +1,4 @@
+Jak kot, gdy ujrzy wróble na wysokiej sośnie;\
 Często bez psa, bez strzelby, błąkał się po gaju\
 Jak rekrut zbiegły; często siadał przy ruczaju\
 Nieruchomy, schyliwszy głowę nad potokiem,\
