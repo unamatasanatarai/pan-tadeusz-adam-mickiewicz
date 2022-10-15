@@ -1,3 +1,4 @@
+Konfederatka niby gołąb przeleciała.\
 Konewka strzelił w czapkę, ale chybił celu;\
 Wtem zatrzeszczały tyki, już Protazy w chmielu.\
 «Protestuję!» zawołał; pewny był ucieczki,\
