@@ -1,3 +1,4 @@
+Dziś zdasz mi sprawę z mojej fortuny zaboru,\
 Nim pomszczę się obelgi mojego honoru!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Sędzia, żegnając się, krzyknął: «W Imię Ojca\
