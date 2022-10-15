@@ -1,3 +1,4 @@
+We środku, za szkłem, portret króla Stanisława);\
 Zadzwonił w nią palcami, zażył i rzekł: «Panie\
 Tadeuszu, waścine o gwiazdach gadanie\
 Jest tylko echem tego, co słyszałeś w szkole.\
