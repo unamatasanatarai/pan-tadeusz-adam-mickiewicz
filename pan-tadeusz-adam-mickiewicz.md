@@ -1,3 +1,4 @@
+Tej zbrodni, wszystkie moje biedy i przestępstwa!...\
 Ja skarżyć nie mam prawa: ja jego morderca,\
 Ja skarżyć nie mam prawa: przebaczam mu z serca,\
 Ale i on...
