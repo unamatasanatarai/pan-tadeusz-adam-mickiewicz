@@ -1,3 +1,4 @@
+Wieśniacy i żołnierstwo ścisnęło się kołem,\
 On rzekł:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Bracia! ogłosił wam ksiądz na ambonie\
