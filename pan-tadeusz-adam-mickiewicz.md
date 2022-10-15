@@ -1,3 +1,4 @@
+Tadeusz i Zofia ustawnie klaskali,\
 Niby chwaląc, w istocie nie chcąc słuchać daléj.\
 Już z rozkazu Sędziego pleban stał na stole\
 I ogłaszał włościanom Tadeusza wolę.
