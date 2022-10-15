@@ -1,3 +1,4 @@
+Siedział w domu jak niedźwiedź, gdy ssie łapę w borze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ostatni raz wojował, poszedłszy z Ogińskim\
 Do Wilna, gdzie służyli oba pod Jasińskim,\
