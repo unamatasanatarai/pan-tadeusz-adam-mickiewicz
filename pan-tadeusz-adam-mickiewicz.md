@@ -1,3 +1,4 @@
+Opędzać się od pozwów szablą lub nahajem,\
 I ledwie Woźny czasem usłyszał łajanie:\
 Ale Protazy o tej obyczajów zmianie\
 Wiedzieć nie mógł, bo dawno już pozwów nie naszał.\
