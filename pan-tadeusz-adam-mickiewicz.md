@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Hrabia miał czas ostygnąć z zapału i gniewu,\
 Przemyślał, jakby skończyć bój bez krwi rozlewu;\
 Więc rodzinę Sopliców w domu zamknąć każe\
 Jako więźniów wojennych; u drzwi stawi straże.
