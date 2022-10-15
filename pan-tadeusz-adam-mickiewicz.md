@@ -1,3 +1,4 @@
+Niedźwiedź ryknie! Ach, gdyby jakie tysiąc ludzi,\
 Gdyby choć pięćset z tyłu na Moskwę natarło,\
 Powstanie jako pożar wkoło rozpostarło,\
 Gdybyśmy my, nabrawszy Moskwie harmat, znaków,\
