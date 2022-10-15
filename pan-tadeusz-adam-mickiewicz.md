@@ -1,3 +1,4 @@
+I sami się zabawim. Dwa lata tu siedzę,\
 Jakąż bitwę widziałem? z chłopami o miedzę!\
 Nasza wyprawa przecież krwi rozlanie wróży.\
 Odbyłem taką jedną w czasie mych podróży.\
