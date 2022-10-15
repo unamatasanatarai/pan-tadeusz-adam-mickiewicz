@@ -1,3 +1,4 @@
+Przecież ku drugiej stronie ogrodu pobiegła.\
 A Hrabia bokiem, między wielkie końskie szczawie,\
 Między liście łopuchu, na rękach, po trawie,\
 Skacząc jak żaba, cicho przyczołgał się blisko,\
