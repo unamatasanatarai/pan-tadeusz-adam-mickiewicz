@@ -1,3 +1,4 @@
+Po dniu Trzeciego Maja, w ratuszowej sali,\
 Zgodzonego z narodem króla fetowali,\
 Gdy przy tańcu śpiewano: *Wiwat król kochany!*\
 *Wiwat Sejm, wiwat Naród, wiwat wszystkie Stany!*
