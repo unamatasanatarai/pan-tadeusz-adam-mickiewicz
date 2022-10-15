@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Amen — rzekł na to Sędzia — ja wróżbę waszeci\
 Przyjmuję, oby z gwiazdą zjawił się Jan Trzeci!\
 Jest na zachodzie wielki dziś bohater; może\
 Kometa go przywiedzie do nas, co daj Boże!»
