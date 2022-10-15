@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz też posępny, nic nie jadł, nic nie pił,\
 Zdawał się słuchać rozmów, oczy w talerz wlepił;\
 Telimena mu leje wino, on się gniewa\
