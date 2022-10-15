@@ -1,3 +1,4 @@
+Wtoczył się jak gość między buraki czerwone.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Grzędy rozcięte miedzą; na każdym przykopie\
 Stoją jakby na straży w szeregach konopie,\
