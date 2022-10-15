@@ -1,3 +1,4 @@
+Kilka wichrów raz po raz prześwisnęło spodem,\
 Jeden za drugim lecą, miecąc krople dżdżyste,\
 Wielkie, jasne, okrągłe, jak grady ziarniste.
 
