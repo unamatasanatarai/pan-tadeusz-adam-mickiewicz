@@ -1,3 +1,4 @@
+Przelatują jak tabun rumaków po stepie:\
 Wszystkie białe jak srebro, zmieszały się... nagle\
 Z ich karków rosną maszty, z grzyw szerokie żagle,\
 Tabun zmienia się w okręt i wspaniale płynie\
