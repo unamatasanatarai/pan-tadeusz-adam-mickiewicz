@@ -1,3 +1,4 @@
+Na wielem się odważył, na więcej odważę:\
 Sądź!» — tu ukląkł i podał swoje pejzaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena sądziła malowania proby\
