@@ -1,3 +1,4 @@
+I przypomni młodzieniec, że już jest małżonek,\
 Zaraz w nim obcych pokus ostyga gorączka.\
 Wierzaj mi, wielką siłę ma ślubna obrączka.
 
