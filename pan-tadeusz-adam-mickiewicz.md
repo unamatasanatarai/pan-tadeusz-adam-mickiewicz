@@ -1,3 +1,4 @@
+Potem Podkomorzyna do Wilna jeździła,\
 Wzięła mnie tam na zimę; alem ja tęskniła\
 Do Soplicowa i do tego pokoiku,\
 Gdzie mnie pan naprzód w wieczór spotkał przy stoliku,\
