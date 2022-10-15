@@ -1,3 +1,4 @@
+Milczała, sypiąc łzami jako brylantami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, biorąc dary i całując rękę,\
 Rzekł: «Pani! już ja muszę pożegnać panienkę...\
