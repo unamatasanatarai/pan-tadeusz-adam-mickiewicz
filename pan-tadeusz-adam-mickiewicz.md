@@ -1,3 +1,4 @@
+Nie rozerwał milczenia; potem w czoło stukał,\
 Niby do wspomnień dawnych uśpionych w nim pukał,\
 Na koniec, gryząc palce, do krwi się zadrasnął\
 I na cały głos: «Dobrze, dobrze mi tak!» wrzasnął.
