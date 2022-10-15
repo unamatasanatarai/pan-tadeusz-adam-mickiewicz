@@ -1,3 +1,4 @@
+Szkoda, żeś nie był, księże, w zamku na wieczerzy,\
 Poświadczyłbyś, jak Hrabia srodze mnie obraził».\
 «Po coś waść — krzyknął Robak — do tych ruin łaził?\
 Wiesz, jak zamku nie cierpię; odtąd moja noga\
