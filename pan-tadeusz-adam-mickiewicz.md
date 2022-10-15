@@ -1,3 +1,4 @@
+Wierzaj: są oświadczenia, nawet bez wyznania;\
 Są obowiązki, nawet bez obowiązania!\
 Dwa serca, pałające na dwóch końcach ziemi,\
 Rozmawiają jak gwiazdy promieńmi drżącemi;\
