@@ -1,3 +1,4 @@
+Nie narobili jeszcze w tym zamku dość złego?\
 Bracie! wspominać nie chcę wypadku strasznego...\
 Wiesz także, że część gruntów od zamku dziedzica\
 Zabrała i Soplicom dała Targowica...\
