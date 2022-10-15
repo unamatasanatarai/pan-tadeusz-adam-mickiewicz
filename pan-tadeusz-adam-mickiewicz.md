@@ -1,3 +1,4 @@
+Dodawszy wzajem serca biegną na Moskali:\
 Nadaremnie ich Robak z Maćkiem wstrzymywali.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy tak na rotę jegrów uderzano z przodu,\
