@@ -1,3 +1,4 @@
+Miejsce piękne i ciche: tu się często schrania\
 Telimena, zowiąc je *Świątynią dumania*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stanąwszy nad strumieniem, rzuciła na trawnik\
