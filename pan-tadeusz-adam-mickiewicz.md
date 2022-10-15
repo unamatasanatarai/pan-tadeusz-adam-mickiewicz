@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ptastwo skryło się w lasy, pod strzechy, w głąb trawy;\
 Tylko wrony, stadami obstąpiwszy stawy,\
 Przechadzają się sobie poważnymi kroki,\
 Czarne oczy kierują na czarne obłoki,\
