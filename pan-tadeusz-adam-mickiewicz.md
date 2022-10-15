@@ -1,3 +1,4 @@
+«Brzechaczu! — wrzasnął Klucznik — ja cię wnet nauczę!»\
 I dobywszy zza pasa swe żelazne klucze,\
 Okręcił wkoło głowy, puścił z całej mocy.\
 Pęk żelaza wyleciał jako kamień z procy,\
