@@ -1,3 +1,4 @@
+Jako ludzie rozsądni, umieją miarkować\
 Mowy i ruchy swoje, aby je stosować\
 W każdej okoliczności do miejsca i czasu.\
 Dlatego, nim ruszyli za Sędzią do lasu,\
