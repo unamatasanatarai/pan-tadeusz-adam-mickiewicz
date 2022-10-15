@@ -1,3 +1,4 @@
+Nad ubogą Litwina chatką; w stronie wschodu,\
 Widać z bielszego nieco na niebie obwodu\
 Że słońce wstało, tędy ma zstąpić na ziemię;\
 Lecz idzie niewesoło i po drodze drzemie.
