@@ -1,3 +1,4 @@
+Będzie w wojsku cesarza, niech to sobie wspomni».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ach — zawołał Skołuba — mój księże kwestarzu!\
 Kiedyż to będzie! Wszak to ile w kalendarzu\
