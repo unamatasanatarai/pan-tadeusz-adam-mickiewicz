@@ -1,3 +1,4 @@
+Asesor wołał ciągle: «Ołowiu, ołowiu!\
 Formę do kul mam w torbie». — «Do księdza plebana\
 Dać znać — dodał pan Sędzia — żeby jutro z rana\
 Mszę miał w kaplicy leśnej: króciuchna oferta\
