@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;I by donośniej mówić, wstąpił na stos wielki\
 Belek (pod płotem sadu suszyły się belki),\
 Wlazł na nie i zarazem jakby go wiatr zdmuchnął,\
 Zniknął z oczu. Słyszano, jak w kapustę buchnął;\
