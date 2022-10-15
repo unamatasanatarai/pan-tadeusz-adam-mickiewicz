@@ -1,3 +1,4 @@
+I trzymał z Tyzenhauzem, podskarbim litewskim;\
 Lecz gdy król w Targowicy przyjął uczestnictwo,\
 Maciej opuścił znowu królewskie stronnictwo.\
 I stąd to, że przechodził partyi tak wiele,\
