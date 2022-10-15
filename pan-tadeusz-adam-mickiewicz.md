@@ -1,3 +1,4 @@
+Cyprysy jarzyn; ciche, proste i zielone,\
 Ich liście i woń służą grzędom za obronę,\
 Bo przez ich liście nie śmie przecisnąć się żmija,\
 A ich woń gąsienice i owad zabija.\
