@@ -1,3 +1,4 @@
+Ledwie stuliła, z rzęsów pobiegły łzy szczodre;\
 A Zosia z zamkniętymi stojąc powiekami,\
 Milczała, sypiąc łzami jako brylantami.
 
