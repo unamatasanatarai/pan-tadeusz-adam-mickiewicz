@@ -1,3 +1,4 @@
+Na wiatr jako garściami wyrywane włosy,\
 Zmieszane z kędziorami snopów. Wiatry wyją,\
 Upadają na rolę, tarzają się, ryją,\
 Rwą skiby, robią otwór wichrowi trzeciemu,\
