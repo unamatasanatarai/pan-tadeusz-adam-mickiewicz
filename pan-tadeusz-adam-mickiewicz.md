@@ -1,3 +1,4 @@
+I tak dwa poróżnione domy znowu zbratać,\
 I dziedziczce bez wstydu ustąpić grabieży...»\
 «Lecz cóż to? — krzyknął Sędzia — co do mnie należy?\
 Ja się nie znałem, nawet nie widziałem z Jackiem;\
