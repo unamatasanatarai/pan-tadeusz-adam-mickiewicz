@@ -1,3 +1,4 @@
+Gdy pierzchła straż zlękniona, dworzan na koń wsadził,\
 I słysząc strzały, w ogień jazdę swą prowadził,\
 Sam na czele z żelazem nad głowę wzniesionem.\
 Wtem Ryków krzyknął: «Ognia pół batalijonem!»\
