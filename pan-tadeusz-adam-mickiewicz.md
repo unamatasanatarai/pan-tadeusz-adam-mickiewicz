@@ -1,3 +1,4 @@
+Okropnie razi Moskwę. Starszyznę wybiera;\
 Za pierwszym zaraz strzałem ubił feldfebera,\
 Potem z dwóch rur raz po raz dwóch sierżantów sprząta,\
 Mierzy to po galonach, to w środek trójkąta,\
