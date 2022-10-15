@@ -1,3 +1,4 @@
+Aż osłupiał Tadeusz na tyle nauki!\
 Lękał się, by nie został pośmiewiska celem,\
 I jąkał się jak żaczek przed nauczycielem.\
 Szczęściem, że nauczyciel ładny i niesrogi;\
