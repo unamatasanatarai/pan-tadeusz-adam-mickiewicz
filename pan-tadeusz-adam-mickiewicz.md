@@ -1,3 +1,4 @@
+I stanął nad błotnistym; w zielonawe tonie\
 Łakomy wzrok utopił i błotniste wonie\
 Z rozkoszą ciągnął piersią, i otworzył usta\
 Ku nim. Bo samobójstwo jak każda rozpusta\
