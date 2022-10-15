@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jacek rękę wyciągnął, — cofnął się Gerwazy,\
 «Nie mogę — rzekł — bez mego szlachectwa obrazy\
 Dotykać rękę, takim morderstwem skrwawioną\
