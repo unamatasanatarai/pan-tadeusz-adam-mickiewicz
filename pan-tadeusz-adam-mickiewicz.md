@@ -1,3 +1,4 @@
+To pan mu kopę oddasz i jeszcze nie kwita:\
 Często chłopi talara w przydatku dostali.\
 Wierz mi pan, że się chłopstwo bardzo rozzuchwali,\
 Jeśli...» — Reszty dowodów pana Ekonoma\
