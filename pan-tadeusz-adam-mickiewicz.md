@@ -1,3 +1,4 @@
+Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dąbrowski rzekł do Maćka: «A ty co, kolego?\
 Zdaje się, żeś ty nie rad z przybycia mojego?\
