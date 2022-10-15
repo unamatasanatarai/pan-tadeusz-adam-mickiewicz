@@ -1,3 +1,4 @@
+Podział jest trafny, tylko przewrócić go życzę.\
 Naprzód zacząć od władzy: skoro pojmiem władzę,\
 Z niej powstania istotę, duch, cel, wyprowadzę.\
 Co do władzy więc — kiedy oczyma przebiegam\
