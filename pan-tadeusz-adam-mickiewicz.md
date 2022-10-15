@@ -1,3 +1,4 @@
+Witał wchodzących gości, przy siedzących stawał\
 Zagajając rozmowę, kłótliwych zagadzał,\
 Lecz nie służył nikomu: tylko się przechadzał.\
 Żyd stary i powszechnie znany z poczciwości,\
