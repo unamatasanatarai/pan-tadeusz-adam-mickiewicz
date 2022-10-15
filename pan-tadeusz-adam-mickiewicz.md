@@ -1,3 +1,4 @@
+Stał cicho. Słysząc tętent towarzyszów w dali,\
 Ręką dał znak, ażeby wstrzymać konie; stali.\
 On patrzył z wyciągniętą szyją, jak dziobaty\
 Żuraw z dala od stada gdy odprawia czaty,\
