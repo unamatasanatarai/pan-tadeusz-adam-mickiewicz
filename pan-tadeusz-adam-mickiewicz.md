@@ -1,3 +1,4 @@
+Gości innych nie widział oprócz spółleśników, —\
 Teraz widzi: na niebie dziwna łuna pała,\
 W puszczy łoskot, to kula od jakiegoś działa,\
 Zbłądziwszy z pola bitwy, dróg w lesie szukała,\
