@@ -1,3 +1,4 @@
+Bo już dorosła, nie jest dziewczyną maluczką,\
 Przy tym z krwi dygnitarskiej, jest Stolnika wnuczką».\
 «Owoż — kończył Protazy — był to znak proroczy\
 O jej losie, widziałem znak na własne oczy.\
