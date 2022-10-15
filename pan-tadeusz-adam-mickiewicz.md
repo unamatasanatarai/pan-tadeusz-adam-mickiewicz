@@ -1,3 +1,4 @@
+Chyba ucieczkę prędką; gdzie? chyba do grobu!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc kułak przycisnąwszy na schylonym czole,\
 Biegł ku łąkom, gdzie stawy błyszczały się w dole,\
