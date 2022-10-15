@@ -1,3 +1,4 @@
+Roztargniona, znudzona, dokoła spoziera,\
 Z głową w górę zadartą. Więc pan Rejent w gniewie\
 Mówił o niej, że grzybów szukała na drzewie;\
 Asesor ją złośliwiej równał do samicy,\
