@@ -1,3 +1,4 @@
+Wzdłuż izby zaś przebiegał Brzytewka ruchawy\
 Ciągle od Kropiciela do Macieja ławy.\
 Konewka zaś powoli wszerz izbę przechodził\
 Od Dobrzyńskich do szlachty: niby to ich godził;\
