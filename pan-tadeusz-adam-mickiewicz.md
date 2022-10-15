@@ -1,3 +1,4 @@
+Ażeby zaprzestali bitwę tak bezładną,\
 Gdzie, nie używszy broni, pod pięściami padną.\
 Gniewny, że sam nie może dać ognia, bo w tłumie\
 Moskalów od Polaków rozróżnić nie umie,\
