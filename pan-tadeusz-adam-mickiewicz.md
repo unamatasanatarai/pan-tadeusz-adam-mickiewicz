@@ -1,3 +1,4 @@
+Jak gdyby się ozwały wszystkie drzewa puszczy:\
 Tak dzieje się z rozmową. Z wolna się pomyka:\
 Aż natrafi na przedmiot wielki, jak na dzika.\
 Dzikiem rozmów strzeleckich, był ów spór zażarty\
