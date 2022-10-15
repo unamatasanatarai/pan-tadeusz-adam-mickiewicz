@@ -1,3 +1,4 @@
+Że dbasz o interesa nawet przy obiedzie,\
 Nie tak jak modni wieku twojego panicze,\
 Żyjący bez rachunku. Ja tuszę i życzę\
 Zgodą zakończyć moje sądy podkomorskie.\
