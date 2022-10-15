@@ -1,3 +1,4 @@
+Oblicze aż na krzaki fijołkowe skłonił,\
 Oczyma ciekawymi po drożynach gonił\
 I znowu je na drobnych śladach zatrzymywał,\
 Myślał o nich i, czyje były, odgadywał.\
