@@ -1,3 +1,4 @@
+Płyną; na niebie gorą tu i ówdzie łuny,\
 Ziemia drży, słychać, biją stronami pioruny. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojna! wojna! Nie było w Litwie kąta ziemi,\
