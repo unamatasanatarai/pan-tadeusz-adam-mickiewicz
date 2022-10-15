@@ -1,3 +1,4 @@
+Ile pamiątek, jaka żałość długa,\
 Tam, gdzie do pana przywiązańszy sługa\
 Niż w innych krajach małżonka do męża;\
 Gdzie żołnierz dłużej żałuje oręża\
