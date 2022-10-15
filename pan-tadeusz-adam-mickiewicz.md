@@ -1,3 +1,4 @@
+Stary Maciek-Rózeczka, za chłopa przebrany.\
 Szlachta zaczęła krzyczeć, skoro się pokazał,\
 On rzekł: «Głupi!» ... i ręką milczenie nakazał.\
 Na trzecim wozie Prusak w kubraku wytartym,\
