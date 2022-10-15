@@ -1,3 +1,4 @@
+Podobnie pleban Mirski zawiesił w kościele\
 Wykopane olbrzymów żebra i piszczele.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Takie gwiazd historyje, które z książek zbadał\
