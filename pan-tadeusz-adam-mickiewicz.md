@@ -1,3 +1,4 @@
+Szanuję też Dobrzyńskich, Bartków i Maciejów,\
 Jako dobrych sąsiadów, panów dobrodziejów;\
 A mówię tak: jeżeli państwo chcą gwałt zrobić\
 Sędziemu, to bardzo źle. Możecie się pobić,\
