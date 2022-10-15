@@ -1,3 +1,4 @@
+«Requiescat in pace!» dodał Podkomorzy;\
 «Już ci — zakończył Sędzia — był w tym palec Boży!\
 Lecz ja tej krwi nie winien, jam o tym nie wiedział».
 
