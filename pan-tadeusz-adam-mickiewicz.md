@@ -1,3 +1,4 @@
+Aby cenić litewskie pieśni i potrawy,\
 Trzeba mieć zdrowie, na wsi żyć, wracać z obławy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przecież i bez tych przypraw potrawą nie lada\
