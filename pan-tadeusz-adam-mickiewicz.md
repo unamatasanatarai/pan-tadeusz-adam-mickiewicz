@@ -1,3 +1,4 @@
+A tam, po drugiej stronie pan przekreskowany\
 Sam jeden, czapkę wcisnął na łeb zadumany.\
 Żona przed domem czeka, zgadła, co się dzieje,\
 Biedna! oto na ręku pokojowej mdleje;\
