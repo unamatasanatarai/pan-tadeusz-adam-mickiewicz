@@ -1,3 +1,4 @@
+Grzeczność wszystkim należy, lecz każdemu inna;\
 Bo nie jest bez grzeczności i miłość dziecinna,\
 I wzgląd męża dla żony przy ludziach, i pana\
 Dla sług swoich, a w każdej jest pewna odmiana.\
