@@ -1,3 +1,4 @@
+Jeszcze zbyt wcześnie, jeszcze na pniu stoi zboże\
 I mnóstwo sznurów chłopskiej niezżętej jarzyny:\
 Stąd i Hrabia nie przybył mimo zaprosiny.\
 Hrabia na polowaniu bardzo dobrze zna się,\
