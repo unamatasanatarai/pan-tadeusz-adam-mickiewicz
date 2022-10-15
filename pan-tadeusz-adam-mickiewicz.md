@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«O ty — rzekł — jakimkolwiek uczczę cię imieniem,\
 Bóstwem jesteś czy nimfą, duchem czy widzeniem!\
 Mów: własna li cię wola na ziemię sprowadza,\
 Obca li więzi ciebie na padole władza?\
