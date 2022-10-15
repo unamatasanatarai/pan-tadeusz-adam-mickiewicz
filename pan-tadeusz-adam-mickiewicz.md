@@ -1,3 +1,4 @@
+Sędzia dotąd, przez winny wzgląd na lata stare,\
 Odmawiał jego prośbom; dziś przyjął ofiarę,\
 Dla naglącej potrzeby.
 
