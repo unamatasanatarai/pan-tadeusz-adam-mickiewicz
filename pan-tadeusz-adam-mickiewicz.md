@@ -1,3 +1,4 @@
+Moja nimfa tajemna pono gęsi pasie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z nimfy zniknieniem, całe czarowne przezrocze\
 Zmieniło się. Te wstęgi, te kraty urocze\
