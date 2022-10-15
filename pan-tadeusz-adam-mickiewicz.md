@@ -1,3 +1,4 @@
+Tadeusz patrzył wesół i zacierał ręce.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czy ktoś Zosi poradził wyjść w takiej sukience,\
 Czy instynktem wiedziała (bo dziewczyna zgadnie\
