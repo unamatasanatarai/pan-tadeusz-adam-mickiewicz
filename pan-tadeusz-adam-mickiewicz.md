@@ -1,3 +1,4 @@
+I nie przeczym, że nasi synowie i wnuki\
 Mają od starych więcej książkowej nauki;\
 Ale co dzień postrzegam, jak młodź cierpi na tem,\
 Że nie ma szkół uczących żyć z ludźmi i światem.\
