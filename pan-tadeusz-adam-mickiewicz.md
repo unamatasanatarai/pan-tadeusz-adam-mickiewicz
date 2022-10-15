@@ -1,3 +1,4 @@
+(Prawą miał na temlaku, widać, że był ranny)\
 Z takimi odezwał się słowami do panny:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Zofijo, musisz to mnie koniecznie powiedzieć,\
