@@ -1,3 +1,4 @@
+Pył za nim, psy za pyłem; z daleka się zdało,\
 Że zając, psy i charty jedne tworzą ciało:\
 Jakby jakaś przez pole suwała się żmija,\
 Kot jak głowa, pył z tyłu jakby modra szyja,\
