@@ -1,3 +1,4 @@
+Byś została romansów heroiną smutnych!\
 Odkryj mi, piękna, tajnie twych losów okrutnych!\
 Znajdziesz wybawiciela. Odtąd twym skinieniem,\
 Jak rządzisz sercem moim, tak rządź mym ramieniem».\
