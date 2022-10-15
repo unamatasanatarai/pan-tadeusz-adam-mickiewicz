@@ -1,3 +1,4 @@
+Jeżeli na was raptus podobny napada,\
 Bądźcie tylko cierpliwi, już jest na to rada;\
 Biorę na siebie wkrótce przywieść was do zgody.\
 Znam ja te wszystkie głupstwa, wszakże byłem młody.\
