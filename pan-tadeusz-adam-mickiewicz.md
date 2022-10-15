@@ -1,3 +1,4 @@
+I nie da się przemocą okuwać w kajdany».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym Sędzia, powstawszy, odszedł zamyślony.\
 Pan Tadeusz z przeciwnej przybliżył się strony,\
