@@ -1,3 +1,4 @@
+Chmura coraz gęstniała, zwieszała się niżej:\
 Aż, jedną stroną na wpół od niebios oddarta,\
 Ku ziemi wychylona i wszerz rozpostarta,\
 Jak wielki żagiel, biorąc wszystkie wiatry w siebie,\
