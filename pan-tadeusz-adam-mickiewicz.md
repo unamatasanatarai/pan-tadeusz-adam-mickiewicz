@@ -1,3 +1,4 @@
+Godna pochwały czujność i srogość urzędów.\
 Byłam ja w Petersburku, nie raz, nie dwa razy!\
 Miłe wspomnienia! wdzięczne przeszłości obrazy!\
 Co za miasto! Nikt z panów nie był w Petersburku?\
