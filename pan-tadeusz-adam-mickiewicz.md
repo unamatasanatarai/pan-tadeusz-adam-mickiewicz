@@ -1,3 +1,4 @@
+«Wielki człowiek — zawołał Cydzik — a w kapocie?\
 Ja myśliłem, że wielcy ludzie chodzą w złocie:\
 Bo u Moskalów lada jenerał, mospanie,\
 To tak świeci się w złocie jak szczupak w szafranie».\
