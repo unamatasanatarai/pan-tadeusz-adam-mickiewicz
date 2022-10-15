@@ -1,3 +1,4 @@
+On, za krzesłem Sędziego stojąc niewzruszenie,\
 Ciągnął woźnieńskim głosem swoje oświadczenie,\
 Aż skończył i z pustego zszedł pobojowiska,\
 Kędy zostały trupy, ranni i zwaliska.
