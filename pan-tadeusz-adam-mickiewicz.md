@@ -1,3 +1,4 @@
+Z domu senatorskiego, jest dygnitarzówna.\
 Jeżeliby do skutku przyszło ożenienie,\
 Telimena w ich domu miałaby schronienie\
 Na przyszłość; krewna Zosi i Hrabiego swatka,\
