@@ -1,3 +1,4 @@
+Tylko wrony, stadami obstąpiwszy stawy,\
 Przechadzają się sobie poważnymi kroki,\
 Czarne oczy kierują na czarne obłoki,\
 Wytknąwszy język z suchej szerokiej gardzieli\
