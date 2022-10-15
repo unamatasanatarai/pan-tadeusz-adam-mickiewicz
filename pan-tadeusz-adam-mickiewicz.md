@@ -1,3 +1,4 @@
+Nigdy jeden drugiego nie kąsa ni bodzie.\
 Nawet gdyby tam człowiek wpadł, chociaż niezbrojny,\
 Toby środkiem bestyi przechodził spokojny;\
 One by nań patrzyły tym wzrokiem zdziwienia,\
