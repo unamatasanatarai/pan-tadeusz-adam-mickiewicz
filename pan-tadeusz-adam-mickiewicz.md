@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Chciałeś zemsty? masz!... Boś ty był narzędziem kary\
 Bożej, twoim Bóg mieczem rozciął me zamiary:\
 Tyś wątek spisku tyle lat snowany splątał!\
 Cel wielki, który całe życie me zaprzątał,\
