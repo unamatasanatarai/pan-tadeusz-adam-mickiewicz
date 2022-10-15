@@ -1,3 +1,4 @@
+Który był, jak wiadomo, wujem mego pana.\
 Słuchaj pan historyi swej własnej rodzinnej,\
 Która się stała właśnie w tej izbie, nie innej.
 
