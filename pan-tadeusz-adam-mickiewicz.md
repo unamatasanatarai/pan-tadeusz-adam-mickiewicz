@@ -1,3 +1,4 @@
+Którą w czasie zajazdu Dobrzyński Sak krwawy\
 Zrobił na kurnik, kędy Zosi gospodarstwo\
 Zniszczył, nie zostawiwszy sztuki na lekarstwo,\
 Jeszcze nie mogło ptastwem zakwitnąć na nowo\
