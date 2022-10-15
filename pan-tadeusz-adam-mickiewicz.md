@@ -1,3 +1,4 @@
+Potem zaczęli oba słuchaczom wywodzić:\
 Jak ich charty bez smycza nie nawykły chodzić,\
 Jak kot znienacka wypadł, jak źle był poszczuty\
 Na roli, gdzie psom chyba trzeba by wdziać buty,\
