@@ -1,3 +1,4 @@
+Jutro na brzask obława, lecz na ochotnika;\
 Kto wystąpi z oszczepem, temu z robocizny\
 Wytrącić dwa szarwarki i pięć dni pańszczyzny».
 
