@@ -1,3 +1,4 @@
+I gdy nieśmiertelnymi przesłonisz wawrzyny\
 Skrwawiony szyszak i hełm twój zwycięstwem hardy:\
 I wtenczas jeszcze oko zwróć do tej kokardy,\
 Wspomnij, czyja ten kolor przyszpiliła ręka!»\
