@@ -1,3 +1,4 @@
+Tylko odmienił życie dawne, stan i imię,\
 A wszystkie przeciw Bogu i Ojczyźnie winy\
 Zgładził przez żywot święty i przez wielkie czyny.
 
