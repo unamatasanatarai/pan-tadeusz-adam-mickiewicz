@@ -1,3 +1,4 @@
+W krobeczce z prostej kory podaje zebrane\
 Bruśnice świeże jako jej usta rumiane.\
 Obok młodzieniec idzie, leszczynę nagina:\
 Chwyta w lot migające orzechy dziewczyna.
