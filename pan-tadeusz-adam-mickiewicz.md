@@ -1,3 +1,4 @@
+Dziwnym trafem z Doweyką zjechał się u promu.\
 Gdy więc na jednym promie płynęli Wilejką,\
 Pyta sąsiada, kto on? odpowie: Doweyko —\
 Nie czekając, dobywa rapier spod kirejki:\
