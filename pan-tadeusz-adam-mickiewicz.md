@@ -1,3 +1,4 @@
+I przystąpiwszy, cicho jęknęła: «Niewdzięczny!\
 Szukałeś wzroku mego, teraz go unikasz;\
 Szukałeś rozmów ze mną, dziś uszy zamykasz,\
 Jakby w słowach, we wzroku mym była trucizna!\
