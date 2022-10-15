@@ -1,3 +1,4 @@
+Więcej słychać niemieckich tytułów w tym tłumie\
 Niżeli narodowych! Kto to już zrozumie!\
 A muszą też być z wami Turki czy Tatary\
 Czy syzmatyki, co ni Boga, ani wiary:\
