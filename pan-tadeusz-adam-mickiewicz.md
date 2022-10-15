@@ -1,3 +1,4 @@
+Pokojowa zaś świeżo zebrane bławatki\
 Uwiązawszy w plecionkę daje Telimenie,\
 Ta ją do głowy Zosi przyszpila uczenie,\
 Z prawej strony na lewo: kwiat od bladych włosów\
