@@ -1,3 +1,4 @@
+Ważył z kolei wszystkie planety i ziemię,\
 Nim w przepaściach powietrza osadził ich brzemię;\
 Potem wagi złociste zawiesił na niebie:\
 Z nich to ludzie wag i szal wzór wzięli dla siebie.
