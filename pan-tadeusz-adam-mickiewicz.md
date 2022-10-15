@@ -1,3 +1,4 @@
+Już włożył mundur siny z polskimi wyłogi\
 I ciągnął krzywą szablę i dzwonił w ostrogi.\
 Obok poważnym krokiem szła jego kochanka\
 Ubrana bardzo strojnie, Tekla Hreczeszanka;\
