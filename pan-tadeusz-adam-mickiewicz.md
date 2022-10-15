@@ -1,3 +1,4 @@
+Potem rękę w tył nieco wychyloną kiwał,\
 Niby bawiąc się: lecz się w Hrabiego wpatrywał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sztuka rzucania nożów, straszna w ręcznej bitwie,\
