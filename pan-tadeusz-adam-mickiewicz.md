@@ -1,3 +1,4 @@
+Po srebrzystych na żółtej kurcie Półkozicach.\
 Stąpał jako słup prosto, niemy i surowy,\
 Nie zdjąwszy czapki, nawet nie schyliwszy głowy;\
 W ręku trzymał błyszczący klucz jakby puginał,\
