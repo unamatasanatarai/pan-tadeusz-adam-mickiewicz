@@ -1,3 +1,4 @@
+I rozpiął skrzydła białe, wczesny sztandar wiosny;\
 A za nim, krzykliwymi nadciągnąwszy pułki,\
 Gromadziły się ponad wodami jaskółki\
 I z ziemi zmarzłej brały błoto na swe domki.\
