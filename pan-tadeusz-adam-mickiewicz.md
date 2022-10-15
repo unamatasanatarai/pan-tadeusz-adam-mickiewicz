@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Słychać rżenie koni\
 I gwar myśliwców; już są pod bramą: to oni!\
 Wziąwszy Zosię pod rękę pobiegła do sali.\
 Myśliwi na pokoje jeszcze nie wchadzali;\
