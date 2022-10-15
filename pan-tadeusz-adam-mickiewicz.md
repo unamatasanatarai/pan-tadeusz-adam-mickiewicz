@@ -1,3 +1,4 @@
+Ale nim odszedł, spojrzał przez otwór strzelnicy,\
 I widząc świateł mnóstwo w domostwie Soplicy:\
 «Iluminujcie! — krzyknął — jutro o tej porze\
 Będzie jasno w tym zamku, ciemno w waszym dworze!»
