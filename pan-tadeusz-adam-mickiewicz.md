@@ -1,3 +1,4 @@
+Rozdziela czułą parę i z izby wypędza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem pan Tadeusz stryja obejmował\
 Ze łzami i Robaka w rękę pocałował.\
