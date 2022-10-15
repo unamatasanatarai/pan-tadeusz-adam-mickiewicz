@@ -1,3 +1,4 @@
+Puszczają się znów za nim. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Brzmią zewsząd okrzyki:\
 «Ach to może ostatni! patrzcie, patrzcie młodzi,\
