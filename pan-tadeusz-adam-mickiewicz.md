@@ -1,3 +1,4 @@
+Mów: własna li cię wola na ziemię sprowadza,\
 Obca li więzi ciebie na padole władza?\
 Ach, domyślam się, — pewnie wzgardzony miłośnik,\
 Jaki pan możny, albo opiekun zazdrośnik,\
