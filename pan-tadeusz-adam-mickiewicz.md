@@ -1,3 +1,4 @@
+A już w środku Kropidło grzmi, już Brzytwa błyska,\
 Siecze Rózga, od dworu wpada szlachty tłuszcza,\
 A Hrabia od bram jazdę na rozpierzchłych puszcza.
 
