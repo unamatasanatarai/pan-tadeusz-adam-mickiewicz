@@ -1,3 +1,4 @@
+Podbiegła i nakryła rączką te rycerze;\
 Jeszcze się w ręku bili, aż leciało pierze,\
 Taka była zawziętość w tym maleńkim lichu.\
 Baby patrząc na Zosię, gadały po cichu,\
