@@ -1,3 +1,4 @@
+Ona z tej Horeszkowskiej wyszła jednorurki\
 (Tu podniósł flintę starą, obwiązaną w sznurki),\
 Lecz nie ja wystrzeliłem. O, trzeba tam było\
 Odwagi; straszno wspomnieć, w oczach mi się ćmiło!\
