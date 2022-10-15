@@ -1,3 +1,4 @@
+I uszczuć, postawiwszy charty na przesmyku.\
 Bieży Asesor, ciągnąc za obróż Sokoła;\
 Pośpiesza za nim Rejent i Kusego woła.\
 Wojski obu z chartami przy płocie ustawił,\
