@@ -1,3 +1,4 @@
+Jak o tym pieśń powiada. Ja mam dosyć na tem,\
 Że mój Scyzoryk jeszcze zabłyśnie przed światem\
 W takim ręku! Niech tylko jenerał pamięta,\
 Aby tasiemka była długa, rozciągnięta,\
