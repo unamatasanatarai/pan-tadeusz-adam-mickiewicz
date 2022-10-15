@@ -1,3 +1,4 @@
+Dzieje całej ludzkości, i cóż w nich spostrzegam?\
 Oto, ród ludzki dziki, w lasach rozpierzchniony,\
 Skupia się, zbiera, łączy dla wspólnej obrony,\
 Obmyśla ją; i to jest najpierwsza obrada.\
