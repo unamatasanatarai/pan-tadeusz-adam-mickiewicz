@@ -1,3 +1,4 @@
+Pędził ku karczmom, które stały przy kaplicy,\
 Kędy mieli się rankiem zebrać obławnicy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dwie chyliły się karczmy po dwóch stronach drogi,\
