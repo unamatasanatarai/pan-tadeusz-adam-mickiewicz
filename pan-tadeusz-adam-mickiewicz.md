@@ -1,3 +1,4 @@
+I anioł burzy, na kształt niezmiernego słońca\
 Rozświeci twarz, i znowu okryty całunem\
 Uciekł w niebo i drzwi chmur zatrzasnął piorunem.\
 Znowu wzmaga się burza, ulewa nawalna\
