@@ -1,3 +1,4 @@
+I brylantową szpinką ku słońcu migotał,\
 I wąs pokręcał dumnie, i wzrok dumny miotał...\
 I zdało mi się, że mnie szczególniej urągał,\
 Że mnie poznał i ku mnie rękę tak wyciągał,\
