@@ -1,3 +1,4 @@
+Tak ubrany, na wzgórek wstąpił przed kościołem,\
 Wieśniacy i żołnierstwo ścisnęło się kołem,\
 On rzekł:
 
