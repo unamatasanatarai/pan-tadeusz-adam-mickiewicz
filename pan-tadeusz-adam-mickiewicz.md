@@ -1,3 +1,4 @@
+Dowieść przychodzącemu Napoleonowi,\
 Że chcą złączyć się znowu z siostrą swą, Koroną,\
 I żądają, ażeby Polskę przywrócono.\
 Tymczasem, bracie, z Hrabią trzeba przyjść do zgody.\
