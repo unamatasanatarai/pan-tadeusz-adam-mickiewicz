@@ -1,3 +1,4 @@
+Które z przodu ciągnie się aż pod dworską ścianę,\
 A z tyłu, pospolicie stykając się z chmielem,\
 Kryje atak i odwrót przed nieprzyjacielem.
 
