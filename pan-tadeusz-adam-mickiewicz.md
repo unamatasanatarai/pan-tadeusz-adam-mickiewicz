@@ -1,3 +1,4 @@
+Obaczcież, co się wewnątrz tabakierki dzieje».\
 Tu, wycierając chustką zabrudzone denko,\
 Pokazał malowaną armiję maleńką\
 Jak rój much; w środku jeden człowiek na rumaku,\
