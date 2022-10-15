@@ -1,3 +1,4 @@
+Nocą włazi, ten puszczyk, i ja go wystraszę».\
 «Za drzwi z nim!» Podkomorzy krzyknął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Panie Hrabia! —\
