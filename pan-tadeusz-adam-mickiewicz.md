@@ -1,3 +1,4 @@
+Czy o to gniew? tak u nas po żołniersku żyją.\
 Skąd by się człowiekowi tyle złości wzięło\
 Gniewać się o przegranę! Oczakowskie dzieło\
 Było krwawe, pod Zurich zbili nam piechotę,\
