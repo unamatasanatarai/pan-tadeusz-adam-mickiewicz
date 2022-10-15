@@ -1,3 +1,4 @@
+On koło wozów całą ustawia gromadę,\
 Każe czekać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Bernardyn wstąpił do pokoju.\
