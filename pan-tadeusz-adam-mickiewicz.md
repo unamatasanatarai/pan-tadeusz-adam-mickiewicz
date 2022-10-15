@@ -1,3 +1,4 @@
+W senacie, znowu w ziemstwie i guberskim rządzie;\
 Wreszcie, po wielu kosztach i ukazach licznych,\
 Sprawa wróciła znowu do sądów granicznych.
 
