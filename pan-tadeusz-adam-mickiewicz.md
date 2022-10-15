@@ -1,3 +1,4 @@
+Przed dekretem ten zamek za wcześnie przywłaszczasz:\
 Nie wać tu jesteś panem, nie wać nas ugaszczasz.\
 Siedź cicho, jakeś siedział; jeśli siwej głowy\
 Nie czcisz, to szanuj pierwszy urząd powiatowy».
