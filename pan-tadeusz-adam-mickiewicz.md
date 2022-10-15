@@ -1,3 +1,4 @@
+Może i trzem: Gerwazy nie będzie się chwalił,\
 Ale gdyby ostatnie z krwi Horeszków dziecię\
 Wpadło w bestyi paszczę, nie byłbym na świecie,\
 I moje by tam stare pogryzł niedźwiedź kości;\
