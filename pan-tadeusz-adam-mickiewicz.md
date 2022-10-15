@@ -1,3 +1,4 @@
+Ja nie fanfaron, chciałem mą własną zasługą\
 Zyskać twe względy, choćby przyszło czekać długo.\
 Teraz jesteś łaskawa twe słowo powtórzyć:\
 Czymże na tyle łaski umiałem zasłużyć?\
