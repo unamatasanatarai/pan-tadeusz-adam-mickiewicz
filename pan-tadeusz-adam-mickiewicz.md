@@ -1,3 +1,4 @@
+Wyszedł przewodniczący całemu zebraniu\
 Podkomorzy, niedawno przez powiatu stany\
 Zgodnie konfederackim marszałkiem obrany.\
 Miał mundur województwa: żupan złotem szyty,\
