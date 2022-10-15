@@ -1,3 +1,4 @@
+I panuje z Pomoną, Florą i Wertumnem\
 Nad Dobrzyńskiego domem, stodołą i gumnem.\
 Ale dziś muszą znowu ustąpić boginie:\
 Mars powraca.
