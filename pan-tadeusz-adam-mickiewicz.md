@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Bydło, zwykle do domu powracać leniwe,\
 Teraz zbiega się tłumnie, pasterzy nie czeka\
 I opuszczając strawę do domu ucieka.\
