@@ -1,3 +1,4 @@
+Szląc na targ kuropatwy, które łowił w sidła\
 I polując na źwierza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Było dość w Dobrzynie\
