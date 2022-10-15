@@ -1,3 +1,4 @@
+I swoim kosztem cały pułk jazdy wystawił,\
 I w pierwszej zaraz bitwie wybornie się sprawił,\
 Cesarz go pułkownikiem dziś właśnie mianował;\
 Więc Sędzia witał Hrabię i rangi winszował,\
