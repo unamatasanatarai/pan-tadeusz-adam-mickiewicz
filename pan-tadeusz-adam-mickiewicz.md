@@ -1,3 +1,4 @@
+Zgadnijcie czyja? — Wszyscy patrzyli ciekawie.—\
 Wielki to człowiek, cesarz, ale nie Moskali,\
 Ich carowie tabaki nigdy nie bierali...»\
 «Wielki człowiek — zawołał Cydzik — a w kapocie?\
