@@ -1,3 +1,4 @@
+Ten błąd był jedną z przyczyn naszej smutnej zwady,\
 Która mię przymusiła dostać na was szpady.\
 Postrzegam błąd mój: boś ty wzdychał ku pasterce,\
 Ja zaś tej pięknej nimfie oddałem me serce.\
