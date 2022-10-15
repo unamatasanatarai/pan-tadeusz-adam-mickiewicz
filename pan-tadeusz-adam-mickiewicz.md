@@ -1,3 +1,4 @@
+Cały powiat ruszy się, jeśli on powstanie;\
 Znając jego majątek, każdy szlachcic powie:\
 Musi to być rzecz pewna, gdy z nią są panowie.\
 Biegę do niego zaraz...» «Niech się pierwszy zgłosi —\
