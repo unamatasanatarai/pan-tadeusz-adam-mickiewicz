@@ -1,3 +1,4 @@
+Podnosiła się coraz, na szalu uklękła;\
 Zrazu słuchała pilnie, potem dłoni ruchem\
 Przeczyła, ręką żwawo wstrząsając nad uchem,\
 Odpędzając jak owad nieprzyjemne słowa\
