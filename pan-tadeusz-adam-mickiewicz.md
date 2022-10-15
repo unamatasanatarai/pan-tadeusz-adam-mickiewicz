@@ -1,3 +1,4 @@
+«Jem wcześnie — rzekł Dobrzyński — ja tu nie dla jadła\
 Przybyłem, tylko że mnie ciekawość napadła,\
 Obejrzeć z bliska naszą armią narodową.\
 Wieleby gadać — jest to ani to, ni owo!\
