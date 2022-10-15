@@ -1,3 +1,4 @@
+On raptem porwał obu z tyłu za kołnierze\
 I dwakroć uderzywszy głowy obie mocne\
 Jedną o drugą, jako jaja wielkanocne,\
 Rozkrzyżował ramiona na kształt drogowskazu\
