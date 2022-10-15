@@ -1,3 +1,4 @@
+I czarną łapą sięgał Hrabiego włos płowy.\
 Zdarłby mu czaszkę z mozgów jak kapelusz z głowy,\
 Gdy Asesor z Rejentem wyskoczyli z boków,\
 A Gerwazy biegł z przodu o jakie sto kroków,\
