@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Córka Stolnika ze swym mężem wojewodą,\
 Gdzieś w Sybir wywieziona, tam umarła młodo;\
 Zostawiła tę w kraju córkę, małą Zosię;\
 Kazałem ją hodować...
