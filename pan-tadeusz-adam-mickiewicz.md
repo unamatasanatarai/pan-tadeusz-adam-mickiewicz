@@ -1,3 +1,4 @@
+Drogą, jaką ciągnęły wojska Mahometa,\
 Z wschodu na zachód. Potem i ksiądz Bartochowski,\
 Składając panegiryk na tryumf krakowski,\
 Pod godłem Orientis Fulmen, prawił wiele\
