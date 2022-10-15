@@ -1,3 +1,4 @@
+«Kolego — rzekł — jeżeli ustąpisz mnie żony\
 I dziecka, to zostaniesz przez resztę żywota\
 Bardzo samotny, stary, wdowiec i sierota!\
 Powiedz, czym ci ten drogi dar mam wynagrodzić\
