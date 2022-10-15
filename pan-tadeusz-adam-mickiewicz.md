@@ -1,3 +1,4 @@
+Na nabożeństwie mają być jenerałowie,\
 Sławni dowódcy owi naszych legijonów,\
 Których lud znał imiona i czcił jak patronów,\
 Których wszystkie tułactwa, wyprawy i bitwy\
