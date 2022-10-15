@@ -1,3 +1,4 @@
+Dobre miałem przeczucie, żem lubił te mury!\
 Choć nie wiedziałem, że w nich taki skarb się mieści,\
 Tyle scen dramatycznych i tyle powieści!\
 Skoro zamek mych przodków Soplicom zagrabię,\
