@@ -1,3 +1,4 @@
+Lekkie jak pajęczyna, przejrzyste jak szkiełka,\
 Gdy w powietrzu zawisną, zaledwo widome,\
 I chociaż brzęczą, myślisz, że są nieruchome.
 
