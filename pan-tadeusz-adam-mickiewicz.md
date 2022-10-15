@@ -1,3 +1,4 @@
+To jest co najdroższego na świecie posiadam;\
 Nie miałem nigdy żony, nie miałem dziecięcia,\
 On był żoną i dzieckiem; z mojego objęcia\
 Nigdy on nie wychodził; od rana do mroku\
