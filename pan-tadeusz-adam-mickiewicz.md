@@ -1,3 +1,4 @@
+Wojska polskiego, może wkrótce będzie więcéj:\
 A któż wojsko opłaci? czy nie wy, Litwini?\
 Wy tylko grosz dajecie do moskiewskiej skrzyni».\
 «Kat by dał — krzyknął Wilbik — gwałtem od nas biorą».\
