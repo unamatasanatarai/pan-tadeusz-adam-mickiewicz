@@ -1,3 +1,4 @@
+Lecz nim odszedł, wyskoczył na wzgórek z kamienia\
 I Moskalom przez Niemen rzekł: «Do zobaczenia!»\
 Tak przekradł się Gorecki, Pac i Obuchowicz,\
 Piotrowski, Obolewski, Rożycki, Janowicz,\
