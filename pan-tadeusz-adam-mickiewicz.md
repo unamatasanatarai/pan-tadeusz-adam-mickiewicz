@@ -1,3 +1,4 @@
+Nazywał się Soplica: wszyscy Soplicowie\
 Są, jak wiadomo, krzepcy, otyli i silni,\
 Do żołnierki jedyni, w naukach mniej pilni.
 
