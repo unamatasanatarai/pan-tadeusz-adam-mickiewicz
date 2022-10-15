@@ -1,3 +1,4 @@
+Bożej, twoim Bóg mieczem rozciął me zamiary:\
 Tyś wątek spisku tyle lat snowany splątał!\
 Cel wielki, który całe życie me zaprzątał,\
 Ostatnie moje ziemskie uczucie na świecie,\
