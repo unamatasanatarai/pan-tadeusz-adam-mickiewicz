@@ -1,3 +1,4 @@
+Wiedziałem, że spudłuje. Szarak, gracz nie lada,\
 Czchał niby prosto w pole, za nim psów gromada;\
 Gracz szarak! Skoro poczuł wszystkie charty w kupie\
 Pstręk na prawo, koziołka, z nim w prawo psy głupie,\
