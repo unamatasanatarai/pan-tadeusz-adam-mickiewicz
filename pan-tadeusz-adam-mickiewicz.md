@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W ludziach straty nie było. Ale wszystkie ławy\
 Miały zwichnione nogi; stół także kulawy,\
 Obnażony z obrusa, poległ na talerzach\
