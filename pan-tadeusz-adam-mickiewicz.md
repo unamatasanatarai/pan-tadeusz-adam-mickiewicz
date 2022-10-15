@@ -1,3 +1,4 @@
+I w twarz spojrzała, z której wytryskał rumieniec,\
 Ilekroć z jej oczyma spotkał się młodzieniec:\
 Bo z pierwszej lękliwości całkiem już ochłonął,\
 I patrzył wzrokiem śmiałym, w którym ogień płonął.\
