@@ -1,3 +1,4 @@
+Że jako robak w prochu...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zły przykład dla ojczyzny, zachętę do zdrady\
 Trzeba było okupić dobrymi przykłady,\
