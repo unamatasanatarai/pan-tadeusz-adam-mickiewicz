@@ -1,3 +1,4 @@
+Jak pióro nad szyszakiem u kirasyjera:\
 Chociaż tak osłoniona, dokoła spoziera,\
 Dostrzegłszy gościa, skacze gajów tanecznica\
 Z drzew na drzewa, miga się jako błyskawica;\
