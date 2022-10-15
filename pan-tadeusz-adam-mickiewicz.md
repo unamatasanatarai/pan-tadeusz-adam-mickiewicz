@@ -1,3 +1,4 @@
+Nie pytaj więcej; jeśli Zosia czekać raczy,\
 Może mnie wkrótce lepszym, godniejszym obaczy,\
 Może stałością na jej wzajemność zarobię,\
 Może troszeczką sławy me imię ozdobię,\
