@@ -1,3 +1,4 @@
+Więc szlachcic obyczaje swe trzymał pod strażą.\
 Dziś człowieka nie pytaj: co zacz? kto go rodzi?\
 Z kim on żył? co porabiał? Każdy gdzie chce wchodzi,\
 Byle nie szpieg rządowy i byle nie w nędzy.\
