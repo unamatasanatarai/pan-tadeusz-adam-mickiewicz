@@ -1,3 +1,4 @@
+Pośrodku szła dziewczyna w bieliznę ubrana,\
 W majowej zieloności tonąc po kolana;\
 Z grzęd zniżając się w bruzdy, zdała się nie stąpać,\
 Ale pływać po liściach, w ich barwie się kąpać.\
