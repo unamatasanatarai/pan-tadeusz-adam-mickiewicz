@@ -1,3 +1,4 @@
+Natenczas i Rębajło uzna chłopa równym,\
 Gdy go ujrzy szlachcicem wielmożnym, herbownym.\
 Sejm potwierdzi.
 
