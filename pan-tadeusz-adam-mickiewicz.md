@@ -1,3 +1,4 @@
+Ale pan Sędzia w ucho rzekł do jenerała:\
 «Każ pan, żeby się jeszcze kapela wstrzymała.\
 Wiesz, że dzisiaj synowca mego zaręczyny;\
 A dawnym obyczajem jest naszej rodziny,\
