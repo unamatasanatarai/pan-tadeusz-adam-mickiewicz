@@ -1,3 +1,4 @@
+Za ptastwem i lud ruszył do naszego kraju,\
 Pędzony niepojętą, instynktową mocą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Konie, ludzie, armaty, orły, dniem i nocą\
