@@ -1,3 +1,4 @@
+Potem jęki po jękach skomlą — to psów granie;\
 A gdzieniegdzie ton twardszy jak grzmot — to strzelanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu przerwał, lecz róg trzymał; wszystkim się zdawało,\
