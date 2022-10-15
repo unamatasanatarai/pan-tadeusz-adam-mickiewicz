@@ -1,3 +1,4 @@
+O Bonaparta, zawsze wam tam do Warszawy!\
 He! Ojczyzna! Ja nie szpieg, a po polsku umiem, —\
 Ojczyzna! ja to czuję wszystko, ja rozumiem!\
 Wy Polaki, ja Ruski: teraz się nie bijem,\
