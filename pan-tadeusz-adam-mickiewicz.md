@@ -1,3 +1,4 @@
+Radzić się; już pytałem stryja, on nie przeczy.\
 Wiesz, iż znaczna część wiosek które mam posiadać,\
 Wedle prawa na ciebie powinna by spadać.\
 Ci chłopi są nie moi, lecz twoi poddani:\
