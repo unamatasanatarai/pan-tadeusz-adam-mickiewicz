@@ -1,3 +1,4 @@
+Był to rapier sążnistej długości, szeroki\
 Na całą piędź, a sieczny na obadwa boki,\
 Widocznie miecz teutoński z norymberskiej stali\
 Ukuty: wszyscy milcząc na broń poglądali.\
