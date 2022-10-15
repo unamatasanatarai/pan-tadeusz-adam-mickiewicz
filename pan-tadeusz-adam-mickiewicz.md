@@ -1,3 +1,4 @@
+Jużci pleban inaczej uczy na ambonie...\
 Powiada, że to było tak w Starym Zakonie,\
 Ale skoro Chrystus Pan, choć z królów pochodził,\
 Między Żydami w chłopskiej stajni się urodził,\
