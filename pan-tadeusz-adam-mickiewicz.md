@@ -1,3 +1,4 @@
+Twe sztuki już nie zwiodą innych, jak mnie zwiodły!\
 Precz! gardzę tobą! jesteś kłamca, człowiek podły!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na obelgę śmiertelną dla uszu szlachcica,\
