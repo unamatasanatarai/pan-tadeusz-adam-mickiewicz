@@ -1,3 +1,4 @@
+Trzech było strzelców, a szedł ogień nieustanny.\
 Grad kul sypały z dołu moskiewskie piechury;\
 My z rzadka, ale celniej dogrzewali z góry.\
 Trzy razy aż pode drzwi to chłopstwo się wparło,\
