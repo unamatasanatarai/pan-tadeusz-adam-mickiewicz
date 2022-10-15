@@ -1,3 +1,4 @@
+Których wszystkie tułactwa, wyprawy i bitwy\
 Były ewangeliją narodową Litwy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już przyszło oficerów kilku, tłum żołnierzy;\
