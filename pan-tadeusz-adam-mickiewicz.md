@@ -1,3 +1,4 @@
+Konnica! Dziwne stroje, niewidziane bronie!\
 Pułk za pułkiem; a środkiem, jak stopione śniegi,\
 Płyną drogami kute żelazem szeregi;\
 Z lasów czernią się czapki, rzęd bagnetów błyska,\
