@@ -1,3 +1,4 @@
+Zrzuca jej nitki srebra, złota i purpury,\
 Tworząc barwy i kwiaty: tak dziś ziemię całą\
 Wiatr tumanami osnuł, a słońce dzierzgało.
 
