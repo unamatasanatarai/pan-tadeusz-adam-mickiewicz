@@ -1,3 +1,4 @@
+Zdarł je; Rózga spadając brzękła po bagnetach.\
 Moskale cofają się, Maciek ich wygania\
 Na dziedziniec.
 
