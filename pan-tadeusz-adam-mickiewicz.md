@@ -1,3 +1,4 @@
+Jak do pacierza. Klucznik cofnął się zdumiony,\
 Uderzał ręką w czoło i ruszał ramiony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A ksiądz zaczął swą dawną z Horeszką zażyłość\
