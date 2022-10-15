@@ -1,3 +1,4 @@
+Bielą się długie słuchy; pod nimi jaskrawe\
 Przeświecają się oczki jak krwawe rubiny,\
 Gęsto wszyte w aksamit zielonej darniny.\
 Już króliki na łapkach stają; każdy słucha,\
