@@ -1,3 +1,4 @@
+Krwawym okiem z ukosa na rydwan spoziera,\
 Jakby chciał zająć puste miejsce Lucypera,\
 Warkocz długi w tył rzucił i część nieba trzecią\
 Obwinął nim, gwiazd krocie zagarnął jak siecią\
