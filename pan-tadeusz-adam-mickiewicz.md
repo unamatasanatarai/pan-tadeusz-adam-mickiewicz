@@ -1,3 +1,4 @@
+Tak oblicze spłonęło, tak oko pałało.\
 Zerwał się mówić; pierwsze słowo niewyraźnie\
 Mleł w ustach; aż przez zęby wyleciało: «Błaźnie!\
 Grafiątko! ja cię! Tomasz, karabelę! Ja tu\
