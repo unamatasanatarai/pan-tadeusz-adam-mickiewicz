@@ -1,3 +1,4 @@
+Malujesz tylko jakieś skały i pustynie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Przyjacielu — rzekł Hrabia — piękne przyrodzenie\
 Jest formą, tłem, materią; a duszą — natchnienie,\
