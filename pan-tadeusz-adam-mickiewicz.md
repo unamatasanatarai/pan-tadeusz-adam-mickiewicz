@@ -1,3 +1,4 @@
+Jeden biały jak srebro, krwawnikowy drugi,\
 Trzeci żółty; troistą grają w górze tęczą,\
 A spadając w sto kubków, we sto szklanek brzęczą.\
 Wre szlachta. Tamci piją, ci Hrabiemu życzą\
