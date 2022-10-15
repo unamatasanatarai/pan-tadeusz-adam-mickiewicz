@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ale na drugim piętrze, w izbie, którą zwano,\
 Choć była bez zwierciadeł, salą zwierciadlaną\
 Stał Hrabia na krużganku zwróconym ku bramie,\
 Chłodził się wiatrem, surdut wdział na jedno ramię,\
