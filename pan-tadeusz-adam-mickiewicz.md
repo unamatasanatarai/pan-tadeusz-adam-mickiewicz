@@ -1,3 +1,4 @@
+Potem każdy wolności własnej cząstkę składa\
 Dla dobra powszechnego: to pierwsza ustawa,\
 Z której jako ze źródła płyną wszystkie prawa.\
 Widzimy tedy, że rząd umową się tworzy,\
