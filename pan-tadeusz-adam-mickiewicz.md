@@ -1,3 +1,4 @@
+Dwóch drugich szlachty zranił, do trzeciego strzela:\
 Uciekają. Było to przy kłodzie Chrzciciela.\
 Ten już miał ręce wolne, gotowe ku walce;\
 Wstał, podniósł dłoń i zwinął w kłębek długie palce,\
