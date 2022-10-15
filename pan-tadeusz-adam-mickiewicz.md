@@ -1,3 +1,4 @@
+Ostatni z Jagiellonów wojownik szczęśliwy,\
 I ostatni na Litwie monarcha myśliwy.\
 Drzewa moje ojczyste! jeśli Niebo zdarzy,\
 Bym wrócił was oglądać, przyjaciele starzy,\
