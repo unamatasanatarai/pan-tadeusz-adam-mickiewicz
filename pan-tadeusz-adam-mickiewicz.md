@@ -1,3 +1,4 @@
+Niby bawiąc się: lecz się w Hrabiego wpatrywał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sztuka rzucania nożów, straszna w ręcznej bitwie,\
 Już była zaniedbana podówczas na Litwie,\
