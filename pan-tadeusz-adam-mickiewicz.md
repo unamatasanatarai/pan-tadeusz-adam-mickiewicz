@@ -1,3 +1,4 @@
+Wisiały jak zielone, gęste, niskie chmury;\
 Wicher kędyś nad sklepem szalał nieruchomym,\
 Jękiem, szumami, wyciem, łoskotami, gromem:\
 Dziwny, odurzający hałas! Mnie się zdało,\
