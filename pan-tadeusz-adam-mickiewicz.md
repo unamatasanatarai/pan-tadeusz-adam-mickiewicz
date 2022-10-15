@@ -1,3 +1,4 @@
+Częściej do książek niźli do psiarni zazierał\
 I do alkówek damskich częściej niż do lasów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W świcie księcia był książę niemiecki Denassów,\
