@@ -1,3 +1,4 @@
+Nikt oprócz mnie nie będzie myślił o jej szczęściu».\
 «A jeśli ona szczęście znajdzie w tym zamęściu? —\
 Rzekł Sędzia wzrok podnosząc. — Jeśli Tadeuszka\
 Podoba?» — «Czy podoba? to na wierzbie gruszka!\
