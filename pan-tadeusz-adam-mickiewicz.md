@@ -1,3 +1,4 @@
+Pan Klucznik ją z nowego zważa stanowiska».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Owszem — zawołał Klucznik — u mnie po staremu,\
 O wielkich rzeczach myśleć należy wielkiemu:\
