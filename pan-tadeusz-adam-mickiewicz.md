@@ -1,3 +1,4 @@
+Że Stolnik był was wszystkich ojciec i dobrodziéj:\
 Kogoż on komisarzem słał do swych dóbr pińskich?\
 Dobrzyńskiego! Rachmistrzów kogo miał? Dobrzyńskich!\
 Marszałkostwa, kredensu nie zwierzał nikomu,\
