@@ -1,3 +1,4 @@
+I siecią zielsk zarosłych, i kopcami mrowisk,\
 Gniazdami os, szerszeniów, kłębami wężowisk.\
 Gdybyś i te zapory zmógł nadludzkim męstwem,\
 Dalej spotkać się z większym masz niebezpieczeństwem:\
