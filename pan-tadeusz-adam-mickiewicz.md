@@ -1,3 +1,4 @@
+Do mnie batalijonu komenda należy».\
 Słysząc to Ryków, szpadę podniósł, wyszedł śmiało,\
 Kazał ognia zaprzestać, machnął chustką białą.\
 Pyta się Tadeusza, jaką broń podoba;\
