@@ -1,3 +1,4 @@
+Widać, że mu wspomnienie samo było męką,\
 I że je chciał odpędzić. Aż się zatrzymali\
 Na górze, w wielkiej, niegdyś zwierciadlanej sali.\
 Dziś wydartych zwierciadeł stały puste ramy,\
