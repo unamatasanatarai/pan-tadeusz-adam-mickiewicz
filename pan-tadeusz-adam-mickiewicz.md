@@ -1,3 +1,4 @@
+«Strzelby — krzyknęli wszyscy — mieć na pogotowiu!»\
 Asesor wołał ciągle: «Ołowiu, ołowiu!\
 Formę do kul mam w torbie». — «Do księdza plebana\
 Dać znać — dodał pan Sędzia — żeby jutro z rana\
