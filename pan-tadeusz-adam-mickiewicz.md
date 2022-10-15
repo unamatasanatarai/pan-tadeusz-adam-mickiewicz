@@ -1,3 +1,4 @@
+Wreszcie, po wielu kosztach i ukazach licznych,\
 Sprawa wróciła znowu do sądów granicznych.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Słusznie Woźny powiadał, że w zamkowej sieni\
