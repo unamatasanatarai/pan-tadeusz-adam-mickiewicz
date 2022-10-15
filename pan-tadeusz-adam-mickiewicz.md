@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem koło kłodek lewe szlachty skrzydło\
 Już jest bliskie zwycięstwa. Tam walczył Kropidło\
 Widny z dala, tam Brzytwa wił się śród Moskali:\
