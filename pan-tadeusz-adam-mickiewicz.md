@@ -1,3 +1,4 @@
+Podhajscy, Birbaszowie, Hreczechy, Biergele,\
 Wszyscy Sędziego krewni albo przyjaciele;\
 Na odsiecz mu przybiegli słysząc o napadzie,\
 Zwłaszcza, że z Dobrzyńskimi byli z dawna w zwadzie.
