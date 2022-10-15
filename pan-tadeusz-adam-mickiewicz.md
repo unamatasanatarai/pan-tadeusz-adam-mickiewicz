@@ -1,3 +1,4 @@
+Jacek Wąsal kwestarzem? Wielkie sądy Boże!...\
 I teraz, ha! bezkarnie ujść tobie nie może,\
 Przysięgam: kto Horeszków krwi kroplę wysączył...»
 
