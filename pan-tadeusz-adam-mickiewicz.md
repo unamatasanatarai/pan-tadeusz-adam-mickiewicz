@@ -1,3 +1,4 @@
+Do siebie, czasem nawet w pole uciekają.\
 Jeżeli na was raptus podobny napada,\
 Bądźcie tylko cierpliwi, już jest na to rada;\
 Biorę na siebie wkrótce przywieść was do zgody.\
