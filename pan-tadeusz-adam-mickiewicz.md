@@ -1,3 +1,4 @@
+Niewielki oddzielał ich od słuchaczów przedział,\
 Więc szeptali. Tadeusz teraz się dowiedział:\
 Że ciocia Telimena jest bogata pani,\
 Że nie są kanonicznie z sobą powiązani\
