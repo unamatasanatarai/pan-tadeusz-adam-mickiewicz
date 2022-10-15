@@ -1,3 +1,4 @@
+Zwycięzcy szli powitać wybawców rodaków?...\
 Ciągniemy! Napoleon, widząc nasze lance,\
 Pyta, co to za wojsko; my krzyczym: »Powstańce,\
 Najjaśniejszy Cesarzu! Litwa ochotnicy!«\
