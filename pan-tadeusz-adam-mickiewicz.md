@@ -1,3 +1,4 @@
+Że znaliście Moskala, który zwan Nikita\
 Nikitycz Ryków, rotny kapitan, miał osim\
 Medalów i trzy krzyże — to pamiętać prosim:\
 Ten medal za Oczaków, ten za Izmaiłów,\
