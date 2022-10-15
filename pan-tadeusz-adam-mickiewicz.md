@@ -1,3 +1,4 @@
+Mężczyźni palą lulki, kobiety przy prątkach;\
 Nawet śpią muchy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Wojski, rzuciwszy łopatkę,\
