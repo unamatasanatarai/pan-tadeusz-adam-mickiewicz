@@ -1,3 +1,4 @@
+Jak woda, którą ptaszek skrzydłami rozkroił.\
 A na miejscu, gdzie stała, tylko porzucony\
 Koszyk mały z rokity, denkiem wywrócony,\
 Pogubiwszy owoce na liściach zawisał,\
