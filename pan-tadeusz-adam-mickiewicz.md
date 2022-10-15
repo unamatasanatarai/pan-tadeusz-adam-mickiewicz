@@ -1,3 +1,4 @@
+Ale komendy jego nie słychać śród krzyku.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stary Maciek, do ręcznych zapasów niezdolny,\
 Rejterował się, czyniąc przed sobą plac wolny\
