@@ -1,3 +1,4 @@
+Telimena otwiera petersburskie składy,\
 Dobywa flaszki perfum, słoiki pomady,\
 Pokrapia Zosię wkoło wyborną perfumą,\
 (Woń napełniła izbę) włos namaszcza gumą.\
