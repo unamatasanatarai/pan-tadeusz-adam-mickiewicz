@@ -1,3 +1,4 @@
+Przeszedł, nie wiedzieć jaką drogą, w dom szlachecki;\
 Dziś ze skarbca dobyty zajął środek stoła\
 Ogromnym kręgiem, na kształt karetnego koła.
 
