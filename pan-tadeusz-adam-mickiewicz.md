@@ -1,3 +1,4 @@
+Klucznik i Hrabia wpadli w obroty nie lada.\
 Przy wyższym końcu stoła wrzał tylko krzyk wielki,\
 Ale z ostrego końca latały butelki\
 Koło Hrabiego głowy. Strwożone kobiety\
