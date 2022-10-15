@@ -1,3 +1,4 @@
+Nie mogą dłużej czekać! Już ze stanowiska\
 Jeden za drugim zmyka i w puszczę się wciska,\
 Chcą pierwsi spotkać źwierza: choć Wojski ostrzegał,\
 Choć Wojski stanowiska na koniu obiegał,\
