@@ -1,3 +1,4 @@
+Stryjaszku, muszę prędko, jutro jechać w drogę.\
 Daj mi, stryjaszku, tylko twe błogosławieństwo,\
 Wszystko przygotowałem, jadę zaraz w Księstwo».
 
