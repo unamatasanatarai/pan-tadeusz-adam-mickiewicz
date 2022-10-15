@@ -1,3 +1,4 @@
+Na pierś jego złożyła swe piersi łabędzie.\
 Hrabia, choć zagniewany, wstrzymał się w zapędzie,\
 Zaczął cucić, ocierać.
 
