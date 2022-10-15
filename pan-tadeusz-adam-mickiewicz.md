@@ -1,3 +1,4 @@
+I kulista, czarniawym pyłkiem napełniona\
 *Purchawka*, jak pieprzniczka; zaś innych imiona,\
 Znane tylko w zajęczym lub wilczym języku,\
 Od ludzi nieochrzczone; a jest ich bez liku.\
