@@ -1,3 +1,4 @@
+I do alkówek damskich częściej niż do lasów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W świcie księcia był książę niemiecki Denassów,\
 O którym powiadano, że w libijskiej ziemi\
