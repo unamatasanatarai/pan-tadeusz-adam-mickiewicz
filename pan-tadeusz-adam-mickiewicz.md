@@ -1,3 +1,4 @@
+Tak strzelcy, ufni w sztuki Wojskiego sposoby,\
 Topili w nim spojrzenia nadziei i trwogi.\
 «Jest! jest!» — wyrzekł półgłosem, zerwał się na nogi.\
 On słyszał! Oni jeszcze słuchali; nareszcie\
