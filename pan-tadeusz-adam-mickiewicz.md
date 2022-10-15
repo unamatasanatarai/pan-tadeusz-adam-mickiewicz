@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tak mówiąc, spojrzał zyzem, gdzie śród biesiadników\
 Siedział gość, Moskal; był to pan kapitan Ryków,\
 Stary żołnierz, stał w bliskiej wiosce na kwaterze,\
 Pan Sędzia go przez grzeczność prosił na wieczerzę.\
