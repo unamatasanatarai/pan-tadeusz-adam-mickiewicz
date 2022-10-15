@@ -1,3 +1,4 @@
+Z brzemieniem drzew i serów na trójkąt Moskali.\
 Gniecie, rani, zabija; gdzie stały szeregi,\
 Leżą drwa, trupy, sery białe jako śniegi,\
 Krwią i mózgiem splamione. Trójkąt w sztuki pryska,\
