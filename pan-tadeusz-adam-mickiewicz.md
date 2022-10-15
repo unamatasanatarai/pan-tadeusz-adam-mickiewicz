@@ -1,3 +1,4 @@
+Hola, chłopcy!» — i czeladź rzuciła się żwawo\
 Ciasnym przejściem pomiędzy ścianami i ławą.\
 Lecz Hrabia krzesłem w środku zagrodził im drogę\
 I na tym szańcu słabym utwierdziwszy nogę,\
