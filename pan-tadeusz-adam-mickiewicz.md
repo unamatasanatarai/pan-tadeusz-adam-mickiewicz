@@ -1,3 +1,4 @@
+I pieśni brzmią, jak muzyk niewidzialnych głosy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W środku, na snopie zboża Ekonom usiadłszy\
 Nudzi się, kręci głową, roboty nie patrzy,\
