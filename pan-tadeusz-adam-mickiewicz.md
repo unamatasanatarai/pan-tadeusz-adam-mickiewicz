@@ -1,3 +1,4 @@
+Woźny pas mu odwiązał, pas słucki, pas lity,\
 Przy którym świecą gęste kutasy jak kity,\
 Z jednej strony złotogłów w purpurowe kwiaty,\
 Na wywrót jedwab czarny posrebrzany w kraty;\
