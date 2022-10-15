@@ -1,3 +1,4 @@
+Kłaniając się, słaniając, do mazurka prosi:\
 «Hej ty, Ryków, przestańże tam trąbić na fajce;\
 Precz fajka, wszak ty dobrze grasz na bałabajce.\
 Widzisz no tam gitarę, pódź no, weź gitarę\
