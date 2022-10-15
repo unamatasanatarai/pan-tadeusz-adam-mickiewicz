@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Brzmią zewsząd okrzyki:\
 «Ach to może ostatni! patrzcie, patrzcie młodzi,\
 Może ostatni, co tak poloneza wodzi!»\
 I szły pary po parach hucznie i wesoło,\
