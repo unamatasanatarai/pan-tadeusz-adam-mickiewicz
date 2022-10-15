@@ -1,3 +1,4 @@
+I tak szach mach, plusk i plask; oni niech gawędzą!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Toć i Bartka — rzekł Brzytwa — bracia nie odpędzą;\
 Już co wy namydlicie, to ja wszystko zgolę».\
