@@ -1,3 +1,4 @@
+On milczał, szczyptę wziętą z tabakiery ważył\
 W palcach i długo dumał, nim ją w końcu zażył;\
 Kichnął, aż cała izba rozległa się echem,\
 I potrząsając głową, rzekł z gorzkim uśmiechem:\
