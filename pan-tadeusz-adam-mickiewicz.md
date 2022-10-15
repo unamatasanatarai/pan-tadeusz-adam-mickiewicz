@@ -1,3 +1,4 @@
+Iż oddanie ziem państwo tak bardzo zuboży:\
 Nie da Bóg, abym rączki córy dygnitarskiej\
 Widział umozolone w pracy gospodarskiej.\
 Jest na to sposób. W zamku wiem ja pewną skrzynię,\
