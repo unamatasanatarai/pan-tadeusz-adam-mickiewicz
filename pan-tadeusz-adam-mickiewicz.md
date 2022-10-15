@@ -1,3 +1,4 @@
+(Zbytek ten dozwolony jest w dostatnim domu).\
 Kuchciki sypią w ogień suche pęki łomu;\
 Inni na rożny sadzą ogromne pieczenie\
 Wołowe, sarnie, combry dzicze i jelenie;\
