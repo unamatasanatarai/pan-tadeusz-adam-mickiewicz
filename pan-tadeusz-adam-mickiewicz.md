@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;O dwa tysiące kroków zamek stał za domem,\
 Okazały budową, poważny ogromem,\
 Dziedzictwo starożytnej rodziny Horeszków;\
 Dziedzic zginął był w czasie krajowych zamieszków.\
