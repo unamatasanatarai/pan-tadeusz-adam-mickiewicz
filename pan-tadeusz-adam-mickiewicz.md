@@ -1,3 +1,4 @@
+Telimena, zowiąc je *Świątynią dumania*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stanąwszy nad strumieniem, rzuciła na trawnik\
 Z ramion swój szal powiewny, czerwony jak krwawnik;\
