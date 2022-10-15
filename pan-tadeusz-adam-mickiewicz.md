@@ -1,3 +1,4 @@
+Z rąk Wojewody, mdlała, że wpadła w gorączkę,\
 Że ma początki suchot, że ustawnie szlocha;\
 Zgadywano, że kogoś potajemnie kocha. —\
 Ale Stolnik, jak zawsze spokojny, wesoły,\
