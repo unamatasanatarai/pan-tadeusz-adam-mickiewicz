@@ -1,3 +1,4 @@
+Między dwiema karczmami: obie wziął w dzierżawę;\
 Szanowali go równie i starzy stronnicy\
 Horeszkowscy, i słudzy Sędziego Soplicy.\
 On sam powagę umiał utrzymać nad groźnym\
