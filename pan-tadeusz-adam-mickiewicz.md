@@ -1,3 +1,4 @@
+Widać, że przyszłych wypraw snuł plany wojenne.\
 Ciążą mu coraz bardziej powieki brzemienne,\
 Bezwładną kiwnął szyją, czuł, że go sen bierze,\
 Zaczął wedle zwyczaju wieczorne pacierze.\
