@@ -1,3 +1,4 @@
+Wiem, że car wysiał gońców do Napoleona\
 Prosić o pokój; wojna nie jest ogłoszona:\
 Lecz książę Józef słyszał od pana Biniona,\
 Francuza, co należy do cesarskiej rady,\
