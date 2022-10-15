@@ -1,3 +1,4 @@
+Lecz ty Zofio, jesteś z wysokiego rodu,\
 W stolicy przepędziłaś twoje młode lata,\
 Czyż zgodzisz się żyć na wsi, z daleka od świata,\
 Jak ziemianka?»
