@@ -1,3 +1,4 @@
+I tocząc się przeze drzwi na kształt bystrej fali,\
 Unieśli młodą parę stojącą na progu,\
 Podobną Janusowi, dwulicemu bogu.
 
