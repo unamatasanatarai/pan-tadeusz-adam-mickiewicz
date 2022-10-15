@@ -1,3 +1,4 @@
+«Prawda — powtórzył Chrzciciel — krop a krop i kwita».\
 «Ja zawsze gotów golić» ozwał się Brzytewka;\
 «Tylko zgódźcie się — prosił uprzejmie Konewka —\
 Chrzcicielu i Macieju, pod czyją iść wodzą?»\
