@@ -1,3 +1,4 @@
+Wzrok utkwił i milczenie chował tajemnicze.\
 A jako chirurg naprzód miękką rękę składa\
 Na ciele chorującym, nim ostrzem raz zada:\
 Tak Robak wyraz bystrych oczu swych złagodził,\
