@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    «Panie Hrabia! —\
 Zawołał Klucznik — widzisz pan, co się wyrabia.\
 Czy nie dosyć się jeszcze pański honor plami,\
 Że pan jadasz i pijasz z tymi Soplicami;\
