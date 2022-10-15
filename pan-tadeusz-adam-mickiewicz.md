@@ -1,3 +1,4 @@
+Nową, na złość zamkowi, postawił Soplica.\
 W tamtej, jak w swym dziedzictwie, rej wodził Gerwazy,\
 W tej najwyższe za stołem brał miejsce Protazy.
 
