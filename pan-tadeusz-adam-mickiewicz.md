@@ -1,3 +1,4 @@
+Główna królestwa zwierząt i roślin stolica.\
 W niej są złożone wszystkich drzew i ziół nasiona,\
 Z których się rozrastają na świat ich plemiona;\
 W niej, jak w arce Noego, z wszelkich zwierząt rodu\
