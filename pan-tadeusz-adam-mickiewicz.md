@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gdy tak były zajęte stołu strony obie,\
 Tadeusz przyglądał się nieznanej osobie.\
 Przypomniał, że za pierwszym na miejsce wejrzeniem\
 Odgadnął zaraz, czyim miało być siedzeniem.\
