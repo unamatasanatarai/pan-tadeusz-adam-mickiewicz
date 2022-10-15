@@ -1,3 +1,4 @@
+«Apeluję — rzekł Sędzia — do gubernatora».\
 «Apeluj — rzekł Płut — choćby do Imperatora.\
 Wiesz, że gdy imperator zatwierdza ukazy,\
 Z łaski swej często karę powiększa dwa razy.\
