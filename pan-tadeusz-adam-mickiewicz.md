@@ -1,3 +1,4 @@
+I angielską trawicą posrebrzaną w paski,\
 I szczyrem koralowym, i zielonym ślazem;\
 Których kształty i barwy mieszały się razem\
 Niby krata ze srebra i złota pleciona,\
