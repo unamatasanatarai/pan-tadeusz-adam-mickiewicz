@@ -1,3 +1,4 @@
+Wojski, Tadeusz, Hrabia, z kilką obławników.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu las był rzadszy. Słychać z głębi ryk, trzask łomu;\
 Aż z gęstwy, jak z chmur, wypadł niedźwiedź na kształt gromu;\
