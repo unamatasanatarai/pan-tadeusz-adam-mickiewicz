@@ -1,3 +1,4 @@
+Tak zwycięzców zwyciężył w końcu sen, brat śmierci.
 
 
 
