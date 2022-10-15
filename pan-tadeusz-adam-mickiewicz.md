@@ -1,3 +1,4 @@
+Bo taki spór nie może skończyć się na niczym;\
 Lecz bijcie się szlacheckim trybem, nie rzeźniczym.\
 Dosyć już mety zbliżać, widzę, żeście zuchy;\
 Chcecie strzelać się, rury oparłszy na brzuchy?\
