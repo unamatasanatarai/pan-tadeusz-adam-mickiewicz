@@ -1,3 +1,4 @@
+«Bracie — rzekł — odłóż nieco twą pilną robotę»\
 I kończył plan zamiany. Lecz Klucznik na psotę\
 Jeszcze silniej pociągnął drugiego ciężaru;\
 I wnet gil, który siedział na wierzchu zegaru,\
