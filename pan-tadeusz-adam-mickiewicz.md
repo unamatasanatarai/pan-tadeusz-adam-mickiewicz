@@ -1,3 +1,4 @@
+Z Soplicami, mopanku?» — To mówiąc wykrzywił\
 Usta, jakby nad własną mową się zadziwił.\
 «Zgoda i Soplicowie! Mopanku, panisko,\
 Pan żartuje, co? Zamek, Horeszków siedlisko,\
