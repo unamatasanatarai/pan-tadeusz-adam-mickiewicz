@@ -1,3 +1,4 @@
+Cofa się, Gifrejtera ruch śledząc oczyma;\
 Sam słania się na nogach, jakoby był pijany.\
 Gifrejter bieży prędzej i pewny wygranej;\
 Żeby uchodzącego tym łacniej dosiągnął,\
