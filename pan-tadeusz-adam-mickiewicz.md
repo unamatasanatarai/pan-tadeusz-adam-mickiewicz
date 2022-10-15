@@ -1,3 +1,4 @@
+Raz umieramy: jutro czy dziś oddać duszę —\
 Panie Klucznik, przebaczysz mnie, ja skończyć muszę!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jest w tym zasługa nie chcieć zostać winowajcą\
