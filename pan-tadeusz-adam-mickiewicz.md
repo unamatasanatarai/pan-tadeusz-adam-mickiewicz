@@ -1,3 +1,4 @@
+I w sercu miałem: kto ich imiona wypowie!\
 Stolnik zabija dziecię własne! Mnie już zabił,\
 Zniszczył!... Jadę pod bramę: szatan mnie tam wabił.\
 Patrz, jak on hula! Co dzień w zamku pijatyka,\
