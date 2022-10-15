@@ -1,3 +1,4 @@
+Sztukmistrz musi ulecieć w sfery ideału!\
 Nie wszystko, co jest piękne, wymalować da się!\
 Dowiesz się o tym wszystkim z książek w swoim czasie.\
 Co się tyczy malarstwa: do obrazu trzeba\
