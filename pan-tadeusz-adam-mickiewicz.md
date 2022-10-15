@@ -1,3 +1,4 @@
+Chciał coś mówić, przepraszać; tylko się ukłonił\
 I cofnął się. Dziewica krzyknęła boleśnie,\
 Niewyraźnie, jak dziecko przestraszone we śnie;\
 Podróżny zląkł się, spojrzał; lecz już jej nie było.\
