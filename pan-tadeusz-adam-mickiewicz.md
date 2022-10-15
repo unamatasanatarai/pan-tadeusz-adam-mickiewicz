@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Mospanie — rzekł bernardyn — babska rzecz narzekać,\
 A żydowska rzecz ręce założywszy czekać,\
 Nim kto w karczmę zajedzie i do drzwi zapuka.\
 Z Napoleonem pobić Moskalów nie sztuka.\
