@@ -1,3 +1,4 @@
+W uczciwości, w grzeczności; a powiem to śmiało,\
 Grzeczność nie jest nauką łatwą ani małą.\
 Niełatwą, bo nie na tym kończy się, jak nogą\
 Zręcznie wierzgnąć, z uśmiechem witać lada kogo;\
