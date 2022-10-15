@@ -1,3 +1,4 @@
+Na dębów, przodków swoich, skamieniałych trupach.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Tadeusz kręcił się, nudząc niepomału\
 Długą rozmową, w której nie mógł brać udziału.\
