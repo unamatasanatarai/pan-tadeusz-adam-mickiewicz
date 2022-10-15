@@ -1,3 +1,4 @@
+Wymawiając z przyciskiem, a w takt kiwał głową.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cicho! skądże ta cała nowina pochodzi?\
 Jak daleko Francuzi? kto nimi dowodzi?\
