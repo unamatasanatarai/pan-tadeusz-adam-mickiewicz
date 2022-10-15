@@ -1,3 +1,4 @@
+Ach! ach! Majorze, dzisiaj żyjem, jutro gnijem,\
 To tylko nasze, co dziś zjemy i wypijem!\
 Panie Sędzio, wszakże to czas podobno śniadać?\
 Siadam za stół, i proszę wszystkich za mną siadać\
