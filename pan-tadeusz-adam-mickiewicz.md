@@ -1,3 +1,4 @@
+Wszystko bieży ku studni, której ramię z drzewa\
 Raz wraz skrzypi i napój w koryta rozlewa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, choć utrudzony, chociaż w gronie gości,\
