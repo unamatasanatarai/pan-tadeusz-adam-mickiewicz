@@ -1,3 +1,4 @@
+W którym twaróg gruzłami posiekany pływa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaś dla mężczyzn wędliny leżą do wyboru:\
 Półgęski tłuste, kumpie, skrzydliki ozoru,\
