@@ -1,3 +1,4 @@
+Wkrótce ucichło wszystko. Wyszedł sam Gerwazy\
 Z mieczem krwawym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Już szlachta odzierżyła pole,\
