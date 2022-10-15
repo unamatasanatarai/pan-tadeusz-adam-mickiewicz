@@ -1,3 +1,4 @@
+Z lasów czernią się czapki, rzęd bagnetów błyska,\
 Roją się nieźliczone piechoty mrowiska.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wszyscy na północ: rzekłbyś, że w on czas z wyraju\
