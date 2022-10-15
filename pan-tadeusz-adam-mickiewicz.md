@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Rzekł i ruszył od stołu, za nim szedł gajowy;\
 Oni obmyślić mają i urządzić łowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak wodze, gdy na jutro bitwę zapowiedzą,\
