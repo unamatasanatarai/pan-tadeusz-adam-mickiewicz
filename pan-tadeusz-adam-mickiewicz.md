@@ -1,3 +1,4 @@
+Naprzód mucha, a za nią tuż Wojskiego placka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na Litwie much dostatek. Jest pomiędzy nimi\
 Gatunek much osobny, zwanych szlacheckimi.\
