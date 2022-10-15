@@ -1,3 +1,4 @@
+Powiedz mi, bo ja życie strawiłem za krajem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski rzekł kłaniając się: «Nie, jaśnie wielmożny\
 Jenerale, nie jest to żaden kunszt bezbożny!\
