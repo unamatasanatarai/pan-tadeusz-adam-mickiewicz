@@ -1,3 +1,4 @@
+Że cywilizacyja większa u Moskali;\
 Bo tam o polowaniu są ukazy cara\
 I dozór policyi, i na winnych kara».
 
