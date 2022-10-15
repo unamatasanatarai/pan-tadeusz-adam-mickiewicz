@@ -1,3 +1,4 @@
+Ten podpadnie za karę takiego wyrzutu,\
 Gravis notæ maculæ, wedle słów Statutu\
 Karzących tak militem jak i skartabella,\
 Co by siał infamiją na obywatela;\
