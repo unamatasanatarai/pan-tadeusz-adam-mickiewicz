@@ -1,3 +1,4 @@
+Tadeusz naszedł jego zbrojne stanowisko,\
 Krzyczy: «Do broni! łapaj!» Skoczyli dżokeje;\
 Nim Tadeusz rozeznać mógł, co się z nim dzieje,\
 Już go chwycili. Biegą do dworu, w podwórze\
