@@ -1,3 +1,4 @@
+I jeżeliby badał serca swego skrytość,\
 Może by się w tej chwili i sam nie dowiedział,\
 Czyli ją kochał, czy nie, więc żywo powiedział:\
 «Telimeno, bogdaj mnie jasny piorun ubił,\
