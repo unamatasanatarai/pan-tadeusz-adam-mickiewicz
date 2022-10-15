@@ -1,3 +1,4 @@
+Właśnie muzycy kończą stroić instrumenty.\
 Już trzykroć wrzasnął derkacz, pierwszy skrzypak łąki,\
 Już mu z dala wtórują z bagien basem bąki,\
 Już bekasy, do góry porwawszy się, wiją\
