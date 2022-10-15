@@ -1,3 +1,4 @@
+W pijatyki, które się kończą grubijaństwem;\
 Zdacie mi sprawę z mego honoru obrazy.\
 Do widzenia po trzeźwu; pójdź za mną, Gerwazy!»
 
