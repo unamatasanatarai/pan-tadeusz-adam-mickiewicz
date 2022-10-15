@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Choć spóźniona pora,\
 Wojski zebrał co prędzej z sąsiedztwa kucharzy:\
 Pięciu ich było; służą, on sam gospodarzy.\
