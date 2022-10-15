@@ -1,3 +1,4 @@
+Bo nim szyję wytknęli, rąbnął po kaszkietach,\
 Zdarł je; Rózga spadając brzękła po bagnetach.\
 Moskale cofają się, Maciek ich wygania\
 Na dziedziniec.
