@@ -1,3 +1,4 @@
+Wtenczas kim był, wyznawał: był legijonistą,\
 Przynosi kości stare na ziemię ojczystą,\
 Której już bronić nie mógł... Jak go wtenczas cała\
 Rodzina pańska, jak go czeladka ściskała,\
