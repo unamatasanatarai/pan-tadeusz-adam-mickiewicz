@@ -1,3 +1,4 @@
+A ty byś mi o krwawych rozpowiadał czynach.\
 Szkoda, że masz niewielki dar opowiadania!\
 Nieraz takie słyszałem i czytam podania;\
 W Anglii i w Szkocyi każdy zamek lordów,\
