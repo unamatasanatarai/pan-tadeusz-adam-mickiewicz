@@ -1,3 +1,4 @@
+Mogę teraz was wszystkich wziąć w areszt od razu».\
 «Mnie — rzekł Sędzia — brać w areszt? jak śmiesz bez rozkazu?»\
 I przychodziło coraz do żywszego sporu:\
 Gdy nowy gość zajechał na dziedziniec dworu.
