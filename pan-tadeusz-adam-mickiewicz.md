@@ -1,3 +1,4 @@
+On, gdy tańczyłem, krzyknął: »Precz za drzwi złodzieja!«\
 Że wtenczas za pułkowej okradzenie kasy\
 Byłem pod śledztwem, miałem wielkie ambarasy:\
 A jemu co do tego? Ja tańczę mazura,\
