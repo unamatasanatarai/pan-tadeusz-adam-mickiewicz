@@ -1,3 +1,4 @@
+Obrzydłe gospodarzom jako wróżby słoty.\
 Gospodarze już dawno wyszli do roboty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już zaczęły żniwiarki swą piosnkę zwyczajną,\
