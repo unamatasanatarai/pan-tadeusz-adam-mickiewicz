@@ -1,3 +1,4 @@
+Widzieć te Scyzoryki i te wasze Brzytwy,\
 Ostatnie egzemplarze starodawnej Litwy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jenerale — rzekł Sędzia — po owym zwycięstwie,\
