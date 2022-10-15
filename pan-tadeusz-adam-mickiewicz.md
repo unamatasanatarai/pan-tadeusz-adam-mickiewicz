@@ -1,3 +1,4 @@
+(Tymczasem podawano wódkę przed jedzeniem)\
 «Za mych wielce mościwych panów pozwoleniem:\
 Te persony, których tu widzicie bez liku,\
 Przedstawiają polskiego historię sejmiku,\
