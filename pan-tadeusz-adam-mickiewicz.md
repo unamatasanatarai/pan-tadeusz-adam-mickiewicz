@@ -1,3 +1,4 @@
+Z tych Sopliców, co pierwsi zrobili powstanie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;A na to Sędzia: «Mniejsza o ludzkie gadanie;\
 Nigdy nie dbałem bardzo o pochwały świata:\
