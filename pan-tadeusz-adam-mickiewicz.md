@@ -1,3 +1,4 @@
+Więc choć świadka nie miała, założyła ręce\
 Na piersiach, przydawając zasłony sukience.\
 Włos w pukle nierozwity, lecz w węzełki małe\
 Pokręcony, schowany w drobne strączki białe,\
