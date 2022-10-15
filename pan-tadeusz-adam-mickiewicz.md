@@ -1,3 +1,4 @@
+I posażna: bo oprócz swej dziedzicznej wioski\
 Sumką z daru Sędziego powiększała wnioski.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Trzeciej pary daremnie czekają czas długi.\
