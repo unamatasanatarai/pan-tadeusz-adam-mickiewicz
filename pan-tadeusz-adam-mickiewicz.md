@@ -1,3 +1,4 @@
+Krzyknął Bartek Szydełko, dobywszy swej szpadki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wszystkich was — kończył Klucznik — biorę tu na świadki,\
 Czy Robak nie powiadał, że wprzód nim przyjmiecie\
