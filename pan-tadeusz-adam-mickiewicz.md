@@ -1,3 +1,4 @@
+I że je chciał odpędzić. Aż się zatrzymali\
 Na górze, w wielkiej, niegdyś zwierciadlanej sali.\
 Dziś wydartych zwierciadeł stały puste ramy,\
 Okna bez szyb, z krużgankiem wprost naprzeciw bramy.\
