@@ -1,3 +1,4 @@
+Spławiał do Prus dwadzieścia Horeszkowskich wicin?\
 Stąd się zbogacił i on, i jego rodzina,\
 Ba, nawet wszyscy, ilu was tu jest z Dobrzyna.\
 Bo pamiętacie starzy, słyszeliście młodzi,\
