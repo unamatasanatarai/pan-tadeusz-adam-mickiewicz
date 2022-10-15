@@ -1,3 +1,4 @@
+Mają sądzić się spory o charcim ogonie?\
 Cóż by rzekł na to stary Rejtan, gdyby ożył?\
 Wróciłby do Lachowicz i w grób się położył!\
 Co by rzekł wojewoda Niesiołowski stary,\
