@@ -1,3 +1,4 @@
+Co za miasto! Nikt z panów nie był w Petersburku?\
 Chcecie może plan widzieć? Mam plan miasta w biurku.\
 Latem świat petersburski zwykł mieszkać na daczy,\
 To jest w pałacach wiejskich (dacza wioskę znaczy).\
