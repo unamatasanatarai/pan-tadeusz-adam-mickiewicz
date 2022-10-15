@@ -1,3 +1,4 @@
+Kiedym szablę dostawał, to kilka tysięcy\
 Szabel błyszczało wkoło, strasząc zamki pańskie!\
 A potem ze mnie śmiały się dzieci włościańskie!\
 Tak zrobiłem się nagle w oczach ludzkich lichy!\
