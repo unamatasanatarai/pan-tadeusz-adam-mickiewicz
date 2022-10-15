@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Jenerał Podolskich\
 Ziem przejeżdżał z Wołynia do swoich dóbr polskich,\
 Czy też, gdy dobrze pomnę, na sejm do Warszawy.\
