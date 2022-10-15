@@ -1,3 +1,4 @@
+Tyś go zasłonił, i gdy Moskal do mnie palił,\
 Tyś mnie rzucił o ziemię: tak nas dwóch ocalił.\
 Jeśli prawda, że jesteś księdzem zakonnikiem,\
 Jużci sukienka broni cię przed Scyzorykiem.\
