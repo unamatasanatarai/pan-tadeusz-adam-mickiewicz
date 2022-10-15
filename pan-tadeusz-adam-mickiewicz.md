@@ -1,3 +1,4 @@
+Bo choć zawsze i płynnie mówił, i z rozsądkiem,\
 Wiedział, że niecierpliwa młodzież teraźniejsza,\
 Że ją nudzi rzecz długa, choć najwymowniejsza.\
 Ale wszyscy słuchali w milczeniu głębokiem.\
