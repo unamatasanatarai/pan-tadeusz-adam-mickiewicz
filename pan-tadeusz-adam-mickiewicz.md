@@ -1,3 +1,4 @@
+I jeszczeż po tym wszystkim, com tobie powiedział,\
 Będziesz spokojnie, ręce założywszy, siedział,\
 Gdy działać trzeba!» «Działać? Cóż?» Sędzia zapytał.\
 «Jeszcześ — rzekł Robak — z oczu moich nie wyczytał?\
