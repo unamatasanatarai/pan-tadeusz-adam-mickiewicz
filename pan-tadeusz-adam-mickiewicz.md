@@ -1,3 +1,4 @@
+Na ziemi. Bydło późno na paszę ruszyło\
 I zdybało zające przy późnym śniadaniu.\
 One zwykły do gajów wracać o świtaniu;\
 Dziś, okryte tumanem, te mokrzycę chrupią,\
