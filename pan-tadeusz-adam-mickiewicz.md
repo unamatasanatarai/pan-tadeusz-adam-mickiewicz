@@ -1,3 +1,4 @@
+Unieśli młodą parę stojącą na progu,\
 Podobną Janusowi, dwulicemu bogu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną nim na skroniach włosy\
