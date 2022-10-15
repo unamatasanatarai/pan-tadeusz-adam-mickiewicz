@@ -1,3 +1,4 @@
+Właśnie tym się zatrudniał i kończył tak gadać:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż złego, że przeniosłem stoły do zamczyska?\
 Nikt na tym nic nie stracił, a pan może zyska.\
