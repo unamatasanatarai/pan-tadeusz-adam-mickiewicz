@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Sztuka rzucania nożów, straszna w ręcznej bitwie,\
 Już była zaniedbana podówczas na Litwie,\
 Znajoma tylko starym; Klucznik jej próbował\
