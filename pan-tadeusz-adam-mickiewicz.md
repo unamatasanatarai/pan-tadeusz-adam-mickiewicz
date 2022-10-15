@@ -1,3 +1,4 @@
+Z Polakiem, który w carskiej służbie zmoskwicieje.\
 Płut stał z fajką przed frontem, w boki się podpierał\
 I gdy mu kłaniano się, nos w górę zadzierał,\
 A za odpowiedź, na znak gniewnego humoru\
