@@ -1,3 +1,4 @@
+I snopy zboża kradnie i na zapas chwyta.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ptastwo skryło się w lasy, pod strzechy, w głąb trawy;\
 Tylko wrony, stadami obstąpiwszy stawy,\
