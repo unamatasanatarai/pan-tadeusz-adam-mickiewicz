@@ -1,3 +1,4 @@
+Który od swej łodygi aż w daleką stronę,\
 Wtoczył się jak gość między buraki czerwone.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Grzędy rozcięte miedzą; na każdym przykopie\
