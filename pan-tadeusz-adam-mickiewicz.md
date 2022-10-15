@@ -1,3 +1,4 @@
+Tak było po staremu. A więc mnie zawierzcie,\
 I waszej rejterady do serca nie bierzcie,\
 Kochany Tadeuszku i wielmożny grafie;\
 Ilekroć zaś wspomnicie o dzisiejszym trafie,\
