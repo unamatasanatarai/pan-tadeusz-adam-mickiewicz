@@ -1,3 +1,4 @@
+Owych chorów, co brzmiały jak arfy eolskie,\
 (Żadne żaby nie grają tak pięknie jak polskie),\
 Wstrzymał konia i o swej zapomniał wyprawie,\
 Zwrócił ucho do stawu i słuchał ciekawie.\
