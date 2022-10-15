@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Czasem tylko w pogoni zaciekłe ogary,\
 Wpadłszy niebacznie między bagna, mchy i jary,\
 Wnętrznej ich okropności rażone widokiem,\
