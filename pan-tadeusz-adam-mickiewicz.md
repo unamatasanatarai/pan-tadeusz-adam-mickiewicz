@@ -1,3 +1,4 @@
+Sumką z daru Sędziego powiększała wnioski.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Trzeciej pary daremnie czekają czas długi.\
 Sędzia niecierpliwi się i wysyła sługi;\
