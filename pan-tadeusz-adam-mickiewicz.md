@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tu bernardyn osłabiał i upadł na łoże;\
 A Klucznik rzekł wzruszony: «Wielkie sądy Boże!\
 Prawda! prawda! Więc to ty? i tyżeś to Jacku\
 Soplico? pod kapturem? żyłeś po żebracku!\
