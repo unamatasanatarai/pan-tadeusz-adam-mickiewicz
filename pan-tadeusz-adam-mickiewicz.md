@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«To niezgodna — rzekł Hrabia — z moim charakterem!\
 Nie mogę być kochankiem: będę bohaterem;\
 W miłości troskach, sławy zwę pocieszycielki,\
