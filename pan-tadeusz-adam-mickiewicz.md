@@ -1,3 +1,4 @@
+Na koniec odezwał się, z wolna każde słowo\
 Wymawiając z przyciskiem, a w takt kiwał głową.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cicho! skądże ta cała nowina pochodzi?\
