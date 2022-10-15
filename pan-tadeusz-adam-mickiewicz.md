@@ -1,3 +1,4 @@
+A dalej, u ścieśnionych widnokręgu brzegów,\
 Tu i owdzie ogniska pastuszych noclegów.\
 Nareszcie księżyc srebrną pochodnię zaniecił,\
 Wyszedł z boru i niebo, i ziemię oświecił.\
