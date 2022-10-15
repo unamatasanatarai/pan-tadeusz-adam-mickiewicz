@@ -1,3 +1,4 @@
+Mamy przecież uczciwe towarzystwo w domu.\
 Uważaj dobrze, Zosiu, jest tu Hrabia młody,\
 Pan dobrze wychowany, krewny wojewody,\
 Pamiętaj być mu grzeczną».
