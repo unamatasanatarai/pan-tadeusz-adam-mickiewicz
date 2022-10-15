@@ -1,3 +1,4 @@
+Stał pan z tymi dużymi błyszczacymi łzami.\
 Potem Podkomorzyna do Wilna jeździła,\
 Wzięła mnie tam na zimę; alem ja tęskniła\
 Do Soplicowa i do tego pokoiku,\
