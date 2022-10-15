@@ -1,0 +1,9 @@
+#!/usr/bin/env bash
+
+set -euo pipefail
+
+while ./write-one-line; do
+  echo "commited!"
+done
+
+git push origin main

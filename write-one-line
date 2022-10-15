@@ -1,0 +1,41 @@
+#!/usr/bin/env bash
+
+set -euo pipefail
+
+book="pan-tadeusz-adam-mickiewicz.md"
+
+source ./_pointer
+
+if [ "$pointer" -eq 0 ]; then
+  exit 1
+fi
+
+line=$(sed -n "${pointer}p" src.md)
+commit_message=$(echo -n "$line" | tr -d "\n" | tr -d "\r")
+line=$(echo -n "$commit_message" | sed -E "s/^    /\&nbsp;\&nbsp;\&nbsp;\&nbsp;/")
+
+if [[ ${line:0:1} == "#" ]] || [[ ${line:0:1} == ">" ]]; then
+  # if it's a heading, or blokquote, do not append "enter"
+  echo -e "$line\n$(cat "$book")" > "$book"
+elif [[ $line == "" ]]; then
+  # if the line is empty, do not append the "enter"
+  echo -e "\n$(cat "$book")" > "$book"
+else
+  next=$((pointer + 1))
+  next_line=$(sed -n "${next}p" src.md)
+  next_line=$(echo -n "$next_line" | tr -d "\n" | tr -d "\r")
+  if [[ $next_line == "" ]]; then
+    # if the next line was empty, do not append "enter"
+    echo -e "$line\n$(cat "$book")" > "$book"
+  else
+    echo -e "$line\\\\\n$(cat "$book")" > "$book"
+  fi
+fi
+
+[ "$commit_message" == "" ] && commit_message="_"
+
+pointer=$((pointer - 1))
+echo "pointer=$pointer" > _pointer
+git add "$book"
+git commit -m "$commit_message"
+#git push origin main
