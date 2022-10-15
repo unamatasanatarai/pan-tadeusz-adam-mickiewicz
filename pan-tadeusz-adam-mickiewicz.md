@@ -1,3 +1,4 @@
+I szczęśliwy Dąbrowski niedługo się cieszył,\
 Ustąpił ją drugiemu; a już trzeci spieszył;\
 I ten zaraz odbity, odszedł bez nadziei.\
 Aż Zosia, już strudzona, spotkała z kolei\
