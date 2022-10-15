@@ -1,3 +1,4 @@
+Gdyby on gadać umiał, może by powiedział\
 Cokolwiek na pochwałę i tej starej ręki,\
 Która służyła długo, wiernie, Bogu dzięki,\
 Ojczyźnie, tudzież panów Horeszków rodzinie,\
