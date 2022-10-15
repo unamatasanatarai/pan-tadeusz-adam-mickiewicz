@@ -1,3 +1,4 @@
+«Lecz cóż to? — krzyknął Sędzia — co do mnie należy?\
 Ja się nie znałem, nawet nie widziałem z Jackiem;\
 Ledwiem słyszał o jego życiu hajdamackiem,\
 Siedząc wtenczas retorem w jezuickiej szkole,\
