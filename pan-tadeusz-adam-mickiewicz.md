@@ -1,3 +1,4 @@
+Tuż za dziećmi paw siedział i piór swych obręcze\
 Szeroko rozprzestrzenił w różnofarbną tęczę,\
 Na której główki białe, jak na tle obrazku,\
 Rzucone w ciemny błękit, nabierały blasku.\
