@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jeden między kupkami szlachcic cichy stoi.\
 Widać, że człek bezstronny; waha się i boi;\
 Za kim dać kreskę? nie wie, i sam z sobą w walce,\
 Pyta losu, wzniósł ręce, wytknął wielkie palce,\
