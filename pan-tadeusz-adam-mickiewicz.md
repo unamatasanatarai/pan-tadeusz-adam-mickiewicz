@@ -1,3 +1,4 @@
+«Panie Woźny, pan Hrabia śmie waćpana prosić,\
 Abyś raczył przed szlachtą bracią wnet ogłosić\
 Intromisyją Hrabi do zamku, do dworu\
 Sopliców, do wsi, gruntów zasianych, ugoru,\
