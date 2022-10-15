@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tadeusz się od przodków swoich nie odrodził:\
 Dobrze na koniu jeździł, pieszo dzielnie chodził,\
 Tępy nie był, lecz mało w naukach postąpił,\
 Choć stryj na wychowanie niczego nie skąpił;\
