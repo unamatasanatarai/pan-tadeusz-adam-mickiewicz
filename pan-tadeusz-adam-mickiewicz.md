@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Słowo majorskie, panno: nie Rosyjaninem\
 Jestem, jeżeli kłamię; chcę być sukinsynem,\
 Jeżeli kłamię: spytaj, a oficerowie\
