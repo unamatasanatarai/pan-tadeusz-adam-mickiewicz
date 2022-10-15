@@ -1,3 +1,4 @@
+A choć przez wzgląd na gości niewiele z nim mówił,\
 Widać było z łez, które wylotem kontusza\
 Otarł prędko, jak kochał pana Tadeusza.
 
