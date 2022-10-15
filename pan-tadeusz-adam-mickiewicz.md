@@ -1,3 +1,4 @@
+Stąpa prędzej, pogląda na rywalów z góry,\
 I swą konfederatkę z czaplinymi pióry\
 To na czole zawiesza, to nad czołem wstrząsa,\
 Aż włożył ją na bakier i pokręcił wąsa.\
