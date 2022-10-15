@@ -1,3 +1,4 @@
+Nabłąkawszy się, w końcu wszedł w głębinę lasu\
 I trafił, czy umyślnie, czyli też przypadkiem,\
 Na wzgórek, co był wczora szczęścia jego świadkiem,\
 Gdzie dostał ów bilecik, zadatek kochania,\
