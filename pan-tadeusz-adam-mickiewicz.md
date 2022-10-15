@@ -1,3 +1,4 @@
+«Brawo — rzekła — winszuję, niemało talentu.\
 Tylko pan nie zaniedbuj; szczególniej potrzeba\
 Szukać pięknej natury! O, szczęśliwe nieba\
 Krajów włoskich! różowe cezarów ogrody!\
