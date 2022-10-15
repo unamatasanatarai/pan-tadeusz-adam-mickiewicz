@@ -1,3 +1,4 @@
+Moja rota! a wszystko z winy tego Płuta!\
 On komendant, on za to przed carem odpowie,\
 A wy te grosze sobie zabierzcie, panowie;\
 U mnie jest kapitański mój żołd lada jaki,\
