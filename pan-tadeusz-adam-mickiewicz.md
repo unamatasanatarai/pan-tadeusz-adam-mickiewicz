@@ -1,3 +1,4 @@
+Dawniej w uczuciach twoich byłaś poetyczną,\
 A teraz mi się zdajesz całkiem prozaiczną!\
 Cóż są wasze małżeństwa, jeśli nie łańcuchy,\
 Które związują tylko ręce, a nie duchy?\
