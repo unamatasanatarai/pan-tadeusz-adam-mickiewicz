@@ -1,3 +1,4 @@
+Zdawało się, że liczył oczyma kamienie.\
 Poznał go zaraz, ale musiał kilka razy\
 Krzyknąć, nim głos Hrabiego usłyszał Gerwazy.\
 Szlachcic to był, służący dawnych zamku panów,\
