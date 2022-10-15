@@ -1,3 +1,4 @@
+Że wyczerpnęli sporu zwyczajne trzy części,\
 Przycinki, gniew, wyzwanie — i szło już do pięści.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc ku nim z drugiej izby wszyscy się porwali,\
