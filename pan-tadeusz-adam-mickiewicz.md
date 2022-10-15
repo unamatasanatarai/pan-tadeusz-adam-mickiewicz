@@ -1,3 +1,4 @@
+Pomścić się...
 
 &nbsp;&nbsp;&nbsp;&nbsp;I zdało mi się zrazu, żem już serce zmienił,\
 I rad byłem z wymysłu i — jam się ożenił;\
