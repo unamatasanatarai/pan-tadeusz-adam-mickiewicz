@@ -1,3 +1,4 @@
+Z nim sobie, co zechcecie, zróbcie. Lecz do Zosi?\
 Co waćpaństwu do Zosi? Ja jej ręką rządzę,\
 Ja sama! Że pan Jacek dawał był pieniądze\
 Na wychowanie Zosi, i że jej wyznaczył\
