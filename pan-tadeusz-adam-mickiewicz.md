@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jenerał wziął Scyzoryk; lecz że bardzo długi,\
 Nie mógł nosić, w furgonie schowały go sługi.\
 Co się z nim stało, różnie powiadają o tem,\
