@@ -1,3 +1,4 @@
+Wynajdujesz: cóż? one nie zmniejszą twej winy!\
 Bo wszakże zdarzało się już nieraz na świecie,\
 Że kto pokochał pańskie lub królewskie dziecię,\
 Starał się gwałtem zdobyć, przemyślał wykradać,\
