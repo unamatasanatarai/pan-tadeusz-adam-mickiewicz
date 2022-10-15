@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Rzekł więc z gorzkim uśmiechem: «Mój domek zbyt mały,\
 Nie ma godnego miejsca na dar tak wspaniały;\
 Niech lepiej niedźwiedź czeka pośród tych rogaczy,\
