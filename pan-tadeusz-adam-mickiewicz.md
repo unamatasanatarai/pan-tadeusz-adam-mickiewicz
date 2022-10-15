@@ -1,3 +1,4 @@
+Lecz nas drą jak na łyka...» «Cham! — Skołuba krzyknął —\
 Głupi, tobieć to lepiej, tyś chłopie przywyknął,\
 Jak węgorz do odarcia: lecz nam *urodzonym*,\
 Nam wielmożnym, do złotych swobód wzwyczajonym!\
