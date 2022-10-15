@@ -1,3 +1,4 @@
+Czy po śmierci ten rapier mój nie zerdzewieje!\
 Otóż nie zerdzewieje! Mój jaśnie wielmożny\
 Jenerale, wybacz mi, porzućcie te rożny,\
 Niemieckie szpadki; to wstyd szlacheckiemu dziecku\
