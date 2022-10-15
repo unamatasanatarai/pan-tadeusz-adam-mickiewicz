@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Kochana Zosiu, już też całkiem zapominasz\
 I na stan, i na wiek twój: wszak to dziś zaczynasz\
 Rok czternasty. Czas rzucić indyki i kurki;\
 Fi! to godna zabawka dygnitarskiej córki!\
