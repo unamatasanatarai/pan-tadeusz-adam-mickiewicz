@@ -1,3 +1,4 @@
+Może, bystry polityk, duch czasu zbadywał,\
 I tam szedł, gdzie ojczyzny dobro upatrywał?\
 Kto wie! To pewna, że go nigdy nie uwiodły\
 Ani chęć osobistej chwały, ni zysk podły,\
