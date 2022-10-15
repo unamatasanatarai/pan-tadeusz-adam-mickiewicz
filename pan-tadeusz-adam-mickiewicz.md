@@ -1,3 +1,4 @@
+Oficery z damami, wiara z wieśniaczkami.\
 «Poloneza!» krzyknęli wszyscy w jedno słowo.\
 Oficerowie wiodą muzykę wojskową;\
 Ale pan Sędzia w ucho rzekł do jenerała:\
