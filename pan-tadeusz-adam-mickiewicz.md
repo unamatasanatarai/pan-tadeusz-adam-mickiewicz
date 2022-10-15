@@ -1,3 +1,4 @@
+Chcąc kłótników zabawić i do zgody dowieść,\
 Kończył im o Doweyce i Domeyce powieść:\
 «Asesorze, jeżeli chciałem, byś z Rejentem\
 Pojedynkował, nie myśl, że jestem zawziętym\
