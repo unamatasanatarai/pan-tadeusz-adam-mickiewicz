@@ -1,3 +1,4 @@
+Wspomnij, czyja ten kolor przyszpiliła ręka!»\
 Tu mu podała rękę. Pan Hrabia przyklęka,\
 Całuje; Telimena zbliżyła do oka\
 Chustkę, a drugim okiem pogląda z wysoka\
