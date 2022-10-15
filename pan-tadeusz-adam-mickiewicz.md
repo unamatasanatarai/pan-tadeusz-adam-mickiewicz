@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Udało mi się nieraz do kraju przedzierać,\
 Rozkazy wodzów nosić, wiadomości zbierać,\
 Układać zmowy — znają i Galicyjanie\
