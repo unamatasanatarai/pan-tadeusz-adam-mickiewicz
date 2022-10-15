@@ -1,3 +1,4 @@
+Stali i rozprawiali, nieco poróżnieni:\
 Bo w niebytność Wojskiego Woźny po kryjomu\
 Kazał stoły z wieczerzą powynosić z domu,\
 I ustawić co prędzej w pośrodku zamczyska,\
