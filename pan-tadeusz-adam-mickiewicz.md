@@ -1,3 +1,4 @@
+O całą szlachtę idzie; toż i Robak bąkał,\
 Choć nigdy nie dokończył i zawsze się jąkał,\
 I ciemno się tłumaczył. Wreszcie, koniec końców,\
 My zjechali, sąsiadów zwołali przez gońców.\
