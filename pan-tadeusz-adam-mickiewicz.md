@@ -1,3 +1,4 @@
+Schował się, ale dziobem nie przestaje pukać,\
 Jak dziecko, gdy schowane woła, by go szukać.\
 Bliżej siedzi wiewiórka, orzech w łapkach trzyma,\
 Gryzie go; zawiesiła kitkę nad oczyma,\
