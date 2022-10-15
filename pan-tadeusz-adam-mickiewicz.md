@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz rzekł po chwili «Dobroć jegomości\
 Dziwi mnie. Lecz cóż? Łaska stryja dobrodzieja\
 Nie przyda się już na nic! Ach, próżna nadzieja!\
