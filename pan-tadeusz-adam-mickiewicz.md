@@ -1,3 +1,4 @@
+Stałem patrząc; wiesz, jak wasz zamek szturmowali.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bo fałsz, żebym był w jakiej z Moskalami zmowie...
 
