@@ -1,3 +1,4 @@
+Coś odkryję i tak się oba poprzyznajem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Stryjaszku — rzekł Tadeusz, całując mu rękę\
 I rumieniąc się — powiem prawdę. Tę panienkę,\
