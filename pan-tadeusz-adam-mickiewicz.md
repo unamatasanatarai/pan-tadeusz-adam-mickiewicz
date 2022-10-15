@@ -1,3 +1,4 @@
+Rozprzestrzenił szeroko przednie krzyżem łapy,\
 Dyszał jeszcze, wylewał strumień krwi przez chrapy,\
 Otwierał jeszcze oczy, lecz głowy nie ruszy;\
 Pijawki Podkomorzego dzierżą go pod uszy,\
