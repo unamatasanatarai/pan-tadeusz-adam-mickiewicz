@@ -1,3 +1,4 @@
+Gdy nuncyjusz papieski żegnał go na drogę,\
 A poseł austryjacki całował mu nogę,\
 Podając strzemię (poseł zwał się Wilczek hrabia),\
 Król krzyknął: »Patrzcie, co się na niebie wyrabia!«\
