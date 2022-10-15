@@ -1,3 +1,4 @@
+O to ani pytają. Pomnę za mych czasów,\
 Gdy Branecki karetą swą ruszył do Jassów\
 I za tą niepoczciwą pociągnął karetą\
 Ogon Targowiczanów, jak za tą kometą;\
