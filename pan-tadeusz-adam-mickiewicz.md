@@ -1,3 +1,4 @@
+Odkryła nieco piersi, wygięła się bokiem,\
 I sama siebie pilnym obejrzała okiem,\
 I znowu zapytała o radę zwierciadła;\
 Po chwili wzrok spuściła, westchnęła i siadła.
