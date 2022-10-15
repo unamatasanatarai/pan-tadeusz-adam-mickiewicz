@@ -1,3 +1,4 @@
+Jak raz zaczął, bez przerwy rzecz swoją tokował,\
 I gestami ją bardzo dobitnie malował.\
 (Był dawniej adwokatem pan Rejent Bolesta,\
 Zwano go kaznodzieją, że zbyt lubił gesta).\
