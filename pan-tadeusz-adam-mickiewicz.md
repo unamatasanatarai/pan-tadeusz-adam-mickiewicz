@@ -1,3 +1,4 @@
+Wreszcie po ćwierćgodzinnym przerwaniu rozmowy\
 Robak po cichu tymi odezwał się słowy:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Bracie! Bóg wie, żem dotąd tajemnic dochował,\
