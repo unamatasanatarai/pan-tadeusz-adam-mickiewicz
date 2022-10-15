@@ -1,3 +1,4 @@
+Most na rzece zahuczał tętentem konnicy\
 I «Hejże na Soplicę!» tysiąc głosów wrzasło.\
 Wzdrygnął się Sędzia: poznał Gerwazego hasło;\
 «Nic to — zawołał Hrabia — będzie tu nas więcéj,\
