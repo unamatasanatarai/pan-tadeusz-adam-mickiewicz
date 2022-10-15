@@ -1,3 +1,4 @@
+Że mnie lubisz; ilekroć mówiłam pacierze\
 Za pana powodzenie, zawsze przed oczami\
 Stał pan z tymi dużymi błyszczacymi łzami.\
 Potem Podkomorzyna do Wilna jeździła,\
