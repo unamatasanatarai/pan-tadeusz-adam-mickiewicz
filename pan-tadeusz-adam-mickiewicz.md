@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Dąbrowski rzekł do Maćka: «A ty co, kolego?\
 Zdaje się, żeś ty nie rad z przybycia mojego?\
 Milczysz kwaśny? I jakże, serce ci nie skacze,\
 Gdy widzisz orły złote, srebrne? gdy trębacze\
