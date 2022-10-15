@@ -1,3 +1,4 @@
+Zaganiając jak gąski, szła dalej ogrodem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Odwróciwszy się rzekła: «Czy też pan nie może\
 Rozbiegłe moje ptastwo wpędzić nazad w zboże?»\
