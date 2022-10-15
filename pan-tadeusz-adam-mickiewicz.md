@@ -1,3 +1,4 @@
+Z tą panią Telimeną, kokietką i trzpiotką!\
 Kiedy Zosia została dzieckiem w biednym stanie,\
 Jacek ją Telimenie dał na wychowanie,\
 Słysząc, że jest osoba dobra, świat znająca:\
