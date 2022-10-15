@@ -1,3 +1,4 @@
+Chytry starzec, wnet wrzucił obojętne słowo\
 O procesach, sejmikach, łowach...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ach, nieraz przy kieliszkach, gdy się tak rozrzewniał,\
