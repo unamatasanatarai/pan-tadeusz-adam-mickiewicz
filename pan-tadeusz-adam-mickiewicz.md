@@ -1,3 +1,4 @@
+I straszne Pauzylipu skaliste wydroże!\
 To, Hrabio, kraj malarzów! U nas, żal się Boże!...\
 Dziecko muz, w Soplicowie oddane na mamki,\
 Umrze pewnie. Mój Hrabio, oprawię to w ramki,\
