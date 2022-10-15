@@ -1,3 +1,4 @@
+Potem dłonie opuścił i palcami chrząsnął,\
 Jak gdyby tajemnicę całą z rąk wytrząsnął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ten ciemny gest pojęli słuchacze i stali,\
