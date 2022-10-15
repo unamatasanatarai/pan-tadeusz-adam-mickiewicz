@@ -1,3 +1,4 @@
+Tyle nam tylko pamiątki zostawił,\
 Że był w błyszczącym i pięknym mundurze:\
 Bo węża tylko znaliśmy po skórze.
 
