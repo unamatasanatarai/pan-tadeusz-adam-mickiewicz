@@ -1,3 +1,4 @@
+I kilku po francusku chodzących.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tej sceny\
 Hrabia nie pojął; nie znał wiejskiego zwyczaju:\
