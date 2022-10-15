@@ -1,3 +1,4 @@
+W wieczór słychać w zaroślach szept ciągnącej słomki\
 I stada dzikich gęsi szumią ponad lasem,\
 I znużone na popas spadają z hałasem,\
 A w głębi ciemnej nieba, wciąż jęczą żurawie.\
