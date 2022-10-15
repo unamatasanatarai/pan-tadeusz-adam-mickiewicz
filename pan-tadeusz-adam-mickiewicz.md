@@ -1,3 +1,4 @@
+Na szyi świecił wielką szpilką brylantową;\
 Konfederatka biała, a na niej pęk gruby\
 Drogich piórek, były to białych czapel czuby\
 (Na fest kładzie się tylko kitka tak bogata,\
