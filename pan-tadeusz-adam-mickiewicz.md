@@ -1,3 +1,4 @@
+Obudwu, o przechwałki, o koszta z powodu\
 Procesu, ciągnie w rejestr taktowy do grodu.\
 Pozew dziś trzeba wręczyć ustnie, oczywisto,\
 Nim zajdzie słońce. Woźny z miną uroczystą\
