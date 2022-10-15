@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Robak, nim zaczął mówić, w Klucznika oblicze\
 Wzrok utkwił i milczenie chował tajemnicze.\
 A jako chirurg naprzód miękką rękę składa\
