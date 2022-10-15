@@ -1,3 +1,4 @@
+Czy jak czarownik gada z ziemią, która, głucha\
 Dla mieszczan, mnóstwem głosów szepce mu do ucha.
 
 Tam derkacz wrzasnął z łąki, szukać go daremnie,\
