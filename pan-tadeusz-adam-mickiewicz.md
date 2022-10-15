@@ -1,3 +1,4 @@
+Niemców cywilizcją, porządek Moskali;\
 Niechaj Wielkopolanie uczą się od Szwabów\
 Prawować się o lisa i przyzywać drabów,\
 By wziąć w areszt ogara, że wpadł w cudze gaje:\
