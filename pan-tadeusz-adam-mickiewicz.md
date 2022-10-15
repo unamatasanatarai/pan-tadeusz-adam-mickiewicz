@@ -1,3 +1,4 @@
+I zaraz mogłem pieszo, do Twych świątyń progu\
 Iść za wrócone życie podziękować Bogu),\
 Tak nas powrócisz cudem na Ojczyzny łono.\
 Tymczasem przenoś moją duszę utęsknioną\
