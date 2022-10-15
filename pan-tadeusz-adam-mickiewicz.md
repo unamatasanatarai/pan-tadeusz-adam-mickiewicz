@@ -1,3 +1,4 @@
+Kochał ją zawsze, zginąć rad dla jej obrony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już szereg jegrów w marszu na pokrzywę wkracza:\
 Gdy Konew ruszył cyngla i z paszczy garłacza\
