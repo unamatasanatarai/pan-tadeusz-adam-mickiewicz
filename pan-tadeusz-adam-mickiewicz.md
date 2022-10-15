@@ -1,3 +1,4 @@
+Kazałem ją hodować...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bardziej niźli z miłości, może z głupiej pychy,\
 Zabiłem; więc pokora... wszedłem między mnichy.\
