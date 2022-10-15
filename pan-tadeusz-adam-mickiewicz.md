@@ -1,3 +1,4 @@
+Rok czternasty. Czas rzucić indyki i kurki;\
 Fi! to godna zabawka dygnitarskiej córki!\
 I z umurzaną dziatwą chłopską już do woli\
 Napieściłaś się! Zosiu, patrząc serce boli:\
