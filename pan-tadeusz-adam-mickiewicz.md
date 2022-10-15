@@ -1,3 +1,4 @@
+On patrzył z wyciągniętą szyją, jak dziobaty\
 Żuraw z dala od stada gdy odprawia czaty,\
 Stojąc na jednej nodze, z czujnymi oczyma,\
 I by nie zasnąć, kamień w drugiej nodze trzyma.
