@@ -1,3 +1,4 @@
+A na starość w szpitalach spoczywa kaleki:\
 Skoro usłyszy trąbę lub bęben daleki,\
 Chwyta się z łoża, krzyczy przez sen: «Bij Moskala!»\
 I na drewnianej nodze skacze ze szpitala,\
