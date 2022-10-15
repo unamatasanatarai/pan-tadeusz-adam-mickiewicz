@@ -1,3 +1,4 @@
+Ja bym u stołu obu przeciwników zgodził.\
 Bo chciałem opowiedzieć wypadek ciekawy,\
 Podobny do zdarzenia wczorajszej wyprawy,\
 Co trafił się najpierwszym strzelcom za mych czasów,\
