@@ -1,3 +1,4 @@
+Anegdot, opowiadań i na koniec sporów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną, całkiem zapomniani,\
 Pamiętali o sobie. Rada była pani,\
