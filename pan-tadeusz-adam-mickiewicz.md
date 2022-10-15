@@ -1,3 +1,4 @@
+«Proszę o głos!» powtórzył, po dwakroć odchrząknął,\
 Ukłonił się i usty dźwięcznymi tak brząknął:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Preopinanci moi w swych głosach wymownych\
