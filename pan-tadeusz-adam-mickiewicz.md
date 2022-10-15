@@ -1,3 +1,4 @@
+Wszakże, bierali ludzie i ode mnie cięgi,\
 Wie świat, że w czasie polskich ostatnich sejmików\
 Wyzwałem i zraniłem dwóch braci Buzwików,\
 Którzy... Ale to mniejsza. Jakże wasze myśli?\
