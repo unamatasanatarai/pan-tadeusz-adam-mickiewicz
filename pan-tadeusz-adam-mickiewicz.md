@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wojski, chlubnie skończywszy łowy, wraca z boru,\
 A Telimena w głębi samotnego dworu\
 Zaczyna polowanie. Wprawdzie nieruchoma,\
 Siedzi z założonymi na piersiach rękoma,\
