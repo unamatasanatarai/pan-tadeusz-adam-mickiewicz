@@ -1,3 +1,4 @@
+Że tam nad głową morze wiszące szalało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na dole jak ruiny miast: tu wywrót dębu\
 Wysterka z ziemi na kształt ogromnego zrębu;\
