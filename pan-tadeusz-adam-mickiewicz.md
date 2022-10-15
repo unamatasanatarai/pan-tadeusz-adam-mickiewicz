@@ -1,3 +1,4 @@
+Że będzie wojna. Książę wysłał mnie na zwiady,\
 Z rozkazem, żeby byli Litwini gotowi\
 Dowieść przychodzącemu Napoleonowi,\
 Że chcą złączyć się znowu z siostrą swą, Koroną,\
