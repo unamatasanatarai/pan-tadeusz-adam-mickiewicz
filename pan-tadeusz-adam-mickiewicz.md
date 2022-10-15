@@ -1,3 +1,4 @@
+Walczmy z sobą stałością, żalem i cierpieniem,\
 A wrogów naszych mężnym ścigajmy ramieniem».\
 Rzekł, na Telimenę spojrzał, ale ona\
 Nic nie odpowiadała, strasznie zadziwiona.
