@@ -1,3 +1,4 @@
+«Nieprawda — rzekł bernardyn — nie! Pan Najjaśniejszy,\
 Napoleon, katolik jest najprzykładniejszy:\
 Wszak go papież namaścił, żyją z sobą w zgodzie\
 I nawracają ludzi w francuskim narodzie,\
