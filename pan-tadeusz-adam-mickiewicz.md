@@ -1,3 +1,4 @@
+I ogłaszał włościanom Tadeusza wolę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaledwie usłyszeli nowinę poddani,\
 Skoczyli do panicza, padli do nóg pani,\
