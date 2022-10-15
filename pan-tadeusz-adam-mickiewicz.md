@@ -1,3 +1,4 @@
+Chwieje się: a wtem postrzegł, że blisko Gerwazy\
 Walczy; zawołał: «Jezus Maryja! Scyzoryku!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Klucznik, trwogę Chrzciciela poznawszy po krzyku,\
