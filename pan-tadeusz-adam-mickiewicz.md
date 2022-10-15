@@ -1,3 +1,4 @@
+Podkomorzy, niedawno przez powiatu stany\
 Zgodnie konfederackim marszałkiem obrany.\
 Miał mundur województwa: żupan złotem szyty,\
 Kontusz grodeturowy z frędzlą i pas lity,\
