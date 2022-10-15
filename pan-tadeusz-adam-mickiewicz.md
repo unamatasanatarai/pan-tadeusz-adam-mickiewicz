@@ -1,3 +1,4 @@
+Albo urząd, lecz ziemski, przyznany wyborem\
 Obywatelskim, nie zaś czyimś tam faworem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena przerwała: «Jeśli brat tak myśli,\
