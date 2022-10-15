@@ -1,3 +1,4 @@
+Zgromadzać się zaklęte mają nieboszczyki.\
 Już na poddaszu trzykroć krzyknęły puszczyki\
 Jak guślarze: zdają się witać wschód miesiąca,\
 Którego postać oknem spadła na stół drżąca,\
