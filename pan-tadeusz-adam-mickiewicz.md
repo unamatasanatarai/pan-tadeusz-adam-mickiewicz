@@ -1,3 +1,4 @@
+Rozbierał w myśli przykrą ze stryjem rozmowę:\
 Pierwszy raz połajany tak ostro!... Ocenił\
 Słuszność wyrzutów, sam się przed sobą rumienił.\
 Co począć? jeśli Zosia o wszystkim się dowie?\
