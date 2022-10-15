@@ -1,3 +1,4 @@
+I rzekł: «Sędzio, to bieda nam z tą panią ciotką,\
 Z tą panią Telimeną, kokietką i trzpiotką!\
 Kiedy Zosia została dzieckiem w biednym stanie,\
 Jacek ją Telimenie dał na wychowanie,\
