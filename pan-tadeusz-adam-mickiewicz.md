@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Co Wojski wyczytawszy pojmie i obwieści,\
 To natychmiast kucharze robią umiejętni.\
 Wre robota; pięćdziesiąt nożów w stoły tętni,\
 Zwijają się kuchciki czarne jak szatany:\
