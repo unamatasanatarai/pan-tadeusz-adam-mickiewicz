@@ -1,3 +1,4 @@
+I wijąc jak kropidłem podnosi go w górę,\
 Robi młynka, dwóch zaraz szeregowych zwala\
 Po ramionach i w głowę ugadza kaprala.\
 Reszta zlękła od kłody cofa się z przestrachem:\
