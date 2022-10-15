@@ -1,3 +1,4 @@
+Pan Tyzenhauz tancerzy przysłał, a kapele\
 Ogiński i pan Sołtan, co mieszka w Zdzieńciele.\
 Słowem, dawano huczne nad podziw zabawy\
 W domu, a w lasach wielkie robiono obławy.\
