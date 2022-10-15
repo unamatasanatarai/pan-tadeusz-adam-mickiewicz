@@ -1,3 +1,4 @@
+Chwyta je i w głąb niesie toń uciekająca,\
 A z góry znów garściami spada blask miesiąca.\
 Myślałbyś, że u stawu siedzi Świtezianka,\
 Jedną ręką zdrój leje z bezdennego dzbanka,\
