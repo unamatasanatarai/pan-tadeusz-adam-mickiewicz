@@ -1,3 +1,4 @@
+I rzekł: «Ja, piękne panie, lubię was jak wety!\
 Na me szlify majorskie: gdy człek zjadł śniadanie,\
 Najlepszą jest po zrazach zakąską gadanie\
 Z paniami tak pięknymi jak wy, piękne panie!\
