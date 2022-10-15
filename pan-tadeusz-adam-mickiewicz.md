@@ -1,3 +1,4 @@
+Myśliły o jutrzejszej walce i zakładzie;\
 Myśl wielka zwykle usta do milczenia zmusza.\
 Telimena, mówiąca wciąż do Tadeusza,\
 Musiała ku Hrabiemu nieraz się odwrócić,\
