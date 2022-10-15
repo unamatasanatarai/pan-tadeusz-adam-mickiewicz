@@ -1,3 +1,4 @@
+Ale znowu poważnie nastroiła lice,\
 Wstała i przechodząc się wszerz i wzdłuż alkowy,\
 Dzierżąc palec przy ustach, tymi rzekła słowy:
 
