@@ -1,3 +1,4 @@
+Dalej inne potrawy, a któż je wypowie!\
 Kto zrozumie nieznane już za naszych czasów,\
 Te półmiski kontuzów, arkasów, blemasów,\
 Z ingrediencyjami pomuchl, figatelów,\
