@@ -1,3 +1,4 @@
+Ogrodniczka dziewczynką zdawała się małą,\
 A pani ta niewiastą już w latach dojrzałą;\
 Lecz młodzież o piękności metrykę nie pyta,\
 Bo młodzieńcowi młodą jest każda kobiéta,\
