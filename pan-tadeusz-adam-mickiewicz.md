@@ -1,3 +1,4 @@
+Że struny zadzwoniły jak trąby mosiężne\
 I z trąb znana piosenka ku niebu wionęła,\
 Marsz tryumfalny: *Jeszcze Polska nie zginęła*!\
 *Marsz Dąbrowski do Polski!* — I wszyscy klasnęli,\
