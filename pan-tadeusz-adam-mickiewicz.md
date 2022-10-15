@@ -1,3 +1,4 @@
+Nie dziw, że ludzi, świat, siebie ohydzą,\
 Że utraciwszy rozum w mękach długich,\
 Plwają na siebie i źrą jedni drugich!
 
