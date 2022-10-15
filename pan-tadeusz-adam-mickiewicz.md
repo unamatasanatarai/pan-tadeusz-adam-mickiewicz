@@ -1,3 +1,4 @@
+Zakopać taki talent w lasach i na grzędzie!\
 Wierz mi, ile poznałam, pojętne to dziecię,\
 Warto, żeby na wielkim przetarło się świecie.\
 Dobrze brat zrobi, gdy go do stolicy wyśle,\
