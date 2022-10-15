@@ -1,3 +1,4 @@
+Gdy zuchwalstwem Hrabiego rażony jak gromem,\
 Oparłszy się o kielich butlem nieruchomym,\
 Głowę wyciągnął na bok i ucha przyłożył,\
 Oczy rozwarł szeroko, usta wpół otworzył;\
