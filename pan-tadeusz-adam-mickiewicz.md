@@ -1,3 +1,4 @@
+Myśliwiec wpół schylony, na kolanie wsparty,\
 Rurą ku niemu wije i już cyngla tyka.\
 Wilk uszy spuszcza, ogon podtuliwszy, zmyka;\
 Psiarnia z tryumfującym rzuca się hałasem\
