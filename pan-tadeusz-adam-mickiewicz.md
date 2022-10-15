@@ -1,3 +1,4 @@
+Długo liczyć! A nosów i uszu bez liku!\
 A nie ma żadnej szczerby na tym Scyzoryku\
 I żaden go nie splamił zbojecki uczynek:\
 Tylko otwarta wojna albo pojedynek.\
