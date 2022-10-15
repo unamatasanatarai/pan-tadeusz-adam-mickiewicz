@@ -1,3 +1,4 @@
+Proszę cię, moja droga, rozmyśl się! uspokój!\
 Ja jestem tobie wdzięczen, ale niepodobna\
 Żenić się. Kochajmy się, ale tak — z osobna.\
 Zostać dłużej nie mogę; nie, nie, jechać muszę.\
