@@ -1,3 +1,4 @@
+I dotąd nosił wielki pęk kluczy za pasem,\
 Uwiązany na taśmie ze srebrnym kutasem,\
 Choć nie miał co otwierać, bo zamku podwoje\
 Stały otworem. Przecież, wynalazł drzwi dwoje;\
