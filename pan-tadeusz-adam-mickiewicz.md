@@ -1,3 +1,4 @@
+Jeśli do sporu przyszło, jakże spór godzili?\
 Oto obrali sędziów i zakład stawili.\
 Ogiński sto włók lasu raz przegrał o wilka;\
 Niesiołowskiemu borsuk kosztował wsi kilka!\
