@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Hrabia, kiwnąwszy głową, rzekł poważnym tonem:\
 «Tak to na świecie wszystko los zwykł kończyć dzwonem!...\
 Rachunki myśli wielkiej, plany wyobraźni,\
 Zabawki niewinności, uciechy przyjaźni,\
