@@ -1,3 +1,4 @@
+Przystawiwszy imbryki, odwiedza mleczarnie\
 I sama lekko świeży nabiału kwiat garnie\
 Do każdej filiżanki w osobny garnuszek,\
 Aby każdą z nich ubrać w osobny kożuszek.
