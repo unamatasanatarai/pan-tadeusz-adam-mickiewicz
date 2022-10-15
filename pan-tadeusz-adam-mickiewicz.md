@@ -1,3 +1,4 @@
+Z wiarusami, kielichem osładzając żałość.\
 Taka była dla Zosi Dobrzyńskiego stałość.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia tańczy wesoło: lecz choć w pierwszej parze,\
