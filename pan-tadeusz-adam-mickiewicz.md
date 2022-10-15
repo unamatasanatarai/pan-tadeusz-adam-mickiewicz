@@ -1,3 +1,4 @@
+Jedną rękę na cuglach, drugą miał u nosa:\
 «Przypatrzcie się — rzekł Robak — tej groźnej postawie:\
 Zgadnijcie czyja? — Wszyscy patrzyli ciekawie.—\
 Wielki to człowiek, cesarz, ale nie Moskali,\
