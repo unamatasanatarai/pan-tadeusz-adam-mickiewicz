@@ -1,3 +1,4 @@
+Jak żuraw; nie śmie spójrzeć ni w lewo, ni w prawo;\
 Mina gęsta, lecz z miny widać że jest w męce,\
 Nie wie jak się pokłonić, gdzie ma podziać ręce,\
 On, co tak gesty lubił! Ręce za pas sadził,\
