@@ -1,3 +1,4 @@
+Wiwat Klucznik Rębajło! Hejże na Soplicę!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;I tak wszystkich pociągnął wymowny Gerwazy;\
 Bo wszyscy ku Sędziemu mieli swe urazy,\
