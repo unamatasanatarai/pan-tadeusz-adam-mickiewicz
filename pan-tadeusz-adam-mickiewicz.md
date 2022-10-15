@@ -1,3 +1,4 @@
+Od mojego imienia zwane *cios mopanku*;\
 Któż to pana nauczył? to jest moje cięcie,\
 Moje!» Wstał, jenerała porwawszy w objęcie:\
 «Teraz umrę spokojny! Jest przecie na świecie\
