@@ -1,3 +1,4 @@
+Brzydkie Prusactwo zdeptał, Anglików wyrzucił\
 Het za morze, Moskalom zapewne wygodzi;\
 Ale co stąd wyniknie, wie asan dobrodziéj?\
 Oto, szlachta litewska wtenczas na koń wsiędzie\
