@@ -1,3 +1,4 @@
+(Mówiąc, Podkomorzemu ścisnął za kolana);\
 On mnie radą do usług publicznych sposobił,\
 Z opieki nie wypuścił, aż człowiekiem zrobił.\
 W mym domu wiecznie będzie jego pamięć droga,\
