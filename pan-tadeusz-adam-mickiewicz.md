@@ -1,3 +1,4 @@
+Z południa, już ich stado pół niebios obiegło\
 Ogromną chmurą. Wiatr ją pędził coraz chyżej,\
 Chmura coraz gęstniała, zwieszała się niżej:\
 Aż, jedną stroną na wpół od niebios oddarta,\
