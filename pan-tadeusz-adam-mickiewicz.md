@@ -1,3 +1,4 @@
+Niższe piętra oblała tumanu powłoka,\
 Rozpadliny i szczerby zakryła od oka;\
 Krzyk dalekich myśliwców wiatrami przygnany,\
 Odbijał się kilkakroć o zamkowe ściany:\
