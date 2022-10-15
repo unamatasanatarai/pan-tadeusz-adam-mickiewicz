@@ -1,3 +1,4 @@
+Tadeusz rad z takiego miłości dowodu,\
 Wziął ją pod rękę, ścisnął i wyszli z ogrodu\
 Do pokoju damskiego, do owej komnaty,\
 Kędy Tadeusz mieszkał przed dziesięcią laty.
