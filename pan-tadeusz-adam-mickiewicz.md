@@ -1,3 +1,4 @@
+Z pleców płaszcze, kontusze, nawet taratatki,\
 Nawet żupany. I tak szlachta skuta w kłodzie\
 Siedziała rzędem, dzwoniąc zębami na chłodzie\
 I na deszczu, bo coraz wzmagała się słota.\
