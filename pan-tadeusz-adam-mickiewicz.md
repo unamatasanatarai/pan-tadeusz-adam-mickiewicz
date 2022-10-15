@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Telimeno — Tadeusz rzekł — dalbóg nietwarde\
 Mam serce ani ciebie unikam przez wzgardę;\
 Ale uważ no sama, wszak nas widzą, śledzą,\
