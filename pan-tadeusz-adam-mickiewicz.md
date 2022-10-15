@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Stała w ogrodzie, prawie pod samym parkanem,\
 O który się opierał Ryków swym trójgranem,\
 Wielka stara sernica, budowana w kratki\
