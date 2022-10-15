@@ -1,3 +1,4 @@
+A na głos dzwonka, niby na wiatru powianie,\
 Chylą się wszystkie głowy jak kłosy na łanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wieśniaczki dziś na ołtarz Matki Zbawiciela\
