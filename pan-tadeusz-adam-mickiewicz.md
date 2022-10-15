@@ -1,3 +1,4 @@
+Ruskie przysłowie: z kim się biję, tego lubię;\
 Gładź drużkę jak po duszy, a bij jak po szubie.\
 Ja mówię, będzie wojna u nas. Do Majora\
 Płuta, adiutant sztabu przyjechał zawczora:\
