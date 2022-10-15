@@ -1,3 +1,4 @@
+Jak bilardowa kula toczyła się kołem.\
 W biegu dotknęła blisko naszego młodziana;\
 Uczepiwszy falbaną o czyjeś kolana,\
 Pośliznęła się nieco i w tym roztargnieniu\
