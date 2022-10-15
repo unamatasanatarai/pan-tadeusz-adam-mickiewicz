@@ -1,3 +1,4 @@
+Stryjaszka, Podkomorstwo i szanowne damy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Wojski z Tadeuszem idą pod las drogą,\
 I jeszcze się do woli nagadać nie mogą.
