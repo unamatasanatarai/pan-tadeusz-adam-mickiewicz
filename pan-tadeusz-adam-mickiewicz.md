@@ -1,3 +1,4 @@
+«Ba — przerwał Rymsza — przecież widziałem za młodu\
 Kościuszkę, naczelnika naszego narodu:\
 Wielki człowiek! A chodził w krakowskiej sukmanie,\
 To jest czamarce». «W jakiej czamarce, mospanie? —\
