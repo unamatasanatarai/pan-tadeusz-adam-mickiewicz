@@ -1,3 +1,4 @@
+Mają krew pana mego zetrzeć z tej podłogi?\
 O nie! Póki Gerwazy ma choć za grosz duszy,\
 I tyle sił, że jednym małym palcem ruszy\
 Scyzoryk swój wiszący dotychczas na ścianie,\
