@@ -1,3 +1,4 @@
+Porwał, schował w kieszenie; nie wie, co klucz znaczy,\
 Lecz mu to owa biała kartka wytłumaczy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dzwon wciąż dzwonił i echem z głębi cichych lasów\
