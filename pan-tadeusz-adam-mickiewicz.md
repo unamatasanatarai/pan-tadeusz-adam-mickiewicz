@@ -1,3 +1,4 @@
+Przyjm, Asesorze, w dowód mojego szacunku».
 
 &nbsp;&nbsp;&nbsp;&nbsp;A na to rzekł Asesor, wesół z podarunku:\
 «Ja niegdyś darowane od księcia Sanguszki\
