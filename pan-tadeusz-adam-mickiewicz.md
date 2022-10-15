@@ -1,3 +1,4 @@
+Wtem ciężka marzeniami na pierś spadła głowa,\
 I tak usnął ostatni Klucznik Horeszkowa.
 
 
