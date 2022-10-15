@@ -1,3 +1,4 @@
+Pierwszy raz posłyszała w życiu z ust młodziana\
 Dziwną i wielką nowość: że była kochana.\
 Biegła więc, gdzie stał mały domowy ołtarzyk,\
 Wyjęła zeń obrazek i relikwijarzyk;\
