@@ -1,3 +1,4 @@
+Że mieszkając na żyznej litewskiej równinie,\
 Malujesz tylko jakieś skały i pustynie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Przyjacielu — rzekł Hrabia — piękne przyrodzenie\
