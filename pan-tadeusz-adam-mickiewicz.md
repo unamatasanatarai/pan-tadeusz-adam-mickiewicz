@@ -1,3 +1,4 @@
+Lecz książę Józef słyszał od pana Biniona,\
 Francuza, co należy do cesarskiej rady,\
 Że się na niczym skończą wszystkie te układy,\
 Że będzie wojna. Książę wysłał mnie na zwiady,\
