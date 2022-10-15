@@ -1,3 +1,4 @@
+Prawa szpona u drzewa zostaje się w lesie,\
 A lewą zakrwawioną źwierz na pola niesie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kropiciel wolny, oczy obraca dokoła,\
