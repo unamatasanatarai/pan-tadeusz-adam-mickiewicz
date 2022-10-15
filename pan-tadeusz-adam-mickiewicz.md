@@ -1,3 +1,4 @@
+Dąbrowski mu podawał rękę i dziękował,\
 On, czapkę zdjąwszy, wodza rękę ucałował.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poloneza czas zacząć. — Podkomorzy rusza\
