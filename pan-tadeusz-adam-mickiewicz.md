@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Siedemdziesiąt dwa lat liczył Maciej, starzec dziarski\
 Niskiego wzrostu, dawny konfederat barski.\
 Pamiętają i swoi, i nieprzyjaciele\
