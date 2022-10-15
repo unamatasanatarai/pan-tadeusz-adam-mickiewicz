@@ -1,3 +1,4 @@
+Bo naród bywa na takiej katuszy,\
 Że, kiedy zwróci wzrok ku jego męce,\
 Nawet Odwaga załamuje ręce.
 
