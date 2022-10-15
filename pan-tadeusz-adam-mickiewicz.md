@@ -1,3 +1,4 @@
+Stoją w kroku, na źwierza wytknęli flint rury,\
 Jako dwa konduktory w łono ciemnej chmury;\
 Aż oba jednym razem pociągnęli kurki\
 (Niedoświadczeni!), razem zagrzmiały dwururki:\
