@@ -1,3 +1,4 @@
+Bracie mój, a nas wszystkich Ojcze Dobrodzieju,\
 Nie jest to marna pomoc. Ja bym na Francuzów\
 Spuścił się w czasie wojny, jak na czterech tuzów:\
 Lud bitny, a od czasów pana Tadeusza\
