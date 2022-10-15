@@ -1,3 +1,4 @@
+Ojczyzna! ja to czuję wszystko, ja rozumiem!\
 Wy Polaki, ja Ruski: teraz się nie bijem,\
 Jest armistycjum, to my razem jemy, pijem.\
 Często na awanpostach nasz z Francuzem gada,\
