@@ -1,3 +1,4 @@
+Gdy orły nasze lotem błyskawicy\
 Spadną u dawnej Chrobrego granicy,\
 Ciał się najedzą, krwią całe opłyną,\
 I skrzydła wreszcie na spoczynek zwiną;\
