@@ -1,3 +1,4 @@
+I z tej strasznej napaści z tryumfem wychodzi?\
 Odjeżdżałem ze wstydem. Właśnie był poranek.\
 Wtem ujrzałem, poznałem. Wystąpił na ganek,\
 I brylantową szpinką ku słońcu migotał,\
