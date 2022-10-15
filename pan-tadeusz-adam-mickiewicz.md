@@ -1,3 +1,4 @@
+Który był potem naszym nowogrodzkim posłem\
 I w którego ja domu od dzieciństwa wzrosłem.\
 Owóż Rejtan na przyjazd księcia jenerała\
 Zaprosił gości. Liczna szlachta się zebrała,\
