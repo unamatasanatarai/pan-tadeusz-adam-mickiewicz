@@ -1,3 +1,4 @@
+Trzeci żółty; troistą grają w górze tęczą,\
 A spadając w sto kubków, we sto szklanek brzęczą.\
 Wre szlachta. Tamci piją, ci Hrabiemu życzą\
 Lat setnych, wszyscy: «Hejże na Soplicę!» krzyczą.
