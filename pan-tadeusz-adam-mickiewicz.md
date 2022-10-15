@@ -1,3 +1,4 @@
+Może Zosi tymczasem podobać się drugi;\
 Więzić jej woli nie chcę; prosić o wzajemność,\
 Na którąm nie zasłużył, byłaby nikczemność».
 
