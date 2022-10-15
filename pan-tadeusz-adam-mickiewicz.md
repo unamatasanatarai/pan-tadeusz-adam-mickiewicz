@@ -1,3 +1,4 @@
+Wtem Wojski krzyknął: «Wyczha!» Zając smyk zza płotu\
 Na łąkę; charty za nim; i wnet bez obrotu\
 Sokół i Kusy razem spadli na szaraka\
 Ze dwóch stron w jednej chwili, jak dwa skrzydła ptaka,\
