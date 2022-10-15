@@ -1,3 +1,4 @@
+A w relikwiji suknia świętego Józefa,\
 Oblubieńca, patrona zaręczonej młodzi;\
 I z tymi świętościami do pokoju wchodzi.
 
