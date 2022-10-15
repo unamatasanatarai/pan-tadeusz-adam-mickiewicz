@@ -1,3 +1,4 @@
+Sąsiedzi dobrzy!... Kogo z nich ubyło,\
 Jakże tam o nim czule się mówiło!\
 Ile pamiątek, jaka żałość długa,\
 Tam, gdzie do pana przywiązańszy sługa\
