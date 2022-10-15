@@ -1,3 +1,4 @@
+Ochrzczony Kropicielem, od wielkiej maczugi,\
 Którą zwał Kropidełkiem. Miał ją dziś przy sobie;\
 Stanął za nią, na gałce zwiesił ręce obie,\
 Na ręku oparł brodę, krzycząc: «Czekać! zwlekać!\
