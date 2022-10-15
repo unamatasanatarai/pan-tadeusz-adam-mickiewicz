@@ -1,3 +1,4 @@
+I potrząsając brodą, zdziwiony spoziera\
 Na błyskające nagle między łomem zgliszcze:\
 Był to zbłąkany granat, kręci się, wre, świszcze,\
 Pękł z hukiem jakby piorun; żubr pierwszy raz w życiu,\
