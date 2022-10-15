@@ -1,3 +1,4 @@
+Roztopiła się lodu cukrowego piana\
 I dno odkryła, dotąd zatajone oku;\
 Więc krajobraz przedstawił nową porę roku,\
 Zabłysnąwszy zieloną, różnofarbną wiosną.\
