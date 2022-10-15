@@ -1,3 +1,4 @@
+Bije blask z karabeli, świeci się pas suty,\
 A on stąpa powoli, niby od niechcenia:\
 Ale z każdego kroku, z każdego ruszenia,\
 Można tancerza czucia i myśli wyczytać.\
