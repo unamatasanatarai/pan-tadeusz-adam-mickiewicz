@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia z załamanymi poglądał rękoma\
 Na snopek uwiązanej trawami mietlicy,\
 Którą brał za pęk strusich piór w ręku dziewicy.\
