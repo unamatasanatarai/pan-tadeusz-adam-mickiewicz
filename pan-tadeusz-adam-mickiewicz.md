@@ -1,3 +1,4 @@
+Czyli z najwyższej sosny złupić wronie gniazdo:\
 Wszystko umiał; myśliłem: pod szczęśliwą gwiazdą\
 Urodził się ten chłopiec, szkoda że Soplica!\
 Któż by zgadł, że w nim zamku powitam dziedzica,\
