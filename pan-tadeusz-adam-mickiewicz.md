@@ -1,3 +1,4 @@
+Obok na prawej stronie jenerał Dąbrowski,\
 Na lewej siadł Kniaziewicz, Pac i Małachowski;\
 Śród nich Podkomorzyna, dalej inne panie,\
 Oficerowie, pany, szlachta i ziemianie,\
