@@ -1,3 +1,4 @@
+«Jakże to dom oczyścić, jak to ksiądz rozumie?\
 Jużci my wszystko zrobim, na wszystko gotowi;\
 Tylko niech ksiądz dobrodziej jaśniej się wysłowi».
 
