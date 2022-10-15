@@ -1,3 +1,4 @@
+Wzgardziła Asesora, Hrabię i Rejenta,\
 Żeś mnie uwiodł i teraz porzucił sierotę,\
 To nic! Jesteś mężczyzną, znam waszą niecnotę,\
 Wiem, że jak inni, tak ty mógłbyś wiarę złamać,\
