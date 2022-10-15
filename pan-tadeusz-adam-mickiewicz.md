@@ -1,3 +1,4 @@
+Pilnowany, niełacno zerwie pierwsze związki;\
 Przy tym dla Telimeny ma już obowiązki...\
 Mężczyźni, póki młodzi, chociaż w myślach zmienni,\
 W uczuciach są od dziadów stalsi, bo sumienni.\
