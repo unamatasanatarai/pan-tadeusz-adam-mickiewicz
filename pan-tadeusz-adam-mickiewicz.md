@@ -1,3 +1,4 @@
+Ciwun, co przyszedł zdawać sprawę o robocie,\
 I pisarz prowentowy w szeptach z Ekonomem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Podkomorzy siedział na przyzbie przed domem.\
