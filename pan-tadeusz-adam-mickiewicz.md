@@ -1,3 +1,4 @@
+I nim się nastroili, tak mówić pośpieszał:\
 «Chwalicie mą tabakę, mości dobrodzieje;\
 Obaczcież, co się wewnątrz tabakierki dzieje».\
 Tu, wycierając chustką zabrudzone denko,\
