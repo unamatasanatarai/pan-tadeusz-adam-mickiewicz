@@ -1,3 +1,4 @@
+Jak wąż głowę i ogon gdy chowa w przeguby,\
 Tak Gerwazy z długiego stał się krótki, gruby;\
 Rozciągnęły się, nawet skrzypnęły powrozy,\
 Ale nie pękły! Klucznik ze wstydu i zgrozy\
