@@ -1,3 +1,4 @@
+Zbudował miasto Wilno, które w lasach siedzi\
 Jak wilk pośrodku żubrów, dzików i niedźwiedzi.\
 Z tego to miasta Wilna, jak z rzymskiej wilczycy,\
 Wyszedł Kiejstut i Olgierd, i Olgierdowicy,\
