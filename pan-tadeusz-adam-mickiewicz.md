@@ -1,3 +1,4 @@
+»Jezus Maria!« krzyknąłem i Pańscy anieli\
 Zesłali mi na pomoc księdza bernardyna.\
 On nas wszystkich zawstydził; oj, dzielny księżyna!\
 Gdym drżał, gdym się do cyngla dotknąć nie ośmielił,\
