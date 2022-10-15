@@ -1,3 +1,4 @@
+Już przeze drzwi włażą trzy błyszczące bagnety,\
 A za nimi trzy czarne schylone kaszkiety.\
 Maciek stał u drzwi z Rózgą wzniesioną do góry,\
 Lgnąc do ściany, czatował jako kot na szczury,\
