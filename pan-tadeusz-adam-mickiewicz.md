@@ -1,3 +1,4 @@
+Oto, szlachta litewska wtenczas na koń wsiędzie\
 I szable weźmie, kiedy bić się z kim nie będzie;\
 Napoleon sam wszystkich pobiwszy, nareszcie\
 Powie: »Obejdę się ja bez was, kto jesteście?«\
