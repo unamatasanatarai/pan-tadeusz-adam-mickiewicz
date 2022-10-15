@@ -1,3 +1,4 @@
+Zaczął wedle zwyczaju wieczorne pacierze.\
 Lecz między Ojczenaszem i Zdrowaś Maryją,\
 Dziwne stanęły mary, tłoczą się i wiją:\
 Klucznik widzi Horeszki, swoje dawne pany;\
