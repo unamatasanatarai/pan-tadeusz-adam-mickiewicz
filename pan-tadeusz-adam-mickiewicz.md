@@ -1,3 +1,4 @@
+Zosi tak wielkie na nim zrobiło wrażenie;\
 Nie odgadła wszystkiego, przecież pomięszana\
 Bawi gości, a z oczu nie spuszcza młodziana.\
 Wreszcie czas upatrzywszy ku niemu podbiega:\
