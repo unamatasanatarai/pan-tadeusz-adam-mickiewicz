@@ -1,3 +1,4 @@
+Słychać kolejne hasła stanowisk wojskowych.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spali gospodarz domu, wodze i żołnierze;\
 Oczu tylko Wojskiego sen słodki nie bierze.\
