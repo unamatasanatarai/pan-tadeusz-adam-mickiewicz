@@ -1,3 +1,4 @@
+A strzelcy, obróciwszy do lasu dwururki,\
 Patrzą Wojskiego. Ukląkł, ziemię uchem pyta;\
 Jako w twarzy lekarza wzrok przyjaciół czyta\
 Wyrok życia lub zgonu miłej im osoby,\
