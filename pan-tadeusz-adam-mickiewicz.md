@@ -1,3 +1,4 @@
+Zostać dłużej nie mogę; nie, nie, jechać muszę.\
 Bądź zdrowa, Telimeno moja; jutro ruszę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Rzekł, nasuwał kapelusz, odwracał się bokiem,\
