@@ -1,3 +1,4 @@
+Nie pamiętam już zgoła co mu na to rzekłem,\
 Podobno nic — na konia wsiadłem i uciekłem!...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jacku! zawołał Klucznik, mądre ty przyczyny\
