@@ -1,3 +1,4 @@
+Czy mu krewni pozwolą? co świat powie na to?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena, tak myśląc, z sofy się podniosła\
 I stanęła na palcach: rzekłbyś, że podrosła;\
