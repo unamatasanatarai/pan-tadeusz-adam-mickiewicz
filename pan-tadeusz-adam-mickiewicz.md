@@ -1,3 +1,4 @@
+Słyszałem, że już podpadł pod klątwy biskupie;\
 Wszytko to jest...» Tu Maciej chleb umoczył w zupie,\
 I jedząc nie dokończył ostatniego słowa.
 
