@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Śród ptaszych głów sterczały główki ludzkie małe,\
 Odkryte; włosy na nich krótkie, jak len białe;\
 Szyje nagie do ramion; a pomiędzy nimi\
