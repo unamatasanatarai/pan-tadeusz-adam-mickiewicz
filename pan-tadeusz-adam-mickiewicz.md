@@ -1,3 +1,4 @@
+Po obu stronach oczy roztargnione wodził,\
 Nie mieszał się w myśliwych ni w starców rozmowę\
 I widać, że czym innym zajętą miał głowę.\
 Nosił skórzaną plackę: czasem w miejscu stanie,\
