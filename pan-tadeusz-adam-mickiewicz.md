@@ -1,3 +1,4 @@
+Kędy mieli się rankiem zebrać obławnicy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dwie chyliły się karczmy po dwóch stronach drogi,\
 Oknami wzajem sobie grożące jak wrogi.\
