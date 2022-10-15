@@ -1,3 +1,4 @@
+I z dziecinną radością pociągnął za sznurek,\
 By stary Dąbrowskiego usłyszeć mazurek.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biegał po całym domu i szukał komnaty,\
