@@ -1,3 +1,4 @@
+Aby widzów zdziwiła jasnych barw tysiącem!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ogrodniczka tymczasem powstała w milczeniu,\
 Podniosła jedno dziecię zwisłe na ramieniu,\
