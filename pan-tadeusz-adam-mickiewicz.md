@@ -1,3 +1,4 @@
+Ruch jednostajny rożnów kręcących pieczenie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia od rana pisał, zamknąwszy się w izbie;\
 Woźny od rana czekał pod oknem na przyzbie.\
