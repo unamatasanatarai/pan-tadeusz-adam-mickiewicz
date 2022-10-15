@@ -1,3 +1,4 @@
+I słońce usta sennych promykiem poranka\
 Drażni jak dziewczę kłosem budzące kochanka.\
 Już wróble skacząc, świerkać zaczęły pod strzechą;\
 Już trzykroć gęgnął gąsior, a za nim jak echo\
