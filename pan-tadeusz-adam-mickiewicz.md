@@ -1,3 +1,4 @@
+Gdy król rozkazał wojsku dać trzy dni wytchnienia.\
 Ale polscy żołnierze mimo utrudzenia\
 Skarżyli się, że król im marszu nie dozwala;\
 Tak radzi by co prędzej doścignąć Moskala.
