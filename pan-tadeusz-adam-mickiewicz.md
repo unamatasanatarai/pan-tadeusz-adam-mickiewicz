@@ -1,3 +1,4 @@
+Baby patrząc na Zosię, gadały po cichu,\
 Że pewnie przeznaczeniem będzie tej dziewczyny\
 Pogodzić dwie od dawna zwaśnione rodziny.\
 A widzę, że się dzisiaj ziścił omen babi.\
