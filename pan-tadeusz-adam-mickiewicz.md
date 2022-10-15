@@ -1,3 +1,4 @@
+Chciał zmykać: szlachta w pogoń, wołając, że zdradził.\
 Mickiewicz stał z daleka; ni krzyczał, ni radził,\
 Ale z miny poznano, że coś złego knuje:\
 Więc do kordów, i hejże! On się rejteruje,\
