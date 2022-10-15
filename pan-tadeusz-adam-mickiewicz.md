@@ -1,3 +1,4 @@
+Tysiące powińszowań i wiwatnych wrzasków.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Uciszono się z wolna i oczy gawiedzi\
 Zwróciły się na wielki, świeży trup niedźwiedzi.\
