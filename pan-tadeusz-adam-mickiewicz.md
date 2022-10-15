@@ -1,3 +1,4 @@
+Opowiem od początku historyję całą...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nim Wojski zaczął mówić, Gerwazy spór zgodził.\
 On niedźwiedzia z uwagą dokoła obchodził,\
