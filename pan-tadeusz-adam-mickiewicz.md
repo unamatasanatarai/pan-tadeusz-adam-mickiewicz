@@ -1,3 +1,4 @@
+Przy tym różne sygnety, kanaki, manele,\
 Kity bogate, rzędy, cudne karabele.\
 Skarbczyk Stolnika, w ziemi skryty od grabieży,\
 Pani Zofii jako dziedziczce należy;\
