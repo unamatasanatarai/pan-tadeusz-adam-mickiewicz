@@ -1,3 +1,4 @@
+Rodzina pańska, jak go czeladka ściskała,\
 Zanosząc się od płaczu! On za stołem siadał\
 I dziwniejsze od baśni historyje gadał.\
 On opowiadał, jako jenerał Dąbrowski,\
