@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski ledwie raz okiem za zającem rzucił;\
 Widząc, że uciekł, głowę obojętnie zwrócił\
 I kończył rzecz przerwaną: «Na czym więc stanąłem?\
