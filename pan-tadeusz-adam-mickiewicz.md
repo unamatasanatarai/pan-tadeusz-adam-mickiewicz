@@ -1,3 +1,4 @@
+Wydarłbym ją, rozbiłbym w puch ten jego zamek!\
 Miałem za sobą Dobrzyn i cztery zaścianki!\
 Ach, gdyby ona była jak nasze szlachcianki\
 Silna i zdrowa! gdyby ucieczki, pogoni\
