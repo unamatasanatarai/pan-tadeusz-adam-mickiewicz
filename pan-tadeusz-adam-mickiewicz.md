@@ -1,3 +1,4 @@
+Wtenczas bawiłem bardzo krótko w Soplicowie;\
 Nie byłem taki próżny, ażebym się łudził,\
 Żem jednym mym spojrzeniem miłość w tobie wzbudził;\
 Ja nie fanfaron, chciałem mą własną zasługą\
