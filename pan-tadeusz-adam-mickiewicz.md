@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Sztab stał we dworze, a z nim zbrojnej szlachty wiele:\
 Podhajscy, Birbaszowie, Hreczechy, Biergele,\
 Wszyscy Sędziego krewni albo przyjaciele;\
 Na odsiecz mu przybiegli słysząc o napadzie,\
