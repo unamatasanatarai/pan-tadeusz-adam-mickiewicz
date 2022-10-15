@@ -1,3 +1,4 @@
+Kaptur tylko nasunął i pacierz swój kończył,\
 Więc Tadeusz odjechał i z gośćmi się złączył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie wtenczas myśliwi smycze zatrzymali,\
