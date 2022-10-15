@@ -1,3 +1,4 @@
+Gdyby ich nie przebudził dzwonek z Soplicowa —\
 Hasło wieczerzy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Pora powracać do domu,\
