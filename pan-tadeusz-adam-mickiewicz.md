@@ -1,3 +1,4 @@
+I zacząć wojnę. Jadę pożegnać Stolnika,\
 W nadziei, że gdy ujrzy wiernego stronnika,\
 Dawnego przyjaciela, prawie domownika,\
 Z którym pił i wojował przez tak długie lata,\
