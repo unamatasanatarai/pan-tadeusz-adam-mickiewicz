@@ -1,3 +1,4 @@
+Wyjeżdża za granicę, to już nie po odzież,\
 Nie szukać prawodawstwa w drukarskich kramarniach\
 Lub wymowy uczyć się w paryskich kawiarniach.\
 Bo teraz Napoleon, człek mądry a prędki,\
