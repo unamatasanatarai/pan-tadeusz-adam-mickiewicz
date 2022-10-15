@@ -1,3 +1,4 @@
+Gdybyś i te zapory zmógł nadludzkim męstwem,\
 Dalej spotkać się z większym masz niebezpieczeństwem:\
 Dalej co krok czyhają, niby wilcze doły,\
 Małe jeziorka, trawą zarosłe na poły,\
