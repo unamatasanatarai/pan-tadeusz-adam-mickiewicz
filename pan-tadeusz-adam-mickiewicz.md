@@ -1,3 +1,4 @@
+Żyd stary i powszechnie znany z poczciwości,\
 Od lat wielu dzierżawił karczmę, a nikt z włości,\
 Nikt ze szlachty nie zaniósł nań skargi do dworu.\
 O cóż skarżyć? Miał trunki dobre do wyboru,\
