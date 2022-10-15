@@ -1,3 +1,4 @@
+Jako sekundant skórę rozciągnę na ziemi,\
 I ja sam was ustawię: Waść po jednej stronie\
 Stanie na końcu pyska, a Waść na ogonie«.\
 »Zgoda!« — wrzaśli; czas? — jutro; miejsce? — karczma Usza.\
