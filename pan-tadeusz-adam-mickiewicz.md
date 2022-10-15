@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną, całkiem zapomniani,\
 Pamiętali o sobie. Rada była pani,\
 Że jej dowcip tak bardzo Tadeusza bawił;\
 Młodzieniec jej nawzajem komplementy prawił.\
