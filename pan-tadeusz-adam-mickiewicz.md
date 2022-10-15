@@ -1,3 +1,4 @@
+Gotów jestem wypełniać wszelkie stron rozkazy,\
 Ale ostrzegam, że akt nie będzie miał mocy,\
 Wymuszony przez gwałty, ogłoszony w nocy».\
 «Co za gwałty — rzekł Klucznik — tu nie ma napaści,\
