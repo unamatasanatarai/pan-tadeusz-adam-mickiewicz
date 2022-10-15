@@ -1,3 +1,4 @@
+Spodziewając się i sam czegoś się dowiedzieć.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W Soplicowie domowi i goście, po kłótni\
 Wczorajszej, wstali z siebie nieradzi i smutni.\
