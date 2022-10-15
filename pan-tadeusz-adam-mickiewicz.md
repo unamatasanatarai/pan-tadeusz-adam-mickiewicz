@@ -1,3 +1,4 @@
+Jankiel zrobił majątek; syt zysków i chwały,\
 Zawiesił dźwięcznostrunne na ścianie cymbały;\
 Osiadłszy z dziećmi w karczmie, zatrudniał się szynkiem,\
 Przy tym w pobliskim mieście był też podrabinkiem,\
