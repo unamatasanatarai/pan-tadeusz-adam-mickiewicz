@@ -1,3 +1,4 @@
+Więc nic nie mówiąc, smutnie po sobie spójrzeli,\
 Westchnęli; na znak zgody głowami skinęli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Polak, chociaż stąd między narodami słynny\
