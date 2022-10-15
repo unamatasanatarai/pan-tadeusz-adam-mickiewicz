@@ -1,3 +1,4 @@
+Wielki pożar od wiatru tym mocniej wybuchnie.\
 I moje serce zdolne mocniej kochać z dala.\
 Panie Soplico! miałem ciebie za rywala;\
 Ten błąd był jedną z przyczyn naszej smutnej zwady,\
