@@ -1,3 +1,4 @@
+Wojska ciekawe patrzą na wodzów spotkanie.\
 Hrabia i Ryków idą, obróceni bokiem,\
 Prawą ręką i prawym grożąc sobie okiem;\
 Wtem lewymi rękami odkrywają głowy\
