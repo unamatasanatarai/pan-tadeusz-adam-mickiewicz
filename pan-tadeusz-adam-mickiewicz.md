@@ -1,3 +1,4 @@
+Musiała ku Hrabiemu nieraz się odwrócić,\
 Nawet na Asesora nieraz okiem rzucić:\
 Tak ptasznik patrzy w sidło, kędy szczygły zwabia,\
 I razem w pastkę wróblą. Tadeusz i Hrabia,\
