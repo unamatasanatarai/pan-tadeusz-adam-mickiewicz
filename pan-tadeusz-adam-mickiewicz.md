@@ -1,3 +1,4 @@
+Szeptach, szmerach i słowach na wpół wymówionych,\
 Z których składa się dziwna muzyka wieczoru.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaczął ją puszczyk, jęcząc na poddaszu dworu;\
