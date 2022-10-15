@@ -1,3 +1,4 @@
+Kochany Tadeuszku i wielmożny grafie;\
 Ilekroć zaś wspomnicie o dzisiejszym trafie,\
 Wspomnijcie też starego Wojskiego przestrogę:\
 Nigdy jeden drugiemu nie zachodzić w drogę,\
