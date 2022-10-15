@@ -1,3 +1,4 @@
+Dosyć już mety zbliżać, widzę, żeście zuchy;\
 Chcecie strzelać się, rury oparłszy na brzuchy?\
 Ja nie pozwolę. Zgoda, że na pistolety;\
 Lecz strzelać się nie z dalszej ani z bliższej mety,\
