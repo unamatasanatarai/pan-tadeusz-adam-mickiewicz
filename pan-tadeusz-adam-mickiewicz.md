@@ -1,3 +1,4 @@
+Ksiądz Robak, że zbyt czynnie rozszerzał nowiny,\
 Klucznik i szlachta, że je pojęła opacznie.\
 Wojna z Rosyją jeszcze nieprędko się zacznie;\
 Tymczasem, kto miał udział najczynniejszy w bitwie,\
