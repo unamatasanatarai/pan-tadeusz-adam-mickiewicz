@@ -1,3 +1,4 @@
+Trzy razy aż pode drzwi to chłopstwo się wparło,\
 Ale za każdym razem trzech nogi zadarło,\
 Więc uciekli pod lamus; a już był poranek.\
 Pan Stolnik wesół wyszedł ze strzelbą na ganek,\
