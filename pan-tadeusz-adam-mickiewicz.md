@@ -1,3 +1,4 @@
+Pobiegł do pana; widać z postawy i z miny,\
 Że ważnej i niezwykłej jest posłem nowiny.\
 Ku niemu oczy całe zwróciło zebranie.\
 On, odetchnąwszy nieco, rzekł: «Niedźwiedź, mospanie!»\
