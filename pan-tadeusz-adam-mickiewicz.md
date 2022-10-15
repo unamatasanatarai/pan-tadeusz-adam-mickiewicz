@@ -1,3 +1,4 @@
+Krąży około domu; pałkę w ręku kręci,\
 Udaje, że obaczył kędyś bydło w szkodzie.\
 Tak zręcznie lawirując, stanął przy ogrodzie;\
 Schylił się, bieży, rzekłbyś iż derkacza tropi:\
