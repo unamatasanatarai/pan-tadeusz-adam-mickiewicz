@@ -1,3 +1,4 @@
+«Tak to na świecie wszystko los zwykł kończyć dzwonem!...\
 Rachunki myśli wielkiej, plany wyobraźni,\
 Zabawki niewinności, uciechy przyjaźni,\
 Wylania się serc czułych: gdy spiż z dala ryknie,\
