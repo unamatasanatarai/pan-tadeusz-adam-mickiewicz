@@ -1,3 +1,4 @@
+Południe wskazywały często o zachodzie.\
 Gerwazy nie przybrał się machiny naprawić,\
 Ale bez nakręcenia nie chciał jej zostawić:\
 Dręczył kluczem zegary każdego wieczora;\
