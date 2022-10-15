@@ -1,3 +1,4 @@
+Kolor musiał pochodzić od słońca promieni,\
 Którymi przy zachodzie wszystko się czerwieni.\
 Twarzy wówczas nie dostrzegł, nazbyt rychło znikła;\
 Ale myśl twarz nadobną odgadywać zwykła:\
