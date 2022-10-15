@@ -1,3 +1,4 @@
+Szła spać wcześnie, ażeby przebudzić się z rana.
 
 
 
