@@ -1,3 +1,4 @@
+Nu, mówię tak: czekajcie; wszak dwór Soplicowa\
 Nie budka kramna, co się rozbierze, w wóz schowa\
 I pojedzie: dwór jak stał, do wiosny stać będzie;\
 A pan Sędzia, to nie jest Żydek na arendzie:\
