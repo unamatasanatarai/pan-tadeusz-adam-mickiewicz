@@ -1,3 +1,4 @@
+Właśnie kiedy Asesor podbiegł do jurysty,\
 Gdy już sobie gestami grozili szermierze,\
 On raptem porwał obu z tyłu za kołnierze\
 I dwakroć uderzywszy głowy obie mocne\
