@@ -1,3 +1,4 @@
+Długim warkoczem wiążą niebiosa do ziemi,\
 To jak z wiader buchają warstami całemi.\
 Już zakryły się całkiem niebiosa i ziemia;\
 Noc je z burzą od nocy czarniejszą, zaciemia.\
