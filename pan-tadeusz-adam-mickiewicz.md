@@ -1,3 +1,4 @@
+Przepisał wszystkich strzelców powiatu? O wstydzie!\
 Cóż o tym będą gadać w Oszmianie i Lidzie,\
 Które od wieków walczą z tutejszym powiatem\
 O pierwszeństwo w strzelectwie? Myślili więc nad tem.
