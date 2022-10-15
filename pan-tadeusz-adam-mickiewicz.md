@@ -1,3 +1,4 @@
+A jużeś pod jej okiem nowych ofiar szukał!\
 Uciekaj, lecz cię moje dosięgną przekleństwa —\
 Lub zostań, wydam światu twoje bezeceństwa;\
 Twe sztuki już nie zwiodą innych, jak mnie zwiodły!\
