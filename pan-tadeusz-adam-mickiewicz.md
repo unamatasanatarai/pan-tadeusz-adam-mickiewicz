@@ -1,3 +1,4 @@
+I czworo rąk zarazem we włos mu wplątali;\
 Upiąwszy się nogami ciągną jako liny\
 Sprężyste, uwiązane do masztu wiciny.\
 Daremnie w tył Kropiciel ciska ślepe razy;\
