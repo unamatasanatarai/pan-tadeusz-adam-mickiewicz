@@ -1,3 +1,4 @@
+Na jastrzębie i kanie, albo nowy środek\
 Wychowywania drobiu — był to ów ogrodek.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż, zaledwie kogut, co odprawia warty,\
