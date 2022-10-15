@@ -1,3 +1,4 @@
+A ten, nie dosłyszawszy, dał kreskę Domeyce.\
 Gdy na uczcie wniósł zdrowie marszałek Rupejko:\
 »Wiwat Doweyko!« — drudzy krzyknęli: »Domeyko!«\
 A kto siedział pośrodku, nie trafił do ładu,\
