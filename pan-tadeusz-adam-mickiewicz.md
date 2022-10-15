@@ -1,3 +1,4 @@
+Czy obławę zaciągnąć, czy spotkać się z zwierzem,\
 Kto z Białopiotrowiczem porówna się Jerzym?\
 Gdzie jest dziś taki strzelec jak szlachcic Żegota,\
 Co kulą z pistoletu w biegu trafiał kota?\
