@@ -1,3 +1,4 @@
+I ugaszczał w pałacu, zwłaszcza w czas sejmików,\
 Popularny dla jego krewnych i stronników.\
 Wąsal tak wzbił się w dumę łaskawym przyjęciem,\
 Że mu się uroiło zostać pańskim zięciem.\
