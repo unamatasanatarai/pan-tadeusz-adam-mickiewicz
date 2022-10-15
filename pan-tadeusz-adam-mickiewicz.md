@@ -1,3 +1,4 @@
+Nam wielmożnym, do złotych swobód wzwyczajonym!\
 Ach, bracia! wszak to dawniej szlachcic na zagrodzie...\
 («Tak, tak — krzyknęli wszyscy — równy wojewodzie!»)\
 Dziś nam szlachectwa przeczą, każą nam drabować\
