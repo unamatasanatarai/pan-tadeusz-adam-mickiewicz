@@ -1,3 +1,4 @@
+Bliżej zaś nietoperzów siostrzyczki, ćmy, rojem\
 Wiją się przywabione białym kobiet strojem;\
 Mianowicie przykrzą się Zosi, bijąc w lice\
 I w jasne oczki, które biorą za dwie świéce.\
