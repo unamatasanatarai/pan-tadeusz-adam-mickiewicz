@@ -1,3 +1,4 @@
+Szlachtę wieść na dwór, kędy stała druga rota.\
 Nadaremnie Kropiciel dąsa się i miota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sztab stał we dworze, a z nim zbrojnej szlachty wiele:\
