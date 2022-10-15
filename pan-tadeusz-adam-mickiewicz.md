@@ -1,3 +1,4 @@
+Leją w kotły, skowrody, w rondle, dym wybucha;\
 Dwóch kuchcików przy piecu siedzi, w mieszki dmucha,\
 Wojski, ażeby ogień tym łacniej rozpalać,\
 Rozkazał stopionego masła na drwa nalać\
