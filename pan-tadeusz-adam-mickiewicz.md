@@ -1,3 +1,4 @@
+Ach, co to był za domek! Plan mam dotąd w biurku.\
 Otóż, na me nieszczęście, najął dom w sąsiedztwie\
 Jakiś mały czynownik siedzący na śledztwie;\
 Trzymał kilkoro chartów: co to za męczarnie,\
