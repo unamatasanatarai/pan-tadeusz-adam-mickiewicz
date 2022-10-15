@@ -1,3 +1,4 @@
+Kiwnął żałośnie głową; czasem machnął ręką:\
 Widać, że mu wspomnienie samo było męką,\
 I że je chciał odpędzić. Aż się zatrzymali\
 Na górze, w wielkiej, niegdyś zwierciadlanej sali.\
