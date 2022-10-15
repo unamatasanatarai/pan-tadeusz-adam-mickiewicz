@@ -1,3 +1,4 @@
+Tak Tadeusz, opiły trucizną zazdrości,\
 Zdawał się obojętny, a pękał ze złości.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W najweselszym zebraniu, niech się kilku gniewa,\
