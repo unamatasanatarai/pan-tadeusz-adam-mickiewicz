@@ -1,3 +1,4 @@
+Doradcą; znał się dobrze na handlu zbożowym,\
 Na wicinnym: potrzebna jest znajomość taka\
 Na wsi. Miał także sławę dobrego Polaka.
 
