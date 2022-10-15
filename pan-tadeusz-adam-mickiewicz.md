@@ -1,3 +1,4 @@
+Z ich karków rosną maszty, z grzyw szerokie żagle,\
 Tabun zmienia się w okręt i wspaniale płynie\
 Cicho, z wolna po niebios błękitnej równinie!»
 
