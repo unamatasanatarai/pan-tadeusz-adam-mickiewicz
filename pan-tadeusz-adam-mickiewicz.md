@@ -1,3 +1,4 @@
+Jako więźniów wojennych; u drzwi stawi straże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem «Hejże na Sopliców!» Wpada szlachta hurmem,\
 Obstępuje dwór wkoło i bierze go szturmem,\
