@@ -1,3 +1,4 @@
+Dama głowę odwraca, wstydzi się, nie słucha;\
 On zdjął konfederatkę, kłania się pokornie,\
 Dama raczyła spójrzeć, lecz milczy upornie;\
 On krok zwalnia, oczyma jej spojrzenia śledzi,\
