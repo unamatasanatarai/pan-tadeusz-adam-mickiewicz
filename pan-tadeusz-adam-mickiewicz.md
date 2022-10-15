@@ -1,3 +1,4 @@
+Otóż skończony spór wasz długi i zażarty;\
 Ja, któregoście sędzią zakładu obrali,\
 Wydaję wreszcie wyrok: obaście wygrali.\
 Wracam fanty, niech każdy przy swoim zostanie,\
