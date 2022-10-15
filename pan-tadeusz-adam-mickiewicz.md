@@ -1,3 +1,4 @@
+Ale grosza brak w Księstwie; jedź wasze, żegnamy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena smutnymi rzuciwszy oczyma:\
 «Niestety — rzekła — widzę że cię nic nie wstrzyma!\
