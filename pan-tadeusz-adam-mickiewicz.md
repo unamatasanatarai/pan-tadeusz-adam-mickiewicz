@@ -1,3 +1,4 @@
+Oddano wiele srebra na skarb narodowy\
 Dla ojczyzny, dla Polski; sam Pan Bóg tak każe:\
 Skarbcem ojczyzny zawsze są Jego ołtarze.\
 Wszakże w Warszawskim Księstwie mamy sto tysięcy\
