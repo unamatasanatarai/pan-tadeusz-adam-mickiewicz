@@ -1,3 +1,4 @@
+Buchman krzyknął: «Ja zgody nigdy nie pochwalam!\
 To mój system!» Ktoś drugi wrzasnął: «Nie pozwalam!»\
 Inni z kątów wtórują. Nareszcie głos gruby\
 Ozwał się przybyłego szlachcica Skołuby:
