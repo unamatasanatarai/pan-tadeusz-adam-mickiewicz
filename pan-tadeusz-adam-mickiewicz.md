@@ -1,3 +1,4 @@
+Teraz tak zgłupiał, że go nazywają Sakiem;\
 A z przyczyny Sędziego został głupcem takim.\
 Mówiłem: po co tobie leźć do Soplicowa?\
 Jeżeli cię tam złowię, niech cię Bóg uchowa!\
