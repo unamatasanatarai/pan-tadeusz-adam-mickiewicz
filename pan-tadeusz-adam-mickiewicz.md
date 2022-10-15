@@ -1,3 +1,4 @@
+A wszystko przepasane jakby wstęgą, miedzą\
 Zieloną, na niej z rzadka ciche grusze siedzą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Śród takich pól przed laty, nad brzegiem ruczaju,\
