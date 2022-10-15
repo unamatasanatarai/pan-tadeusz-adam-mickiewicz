@@ -1,3 +1,4 @@
+Choć nie wiedziałem, że w nich taki skarb się mieści,\
 Tyle scen dramatycznych i tyle powieści!\
 Skoro zamek mych przodków Soplicom zagrabię,\
 Ciebie osadzę w murach jak mego burgrabię.\
