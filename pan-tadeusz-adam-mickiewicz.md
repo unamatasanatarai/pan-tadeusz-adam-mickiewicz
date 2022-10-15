@@ -1,3 +1,4 @@
+Żywa, głośna, lecz dosyć porządna rozmowa\
 Zakończyła się nagłym wybuchem hałasu.\
 Jak strzelcy, gdy na lisa zaciągną do lasu,\
 Słychać gdzieniegdzie trzask drzew, strzały, psiarni granie,\
