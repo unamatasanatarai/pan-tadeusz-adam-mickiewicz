@@ -1,3 +1,4 @@
+Obaj pełni nadziei, więc niegadatliwi.\
 Hrabia na kwiatek dumne opuszczał wejrzenie,\
 A Tadeusz ukradkiem spozierał w kieszenie,\
 Czy ów kluczyk nie uciekł? Ręką nawet chwytał\
