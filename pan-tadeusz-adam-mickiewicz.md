@@ -1,3 +1,4 @@
+Przed oczyma rodziców, którzy te pogonie\
 Ledwie raczyli widzieć, cóż kłócić się o nie!\
 Więc niech jaśnie wielmożny Podkomorzy raczy\
 Odwołać swe rozkazy i niech mi wybaczy,\
