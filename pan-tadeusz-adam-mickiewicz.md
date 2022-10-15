@@ -1,3 +1,4 @@
+Konfederacji trzeba? o to cała sprzeczka?\
 Jest Marszałek nasz Maciej, a laska Rózeczka».\
 «Niech żyje — krzyknął Chrzciciel — Kurek na Kościele!»\
 Szlachta odpowiedziała. «Wiwant Kropiciele!»
