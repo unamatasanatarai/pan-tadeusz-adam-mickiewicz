@@ -1,3 +1,4 @@
+Gadano: już w Koronie, już Prusaka pobił,\
 Wkracza do nas! A on! co? pokój w Tylży zrobił!\
 Czy tylko prawda? Czy ty nie zwodzisz sam siebie?»\
 «Prawda — zawołał Robak — jak Pan Bóg na niebie!»\
