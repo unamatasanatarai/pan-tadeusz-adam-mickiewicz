@@ -1,3 +1,4 @@
+Hrabia, chociaż nie wiedział, co to wszystko znaczy,\
 Poglądając w twarz starca czuł jakieś wzruszenie,\
 Rękę mu ścisnął; chwilę trwało to milczenie,\
 Przerwał je starzec, trzęsąc wzniesioną prawicą:\
