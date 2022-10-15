@@ -1,3 +1,4 @@
+Na maczudze, a głową na końcu maczugi\
 Wspartą kręcił, jak tykwą wbitą, na kij długi,\
 I na przemiany to w tył, to się naprzód kiwał,\
 I ustawicznie «Kropić, kropić!» wykrzykiwał.\
