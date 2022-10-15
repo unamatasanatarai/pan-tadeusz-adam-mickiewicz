@@ -1,3 +1,4 @@
+Strzelców, psiarni i zwierząt; aż Wojski do góry\
 Podniósł róg i tryumfu hymn uderzył w chmury.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu przerwał, lecz róg trzymał; wszystkim się zdawało,\
