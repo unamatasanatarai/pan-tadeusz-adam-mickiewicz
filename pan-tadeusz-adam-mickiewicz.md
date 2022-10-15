@@ -1,3 +1,4 @@
+Zgadują, że się ku nim zbliża polowanie,\
 I pomiędzy gałęzi gęstwę, pełni trwogi,\
 Zniknęli nagle z oczu jako leśne bogi.
 
