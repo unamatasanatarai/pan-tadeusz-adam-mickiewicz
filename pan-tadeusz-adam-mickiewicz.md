@@ -1,3 +1,4 @@
+Płaszcząc się pod kamieniem, uszy nadstawiając,\
 Okiem czerwonym spotkał myśliwców wejrzenie\
 I jakby urzeczony, czując przeznaczenie,\
 Ze strachu od ich oczu nie mógł zwrócić oka,\
