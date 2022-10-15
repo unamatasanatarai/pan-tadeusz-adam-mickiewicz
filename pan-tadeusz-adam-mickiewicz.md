@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Sędzia, wąs kręcąc, z gniewem na chłopca spozierał:\
 «To waść tak szczery? takeś mi serce otwierał?\
 Naprzód ów pojedynek, potem znowu miłość\
 I ten wyjazd; oj, jest tu w tym jakaś zawiłość.\
