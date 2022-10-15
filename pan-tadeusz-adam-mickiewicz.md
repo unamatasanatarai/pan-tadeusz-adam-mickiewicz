@@ -1,3 +1,4 @@
+Koronęć jeszcze dotąd piastuje królewską...\
 Lecz na Litewskim Księstwie teraz syzma siedzi!»\
 «Z Częstochowy? — rzekł Wilbik. — Byłem tam w spowiedzi,\
 Kiedym na odpust chodził lat temu trzydzieście.\
