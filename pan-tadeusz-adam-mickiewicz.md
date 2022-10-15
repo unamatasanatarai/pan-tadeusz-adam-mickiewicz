@@ -1,3 +1,4 @@
+Lecz patrzał na rywala coraz straszniej, srożej...\
 Wtem, wielkim szczęściem, dwakroć kichnął Podkomorzy\
 «Wiwat!» krzyknęli wszyscy; on się wszystkim skłonił\
 I z wolna w tabakierę palcami zadzwonił.\
