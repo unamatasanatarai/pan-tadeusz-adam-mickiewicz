@@ -1,3 +1,4 @@
+Czterema rogami, z których dwa jako kabłąki\
 Kręcą się koło uszu, ubrane we dzwonki,\
 A dwa od czoła na bok wysuwając końce,\
 Wstrząsają kulki krągłe, mosiężne, brzęczące.\
