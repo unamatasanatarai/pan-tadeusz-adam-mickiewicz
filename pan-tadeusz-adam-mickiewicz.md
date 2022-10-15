@@ -1,3 +1,4 @@
+Długo serce młodzieńca, proste i dziewicze,\
 Chowa wdzięczność za pierwsze miłości słodycze!\
 Ono rozkosz i wita, i żegna z weselem,\
 Jak skromną ucztę, którą dzielim z przyjacielem.\
