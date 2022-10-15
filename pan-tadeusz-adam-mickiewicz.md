@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;W polu koncert wieczorny ledwie jest zaczęty;\
 Właśnie muzycy kończą stroić instrumenty.\
 Już trzykroć wrzasnął derkacz, pierwszy skrzypak łąki,\
 Już mu z dala wtórują z bagien basem bąki,\
