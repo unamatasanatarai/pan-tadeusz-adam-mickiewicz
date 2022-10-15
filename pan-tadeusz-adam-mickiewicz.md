@@ -1,3 +1,4 @@
+Od miejsc, na których wielkie odnieśli zwycięstwa».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena, znudzona zbyt długimi swary,\
 Chciała wyjść na dziedziniec, lecz szukała pary;\
