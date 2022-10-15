@@ -1,3 +1,4 @@
+Że w tej drugiej armiji, w korpusie dziewiątym,\
 W drugiej pieszej dywizji, w pułku pięćdziesiątym\
 Jegerskim, major Płut jest pierwszy mazurzysta.\
 Pódźże panienko! nie bądź taka narowista!\
