@@ -1,3 +1,4 @@
+To dziwaczne spotkanie, czy wstydzić, czy cieszyć.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem na folwarku nie uszło baczności,\
 Że przed ganek zajechał któryś z nowych gości.\
