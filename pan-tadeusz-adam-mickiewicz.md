@@ -1,3 +1,4 @@
+Na proces i ten zamek Soplicom ustąpisz?\
 Nie wierzyłem, lecz w całym powiecie tak słychać».\
 Tu, poglądając w zamek, nie przestawał wzdychać.
 
