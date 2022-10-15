@@ -1,3 +1,4 @@
+Nawet gęsi i pawie, i w nagłym przestrachu\
 Gołębie, gdy nie mogą schronić się na dachu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Teraz w niebie żadnego nie widziano wroga;\
