@@ -1,3 +1,4 @@
+W istocie, kot czuł z tyłu myśliwych i psiarnie,\
 Rwał w pole, słuchy wytknął jak dwa różki sarnie,\
 Sam szarzał się nad rolą długi, wyciągnięty,\
 Skoki pod nim sterczały jakby cztery pręty,\
