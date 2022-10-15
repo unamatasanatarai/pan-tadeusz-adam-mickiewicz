@@ -1,3 +1,4 @@
+Wołał Prusak — bo jakże lud ruszy za nami?\
 Gdzie pójdzie, kiedy gdzie iść, my nie wiemy sami?\
 Bracia szlachta! Panowie! potrzeba rozsądku!\
 Dobrodzieje! potrzeba ładu i porządku!\
