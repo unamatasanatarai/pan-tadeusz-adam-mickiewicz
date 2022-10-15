@@ -1,3 +1,4 @@
+Nie tylko tę część, wszystko zabrać im należy,\
 Za koszta procesowe, za karę grabieży.\
 Mówiłem panu zawsze: procesów zaniechać;\
 Mówiłem panu zawsze: najechać, zajechać!\
