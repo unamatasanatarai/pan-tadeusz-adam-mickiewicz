@@ -1,3 +1,4 @@
+«Asesorze, jeżeli chciałem, byś z Rejentem\
 Pojedynkował, nie myśl, że jestem zawziętym\
 Na krew ludzką; broń Boże! Chciałem was zabawić,\
 Chciałem wam komedyję niby to wyprawić,\
