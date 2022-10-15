@@ -1,3 +1,4 @@
+Więc krajobraz przedstawił nową porę roku,\
 Zabłysnąwszy zieloną, różnofarbną wiosną.\
 Wychodzą różne zboża, jak na drożdżach rosną,\
 Pszenicy szafranowej buja kłos złocisty,\
