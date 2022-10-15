@@ -1,3 +1,4 @@
+Telimena wracała nazbyt śpieszno z lasu,\
 I poprawić kolory swe nie miała czasu:\
 Około ust szczególnie widne były piegi.\
 Nuż oczy Tadeusza, jako chytre szpiegi,\
