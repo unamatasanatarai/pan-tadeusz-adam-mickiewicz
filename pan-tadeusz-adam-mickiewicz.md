@@ -1,3 +1,4 @@
+Wszak wiadomo, że strona Woźnego zaprasza\
 I dyktuje mu, co chce, a Woźny ogłasza.\
 Woźny jest posłem prawa, a posłów nie karzą,\
 Nie wiem tedy, za co mnie trzymacie pod strażą.\
