@@ -1,3 +1,4 @@
+I nawet często zbiegli od rekruta chłopi,\
 Gdy ich rząd śledzi w lasach, siedzą śród konopi.\
 I stąd to w czasie bitew, zajazdów, tradowań,\
 Obie strony nie szczędzą wielkich usiłowań,\
