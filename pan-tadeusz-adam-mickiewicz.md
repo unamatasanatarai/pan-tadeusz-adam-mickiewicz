@@ -1,3 +1,4 @@
+Drugą poważnie sobie siwą brodę gładził;\
 Rzucając wkoło okiem rozkazy wydawał,\
 Witał wchodzących gości, przy siedzących stawał\
 Zagajając rozmowę, kłótliwych zagadzał,\
