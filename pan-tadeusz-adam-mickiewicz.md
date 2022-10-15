@@ -1,3 +1,4 @@
+Wojna o Polskę! bracie! Będziem Polakami!\
 Wojna niechybna! Kiedy z poselstwem tajemnem\
 Tu biegłem, wojsk forpoczty już stały nad Niemnem;\
 Napoleon już zbiera armiję ogromną,\
