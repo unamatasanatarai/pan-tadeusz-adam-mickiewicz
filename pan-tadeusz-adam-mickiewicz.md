@@ -1,3 +1,4 @@
+Zmieniano wiarę, mowę, prawa i ubiory.\
 Była to maszkarada, zapustna swawola,\
 Po której miał przyjść wkrótce wielki post — niewola!
 
