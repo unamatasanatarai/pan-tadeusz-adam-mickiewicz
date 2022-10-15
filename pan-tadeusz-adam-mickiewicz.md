@@ -1,3 +1,4 @@
+I żną zboże, a nawet przędzą w rękawiczkach.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Różnili się Dobrzyńscy między Litwą bracią\
 Językiem swoim, tudzież wzrostem i postacią.\
