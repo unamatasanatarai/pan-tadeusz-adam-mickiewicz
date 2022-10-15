@@ -1,3 +1,4 @@
+Ledwie który zabije: przecież dwóch Maciejów\
 Już zraniono i poległ jeden z Bartłomiejów.\
 Szlachta z niewiela rusznic z rzadka się odstrzela;\
 Chce szablami uderzyć na nieprzyjaciela,\
