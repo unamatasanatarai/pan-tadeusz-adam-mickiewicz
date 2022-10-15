@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Różne stąd wnioski tworzył stojący przy płocie\
 Ciwun, co przyszedł zdawać sprawę o robocie,\
 I pisarz prowentowy w szeptach z Ekonomem.
