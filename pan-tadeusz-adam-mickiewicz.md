@@ -1,3 +1,4 @@
+Unoszony jak kółmi gęstych skrzydeł ruchem,\
 Zdaje się być chochlikiem, skrzydlatym złym duchem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale rzeź najstraszniejsza, chociaż najmniej krzyku,\
