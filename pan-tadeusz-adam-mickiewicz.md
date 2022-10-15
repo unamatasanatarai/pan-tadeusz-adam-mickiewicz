@@ -1,3 +1,4 @@
+To z dzieciństwa; wiem teraz że mnie miasto nudzi;\
 Przekonałam się zimą po krótkim pobycie\
 W Wilnie, że ja na wiejskie urodzona życie:\
 Pośród zabaw tęskniłam znów do Soplicowa.\
