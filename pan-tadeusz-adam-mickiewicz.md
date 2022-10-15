@@ -1,3 +1,4 @@
+Sejm potwierdzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    A niech się mąż pani nie trwoży,\
 Iż oddanie ziem państwo tak bardzo zuboży:\
