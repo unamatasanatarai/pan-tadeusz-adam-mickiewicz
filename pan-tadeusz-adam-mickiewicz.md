@@ -1,3 +1,4 @@
+Zawołali z radością: «Niech żyją Podhaje!\
 Naprzód bracia Litwini, górą, górą Litwa!»\
 Skołubowie zaś, widząc, jak waleczny Brzytwa,\
 Choć ranny, leci z szablą wzniesioną do góry,\
