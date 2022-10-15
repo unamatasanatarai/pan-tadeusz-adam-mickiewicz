@@ -1,3 +1,4 @@
+Ty? w obecności mojej ściskasz rękę cudzą?\
 O niewierna istoto, o duszo zmiennicza!\
 I nie skryjesz ze wstydu pod ziemię oblicza?\
 Takeś twojej tak świeżej niepomna przysięgi?\
