@@ -1,3 +1,4 @@
+Aniżeli rozrzucać, albo też przestawiać:\
 Odkładał budowanie do sposobnej pory,\
 Tymczasem pod słup kazał wetknąć dwie podpory.\
 Tak pokrzepiona ale nietrwała budowa\
