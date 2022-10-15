@@ -1,3 +1,4 @@
+Choć sam nic nie posiadał prócz kawałka roli,\
 Szabli i wielkich wąsów od ucha do ucha.\
 Owoż pan Stolnik nieraz wzywał tego zucha,\
 I ugaszczał w pałacu, zwłaszcza w czas sejmików,\
