@@ -1,3 +1,4 @@
+Lecz wciąż wrzask krótki, częsty, ucinany, zjadły;\
 To nie na ślad daleki ogary napadły:\
 Na oko gonią. Nagle ustał krzyk pogoni,\
 Doszli zwierza. Wrzask znowu, skowyt: zwierz się broni\
