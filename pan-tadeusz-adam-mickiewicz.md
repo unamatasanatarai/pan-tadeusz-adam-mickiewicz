@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Więcej nie było mowy o Płucie Majorze;\
 Nazajutrz daremnie go szukano we dworze,\
 Daremnie wyznaczano za trupa nagrodę:\
 Major zginął bez śladu, jak gdyby wpadł w wodę.\
