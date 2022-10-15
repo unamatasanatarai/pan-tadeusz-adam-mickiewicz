@@ -1,3 +1,4 @@
+Ocalił on dwóch panów; sam ja to widziałem,\
 Kiedy do nalibockich zaciągnęli lasów\
 Tadeusz Rejtan poseł i książę Denassów.\
 Nie zazdrościli sławie szlachcica panowie;\
