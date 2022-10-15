@@ -1,3 +1,4 @@
+Potem rzuciła na gors pannie pudermanik;\
 Zaczęto przypieczone zbierać papiloty,\
 Pukle, że nazbyt krótkie, uwito w dwa sploty,\
 Zostawując na czole i skroniach włos gładki;\
