@@ -1,3 +1,4 @@
+Mury odbudowano i znów zaludniono.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia lubił widoki niezwykłe i nowe,\
 Zwał je romansowymi; mawiał, że ma głowę\
