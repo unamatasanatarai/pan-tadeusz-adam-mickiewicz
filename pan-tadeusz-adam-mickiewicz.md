@@ -1,3 +1,4 @@
+Wróblów na dach uciekły przed gośćmi nowymi,\
 Którzy szli do folwarku krokami prędkiemi.\
 Byli to z plebanii przez szlachty gromadę\
 Posłowie wyprawieni do Maćka po radę.\
