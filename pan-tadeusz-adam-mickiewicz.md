@@ -1,3 +1,4 @@
+Cesarz idzie do Moskwy... daleka to droga,\
 Jeśli cesarz jegomość wybrał się bez Boga!\
 Słyszałem, że już podpadł pod klątwy biskupie;\
 Wszytko to jest...» Tu Maciej chleb umoczył w zupie,\
