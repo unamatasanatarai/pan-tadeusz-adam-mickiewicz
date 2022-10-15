@@ -1,3 +1,4 @@
+Wdzięczna zbawcy, ze łzami padła w me objęcia.\
 Gdym przybył do Palermo, wiedziano z gazety,\
 Palcami wskazywały mię wszystkie kobiety;\
 Nawet wydrukowano o całym zdarzeniu\
