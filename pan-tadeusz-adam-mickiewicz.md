@@ -1,3 +1,4 @@
+Więc polubownych sędziów najpierwej obierzcie,\
 A co wyrzekną, temu sumiennie zawierzcie.\
 Ja uproszę Sędziego, ażeby nie bronił\
 Dojeżdżaczowi, choćby po pszenicy gonił;\
