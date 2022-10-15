@@ -1,3 +1,4 @@
+*Wiwat Sejm, wiwat Naród, wiwat wszystkie Stany!*
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mistrz coraz takty nagli i tony natęża;\
 A wtem puścił fałszywy akord jak syk węża,\
