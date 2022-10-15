@@ -1,3 +1,4 @@
+Pochylił się, bo już był wygnił do połowy,\
 Groził upadkiem. Nieraz Sędziemu radzono,\
 Aby zrzucił budowę wiekiem nadwątloną;\
 Ale Sędzia powiadał, że woli poprawiać\
