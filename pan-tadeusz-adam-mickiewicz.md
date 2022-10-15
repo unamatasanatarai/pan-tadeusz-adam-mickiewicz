@@ -1,3 +1,4 @@
+Albo ucięte, albo noszą szabel znaki:\
 Pewnie tu probowano hartu zygmuntówek,\
 Którymi można śmiało ćwieki obciąć z główek,\
 Lub hak przerżnąć, w brzeszczocie nie zrobiwszy szczerby.\
