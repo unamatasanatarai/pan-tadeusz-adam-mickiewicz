@@ -1,3 +1,4 @@
+Bóg widzi, jak pragnąłbym: ale z tej pociechy\
 Zrobię Bogu ofiarę za me dawne grzechy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Więc — rzecze Sędzia — teraz czas myśleć o sobie.\
