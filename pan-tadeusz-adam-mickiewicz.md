@@ -1,3 +1,4 @@
+Już dla popularności; wstąpił więc do pana\
 Tadeusza, dziś świętej pamięci, Rejtana,\
 Który był potem naszym nowogrodzkim posłem\
 I w którego ja domu od dzieciństwa wzrosłem.\
