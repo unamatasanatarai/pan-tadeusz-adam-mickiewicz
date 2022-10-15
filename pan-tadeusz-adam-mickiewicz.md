@@ -1,3 +1,4 @@
+Bo Paryż częstą mody odmianą się chlubi;\
 A co Francuz wymyśli, to Polak polubi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chwała Bogu, że teraz, jeśli nasza młodzież\
