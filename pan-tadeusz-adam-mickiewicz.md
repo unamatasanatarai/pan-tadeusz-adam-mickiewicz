@@ -1,3 +1,4 @@
+Na sukni orzechowy płaszcz włoskiego kroju,\
 Szeroki, bez rękawów, jak wielka opona,\
 Spięty klamrą u szyi, spadał przez ramiona;\
 Kapelusz miał okrągły z piórem, w ręku szpadę.\
