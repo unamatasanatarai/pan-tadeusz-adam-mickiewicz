@@ -1,3 +1,4 @@
+Dwóch było ciętych w ręce; ktoś dostał po uchu;\
 Reszta wsiadała na koń. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Hrabia i Gerwazy\
