@@ -1,3 +1,4 @@
+Przy boku jego stąpał ostrożny Protazy,\
 A Wojski mu po cichu wydawał rozkazy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stała w ogrodzie, prawie pod samym parkanem,\
