@@ -1,3 +1,4 @@
+I młodszym rzeczy trudniejsze tłumaczył,\
 Chwalił piękności, a błędom wybaczył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I zazdrościła młodzież wieszczów sławie,\
