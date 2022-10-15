@@ -1,3 +1,4 @@
+Kichnął, aż cała izba rozległa się echem,\
 I potrząsając głową, rzekł z gorzkim uśmiechem:\
 «O, jak mnie to starego i smuci, i dziwi!\
 Cóż by to o tym starzy mówili myśliwi,\
