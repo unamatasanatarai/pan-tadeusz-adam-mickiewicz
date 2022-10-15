@@ -1,3 +1,4 @@
+Zwał się Buchman, lecz Polak był, w Polsce się rodził;\
 Nie wiedzieć pewnie, czyli ze szlachty pochodził,\
 Lecz o to nie pytano; i wszyscy Buchmana\
 Szacowali, iż służył u wielkiego pana,\
