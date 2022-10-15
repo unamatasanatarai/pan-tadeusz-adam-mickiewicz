@@ -1,3 +1,4 @@
+Kto zabił niedźwiedzicę? dojdźże! jaki sposób?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu już krzyknęli: »Dosyć! Trzeba raz rzecz skończyć,\
 Bóg nas czy diabeł złączył, trzeba się rozłączyć;\
