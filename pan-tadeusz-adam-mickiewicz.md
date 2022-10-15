@@ -1,3 +1,4 @@
+Ogień ledwie zagasły, potraw zapach świeży,\
 Chrupanie psów gryzących ostatki wieczerzy,\
 Chwyta wszystkich za serca, myśl wszystkich odmienia,\
 Studzi gniewy, zapala potrzebę jedzenia.\
