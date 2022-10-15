@@ -1,3 +1,4 @@
+I nawracają ludzi w francuskim narodzie,\
 Który się trochę popsuł. Prawda, z Częstochowy\
 Oddano wiele srebra na skarb narodowy\
 Dla ojczyzny, dla Polski; sam Pan Bóg tak każe:\
