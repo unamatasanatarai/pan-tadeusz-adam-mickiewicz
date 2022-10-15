@@ -1,3 +1,4 @@
+Dobrzyńscy, widząc, jak się Podhajski wykręca\
 Tuż przed szeregiem jegrów i kosą ich kraje,\
 Zawołali z radością: «Niech żyją Podhaje!\
 Naprzód bracia Litwini, górą, górą Litwa!»\
