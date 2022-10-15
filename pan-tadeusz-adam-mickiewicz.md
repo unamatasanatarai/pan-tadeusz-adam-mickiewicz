@@ -1,3 +1,4 @@
+W języku swoim strzelcy zowią: *mateczniki*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Głupi niedźwiedziu! gdybyś w mateczniku siedział,\
 Nigdy by się o tobie Wojski nie dowiedział;\
