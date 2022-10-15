@@ -1,3 +1,4 @@
+Na pół pobity już się do odwrotu zbierał,\
 Nie wiedząc, że Kniaziewicz ciągnie ku odsieczy,\
 On to Jacek, zwan Robak, wśród grotów i mieczy\
 Przeniósł od Kniaziewicza listy Ryszpansowi\
