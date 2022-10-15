@@ -1,3 +1,4 @@
+Przecież, bodły mi duszę do żywca te żarty:\
 Byłem młody, odważny, świat był mnie otwarty\
 W kraju, gdzie, jako wiecie, szlachcic urodzony\
 Jest zarówno z panami kandydat korony!\
