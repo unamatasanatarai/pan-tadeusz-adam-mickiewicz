@@ -1,3 +1,4 @@
+A potem trzykroć ręką klasnąwszy po pysku,\
 Rzekł: »Mianuję cię odtąd księżną na Kupisku«.\
 Tak Napoleon daje wodzom swoim księstwa\
 Od miejsc, na których wielkie odnieśli zwycięstwa».
