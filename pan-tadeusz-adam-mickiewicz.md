@@ -1,3 +1,4 @@
+Rozciągnęły się, nawet skrzypnęły powrozy,\
 Ale nie pękły! Klucznik ze wstydu i zgrozy\
 Przewrócił się i w ziemię schowawszy twarz gniewną,\
 Zamknąwszy oczy, leżał nieczuły jak drewno.
