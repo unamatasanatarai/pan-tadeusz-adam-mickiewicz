@@ -1,3 +1,4 @@
+Która niestety, i tak zaniedbuje łowy,\
 Może do ich wzgardzenia weźmie pochop nowy.\
 Widząc, że ci, co innym mają dać przykłady,\
 Z łowów przynoszą tylko poswarki i zwady!\
