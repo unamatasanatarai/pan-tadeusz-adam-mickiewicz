@@ -1,3 +1,4 @@
+Kiedyś tak do niedźwiedzia trafił doskonale?\
 Bo nad ciebie nie miała strzelca Litwa nasza,\
 Byłeś także po Maćku pierwszy do pałasza!\
 Prawda! o tobie niegdyś śpiewały szlachcianki:\
