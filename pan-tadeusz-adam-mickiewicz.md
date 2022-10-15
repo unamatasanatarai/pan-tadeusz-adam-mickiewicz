@@ -1,3 +1,4 @@
+Gdy działać trzeba!» «Działać? Cóż?» Sędzia zapytał.\
 «Jeszcześ — rzekł Robak — z oczu moich nie wyczytał?\
 Jeszcze serce nic tobie nie gada? Ach bracie!\
 Jeśli Soplicowskiej krwi kroplę w żyłach macie,\
