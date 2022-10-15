@@ -1,3 +1,4 @@
+Między szlachtą w powiecie nieco zamożniejszych,\
 Dba o podobne fraszki? Przecież są w estymie\
 U ludzi; bo szanujem w nich ród, dobre imię,\
 Albo urząd, lecz ziemski, przyznany wyborem\
