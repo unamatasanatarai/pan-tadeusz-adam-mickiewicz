@@ -1,3 +1,4 @@
+Tu owiec trzoda becząc w ulice się tłoczy\
 I wznosi chmurę pyłu; dalej z wolna kroczy\
 Stado cielic tyrolskich z mosiężnymi dzwonki;\
 Tam konie rżące lecą ze skoszonej łąki:\
