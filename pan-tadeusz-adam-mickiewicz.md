@@ -1,3 +1,4 @@
+Na sam widok Moskala pienił się i zżymał.\
 By nie spotkać Moskala, po kraju zaborze\
 Siedział w domu jak niedźwiedź, gdy ssie łapę w borze.
 
