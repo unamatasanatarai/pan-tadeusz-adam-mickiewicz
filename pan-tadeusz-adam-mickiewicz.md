@@ -1,3 +1,4 @@
+Hrabiego; żeby Sędzia był ciężki dla szlachty,\
 Nieprawda! dalibógże! To wy tylko sami\
 Pozywacie go, a on zgody szuka z wami,\
 Ustępuje ze swego, jeszcze grzywny płaci.\
