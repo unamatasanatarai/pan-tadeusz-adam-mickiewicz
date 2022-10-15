@@ -1,3 +1,4 @@
+Bogate szlify, mina prawdziwie ułańska\
 I wąsik poczerniony i bródka hiszpańska.\
 Sędzia poznał: «Jak się masz, mój jaśnie wielmożny\
 Hrabio, i w ładownicy masz twój sprzęt podróżny\
