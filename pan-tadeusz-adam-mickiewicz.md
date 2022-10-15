@@ -1,3 +1,4 @@
+A co jeszcze ważniejsza, bez mieszań się rządu.\
 Więc do majora Płuta rzekł kapitan Ryków:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Major! co nam z tych wszystkich niewolników?\
