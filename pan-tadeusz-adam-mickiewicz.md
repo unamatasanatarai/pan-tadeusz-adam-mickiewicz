@@ -1,3 +1,4 @@
+Teraz drugą dla siebie zrobiły potrawę\
 Z gorącego, śmietaną bielonego piwa,\
 W którym twaróg gruzłami posiekany pływa.
 
