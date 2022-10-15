@@ -1,3 +1,4 @@
+Na wieży, czy jemiołę oberwać na dębie,\
 Czyli z najwyższej sosny złupić wronie gniazdo:\
 Wszystko umiał; myśliłem: pod szczęśliwą gwiazdą\
 Urodził się ten chłopiec, szkoda że Soplica!\
