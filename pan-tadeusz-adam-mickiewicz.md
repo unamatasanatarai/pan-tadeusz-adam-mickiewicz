@@ -1,3 +1,4 @@
+Widzę, że pan jenerał na biesiadach zna się,\
 Niechaj przyjmie tę książkę! Ona panu zda się,\
 Gdy będziesz dla monarchów zagranicznych grona\
 Dawał ucztę, ba, nawet dla Napoleona.\
