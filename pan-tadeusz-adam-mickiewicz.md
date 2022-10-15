@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Tymczasem Gerwazy,\
 Wystawiony na stołków i butelek razy,\
 Już zachwiał się, już czeladź zakasawszy pięście\
 Rzucała się nań zewsząd hurmem: gdy na szczęście\
