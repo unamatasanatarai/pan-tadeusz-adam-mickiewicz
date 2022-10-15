@@ -1,3 +1,4 @@
+Od wczorajszej postacią i strojem odmienna,\
 W bieliźnie, na kamieniu, sama jak kamienna;\
 Twarz schyloną w otwarte utuliła dłonie,\
 Choć nie słyszysz szlochania, znać, że we łzach tonie.
