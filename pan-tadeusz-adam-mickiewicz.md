@@ -1,3 +1,4 @@
+Myśląc o wszystkim, co mu wczora się zdarzyło,\
 Rumienił się i wzdychał, i serce mu biło.\
 Spojrzał w okno, o dziwy! W promieni przezroczu,\
 W owym sercu, błyszczało dwoje jasnych oczu,\
