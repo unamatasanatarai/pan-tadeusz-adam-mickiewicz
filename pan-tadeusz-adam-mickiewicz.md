@@ -1,3 +1,4 @@
+(Płacząc długo z zakrytym rękami obliczem).\
 I po cóż by miał wiedzieć biedny, że ma ojca,\
 Który się skrył przed światem jak łotr, jak zabojca?\
 Bóg widzi, jak pragnąłbym: ale z tej pociechy\
