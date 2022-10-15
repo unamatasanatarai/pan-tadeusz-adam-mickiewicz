@@ -1,3 +1,4 @@
+«Mnie — rzekł Sędzia — brać w areszt? jak śmiesz bez rozkazu?»\
 I przychodziło coraz do żywszego sporu:\
 Gdy nowy gość zajechał na dziedziniec dworu.
 
