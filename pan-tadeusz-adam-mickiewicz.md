@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Już tylko ośmiu jegrów z sierżantem na czele\
 Bronią się; bieży Klucznik, oni stoją śmiele,\
 Dziewięć rur wymierzyli prosto w łeb Klucznika;\
