@@ -1,3 +1,4 @@
+I przepraszał Sędziego; Sędzia się zadziwił,\
 Lecz stało się: już późno i trudno zaradzić,\
 Wolał gości przeprosić i w pustki prowadzić.\
 Po drodze Woźny ciągle Sędziemu tłumaczył,\
