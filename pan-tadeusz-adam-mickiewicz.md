@@ -1,3 +1,4 @@
+Niechajże nas rozsądzi zaraz policmajster!«\
 Wołają policmajstra, każą spisać śledztwo.\
 »Ja — rzecze Kozodusin — wydaję świadectwo,\
 Że to łania; on plecie, że to pies domowy:\
