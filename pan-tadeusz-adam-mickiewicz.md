@@ -1,3 +1,4 @@
+Rycerze nasi, zechcą słuchać o przeszłości!\
 Wtenczas zapłaczą nad ojców losami,\
 I wtenczas łza ta ich lica nie splami.
 
