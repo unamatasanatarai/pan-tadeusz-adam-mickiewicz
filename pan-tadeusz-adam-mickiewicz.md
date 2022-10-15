@@ -1,3 +1,4 @@
+Ci śmiać się w głos, ci, mając niedźwiedzia w pamięci,\
 Gadali o nim, świeżą obławą zajęci.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski ledwie raz okiem za zającem rzucił;\
