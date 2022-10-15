@@ -1,3 +1,4 @@
+Wiatr tumanami osnuł, a słońce dzierzgało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Maciej ogrzał się słońcem, zakończył pacierze,\
 I już się do swojego gospodarstwa bierze.\
