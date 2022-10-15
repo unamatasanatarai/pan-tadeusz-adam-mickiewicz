@@ -1,3 +1,4 @@
+Jestem człowiek, sam własnych kaprysów się boję:\
 Bezpieczniej zrobię, kiedy władzy się wyrzekę,\
 I oddam los włościanów pod prawa opiekę.\
 Sami wolni, uczyńmy i włościan wolnemi,\
