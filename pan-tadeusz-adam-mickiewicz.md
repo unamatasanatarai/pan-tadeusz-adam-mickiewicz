@@ -1,3 +1,4 @@
+Ja was nauczę buntu! Ha, szlachta łajdaki,\
 Dobrzyńscy, oj ja znam was, niech łajdaki mokną!\
 (I zaśmiał się na całe gardło, patrząc w okno)\
 Wszakże ten sam Dobrzyński, co siedzi w surducie,\
