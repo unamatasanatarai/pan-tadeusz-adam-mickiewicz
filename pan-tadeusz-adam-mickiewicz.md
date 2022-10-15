@@ -1,3 +1,4 @@
+Wzniósł ręce, spuścił razem, w dwa drążki uderzył:\
 Zdumieli się słuchacze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Razem ze strun wiela\
