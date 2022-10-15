@@ -1,3 +1,4 @@
+On krok zwalnia, oczyma jej spojrzenia śledzi,\
 I zaśmiał się na koniec; rad z jej odpowiedzi\
 Stąpa prędzej, pogląda na rywalów z góry,\
 I swą konfederatkę z czaplinymi pióry\
