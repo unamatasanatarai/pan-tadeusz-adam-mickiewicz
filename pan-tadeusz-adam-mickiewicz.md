@@ -1,3 +1,4 @@
+Burzliwa i niezmiernie skora do wieszania.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia miał czas ostygnąć z zapału i gniewu,\
 Przemyślał, jakby skończyć bój bez krwi rozlewu;\
