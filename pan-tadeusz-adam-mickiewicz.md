@@ -1,3 +1,4 @@
+Odmieniać smak i serce — lecz któż sercem władnie?\
 Darmo chce brak miłości zastąpić sumnieniem,\
 Chłód duszy ogrzać znowu jej wzroku promieniem:\
 Już ten wzrok, jako księżyc światły a bez ciepła,\
