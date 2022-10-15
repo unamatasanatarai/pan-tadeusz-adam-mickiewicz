@@ -1,3 +1,4 @@
+Tyle rymów natchnęła! Wszak ów dąb gaduła\
 Kozackiemu wieszczowi tyle cudów śpiewa!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ja ileż wam winienem, o domowe drzewa!\
