@@ -1,3 +1,4 @@
+Panował, stojąc między karczmą i kościołem.\
 Widać rzadko zwiedzany, mieszka w nim hołota:\
 Bo brama sterczy bez wrót, ogrody bez płota,\
 Niezasiane, na grzędach już porosły brzozki;\
