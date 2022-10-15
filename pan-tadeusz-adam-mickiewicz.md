@@ -1,3 +1,4 @@
+Fałszywe wino modne, moskiewskie, szampańskie;\
 Potem w wieczór na karty tyle złota straci,\
 Że za nie dałbyś ucztę na stu szlachty braci.\
 Nawet (bo co na sercu mam, dziś powiem szczerze,\
