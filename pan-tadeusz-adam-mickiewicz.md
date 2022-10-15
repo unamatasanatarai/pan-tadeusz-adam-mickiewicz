@@ -1,3 +1,4 @@
+Pyta się o przyczynę tak złego humoru,\
 Każe wnet urzędnika przyciągnąć za uszy;\
 Staje pobladły, drżący i prawie bez duszy.\
 »Jak śmiesz — krzyknął Kiryło piorunowym głosem —\
