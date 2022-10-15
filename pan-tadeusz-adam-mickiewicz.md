@@ -1,3 +1,4 @@
+Po co krwi rozlew? Między nami była zwada:\
 Niechajże ją rozstrzygnie pistolet lub szpada.\
 Daję ci broń na wybór, od działa do szpilki;\
 A nie, to was wystrzelam jako w jamie wilki».\
