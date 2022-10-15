@@ -1,3 +1,4 @@
+Duma długo i — muchę zabije na ścianie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną, pomiędzy izbami\
 Stojąc we drzwiach na progu, rozmawiali sami.\
