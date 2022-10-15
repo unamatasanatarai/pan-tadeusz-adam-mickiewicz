@@ -1,3 +1,4 @@
+«Hej ty, Ryków, przestańże tam trąbić na fajce;\
 Precz fajka, wszak ty dobrze grasz na bałabajce.\
 Widzisz no tam gitarę, pódź no, weź gitarę\
 I mazurka! Ja, Major, idę w pierwszą parę».\
