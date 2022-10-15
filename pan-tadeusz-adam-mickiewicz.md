@@ -1,3 +1,4 @@
+Jak gdyby już ją kończył, i znowu zaczynał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Klucznik, dzieje Horeszków znający dokładnie,\
 Całą tę powieść, chociaż splątaną bezładnie,\
