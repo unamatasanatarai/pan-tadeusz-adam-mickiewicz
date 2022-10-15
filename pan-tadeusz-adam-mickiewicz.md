@@ -1,3 +1,4 @@
+Mars powraca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    O świcie zjawił się w Dobrzynie\
 Konny posłaniec; biega od chaty do chaty,\
