@@ -1,3 +1,4 @@
+Gdybym został Moskalem, najpierwsze magnaty\
 Szukałyby mych względów; nawet szlachta braty,\
 Nawet gmin, który swoim tak łacnie uwłacza,\
 Tym którzy Moskwie służą, szczęśliwszym,— przebacza!\
