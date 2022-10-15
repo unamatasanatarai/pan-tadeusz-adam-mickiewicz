@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ostatni raz wojował, poszedłszy z Ogińskim\
 Do Wilna, gdzie służyli oba pod Jasińskim,\
 I tam z *Rózeczką* cudów dokazał odwagi.\
 Wiadomo, że sam jeden skoczył z wałów Pragi\
