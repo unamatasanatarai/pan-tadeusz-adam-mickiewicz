@@ -1,3 +1,4 @@
+Gdy mu skoczył na odsiecz Zan i trzech Czeczotów.\
 Za czym rozjęto szlachtę. Ale w tym rozruchu,\
 Dwóch było ciętych w ręce; ktoś dostał po uchu;\
 Reszta wsiadała na koń. —
