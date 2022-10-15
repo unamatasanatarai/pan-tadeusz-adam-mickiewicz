@@ -1,3 +1,4 @@
+I cofnął się. Dziewica krzyknęła boleśnie,\
 Niewyraźnie, jak dziecko przestraszone we śnie;\
 Podróżny zląkł się, spojrzał; lecz już jej nie było.\
 Wyszedł zmieszany i czuł, że mu serce biło\
