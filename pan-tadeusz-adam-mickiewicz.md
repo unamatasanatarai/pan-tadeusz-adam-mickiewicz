@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Sędzia! — przerwała ciotka — ciągle mi dokuczał\
 Żeby cię na świat wywieść, ciągle pod nos mruczał\
 Że już jesteś dorosła: sam nie wie, co plecie,\
 Dziaduś, nigdy na wielkim niebywały świecie.\
