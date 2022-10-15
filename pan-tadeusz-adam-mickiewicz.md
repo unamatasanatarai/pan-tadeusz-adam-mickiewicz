@@ -1,3 +1,4 @@
+To kto wie, w jakim celu: bo to bies księżyna!\
 Jeśli prócz tej nowiny nic więcej nie wiecie:\
 Więc po coście tu przyszli? i czego wy chcecie?»
 
