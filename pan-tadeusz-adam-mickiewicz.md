@@ -1,3 +1,4 @@
+Spiesz się, bo lada chwila wrócą z polowania».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wezwano pokojowę i służącą dziewkę,\
 W naczynie srebrne wody wylano konewkę.\
