@@ -1,3 +1,4 @@
+Słyszałem. Już ja się tam na wesele wkręcę;\
 Ja im łoże małżeńskie kropidłem poświęcę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«I taki łotr — zawołał Klucznik — ma panować?\
