@@ -1,3 +1,4 @@
+Aha! na tym, że obu za słowo ująłem,\
 Iż będą strzelali się przez niedźwiedzią skórę...\
 Szlachta w krzyk: »To śmierć pewna! Prawie rura w rurę!«\
 A ja w śmiech. Bo mnie uczył mój przyjaciel Maro,\
