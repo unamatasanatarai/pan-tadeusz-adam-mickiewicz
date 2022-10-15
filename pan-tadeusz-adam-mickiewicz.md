@@ -1,3 +1,4 @@
+I zawiesił na skromnym krzyżyku grobowca\
 Uwiązaną w kokardę wstążeczkę czerwoną\
 I krzyż biały gwiaździsty ze złotą koroną;\
 Przeciw słońcu promienie gwiazdy zajaśniały\
