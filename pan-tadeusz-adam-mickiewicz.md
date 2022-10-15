@@ -1,3 +1,4 @@
+Pas ze skóry niedźwiedziej, porzniętej na szmaty.\
 Postawiłem Doweykę na źwierza ogonie\
 Z jednej strony, Domeykę zaś po drugiej stronie:\
 »Pukajcie teraz — rzekłem — choć przez całe życie,\
