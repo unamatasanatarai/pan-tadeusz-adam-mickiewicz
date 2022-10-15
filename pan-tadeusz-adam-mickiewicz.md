@@ -1,3 +1,4 @@
+Rzekł jenerał — chcę wiedzieć o tym Scyzoryku,\
 O którym mnie pan Wojski tyle prawił cudów,\
 Jakby o jednym z owych dawnych wielkoludów».\
 «Scyzoryk — rzecze Wojski — choć nie egzulował,\
