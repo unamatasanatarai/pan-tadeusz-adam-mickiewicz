@@ -1,3 +1,4 @@
+Gdy przy tańcu śpiewano: *Wiwat król kochany!*\
 *Wiwat Sejm, wiwat Naród, wiwat wszystkie Stany!*
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mistrz coraz takty nagli i tony natęża;\
