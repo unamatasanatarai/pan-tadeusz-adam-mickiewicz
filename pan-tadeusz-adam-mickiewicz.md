@@ -1,3 +1,4 @@
+Ukazał się na chórze, przy starym organie,\
 I z trzaskiem jął wyrywać ołowiane rury.\
 Wielką by klęskę zadał, uderzając z góry:\
 Ale już goście tłumnie wychodzili z sieni;\
