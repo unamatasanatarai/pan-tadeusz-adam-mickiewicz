@@ -1,3 +1,4 @@
+Spotkanie się, wieczerzę przy boku sąsiadki;\
 A szczególniej mu słowo «ciocia» koło ucha\
 Brzęczało ciągle jako naprzykrzona mucha.\
 Pragnąłby u Woźnego lepiej się wypytać\
