@@ -1,3 +1,4 @@
+I okoliczne wioski dokoła wydeptał,\
 I w karczmach z wieśniakami rozprawiał niemało,\
 A zawsze o tym, co się w cudzych krajach działo.\
 Teraz Sędziego, który już spał od godziny,\
