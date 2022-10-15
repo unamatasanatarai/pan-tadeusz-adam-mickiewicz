@@ -1,3 +1,4 @@
+Nie chcieliśmy cię skrzywdzić; te oto dukaty,\
 Śmieliśmy złożyć wiedząc, żeś człek niebogaty».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ach, jegry! — wołał Ryków — cała rota skłuta!\
