@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Zosia przez okno z krzykiem do alkowy wpadła,\
 I na kolanach ciotki zadyszana siadła;\
 Telimena, całując i głaszcząc pod brodę,\
 Z radością zważa dziecka żywość i urodę\
