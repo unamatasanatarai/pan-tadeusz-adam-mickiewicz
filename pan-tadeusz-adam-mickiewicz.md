@@ -1,3 +1,4 @@
+Nasza wyprawa przecież krwi rozlanie wróży.\
 Odbyłem taką jedną w czasie mych podróży.\
 Gdym w Sycylii bawił u pewnego księcia,\
 Rozbójnicy porwali w górach jego zięcia,\
