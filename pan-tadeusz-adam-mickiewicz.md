@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A przecież wokoło nich ciągnęły się lasy\
 Litewskie, tak poważne i tak pełne krasy!\
 Czeremchy oplatane dzikich chmielów wieńcem,\
