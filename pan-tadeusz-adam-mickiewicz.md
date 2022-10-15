@@ -1,3 +1,4 @@
+I Wojski towarzystwa nam też nie odmówi».\
 To mówiąc, tabakierę podawał starcowi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski na ostrym końcu śród myśliwych siedział,\
