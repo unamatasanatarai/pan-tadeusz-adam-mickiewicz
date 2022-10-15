@@ -1,3 +1,4 @@
+Obiegał zgromadzenie ognistą źrenicą\
 I gdzie szmer jeszcze słyszał, jak ksiądz kropielnicą,\
 Tam uciszając machał swą placką ze skóry;\
 Wreszcie podniósłszy trzonek z powagą do góry,\
