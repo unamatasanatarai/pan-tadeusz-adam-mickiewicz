@@ -1,3 +1,4 @@
+Zachowasz życie i cześć, jesteś więźniem moim!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ryków, Podkomorzego zwalczony powagą,\
 Skłonił się i oddał mu swoję szpadę nagą,\
