@@ -1,3 +1,4 @@
+Po rannej mszy z kaplicy, że była niedziela,\
 Zabawić się i wypić przyszli do Jankiela.\
 Przy każdym już szumiała siwą wódką czarka,\
 Ponad wszystkimi z butlą biegała szynkarka.\
