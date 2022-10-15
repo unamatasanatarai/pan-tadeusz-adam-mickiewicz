@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Czy róż w złym gatunku,\
 Czy jakoś na obliczu przetarł się z trafunku:\
 Gdzieniegdzie zrzedniał, na wskroś grubszą płeć odsłania...\
 Może to sam Tadeusz, w *Świątyni dumania*,\
