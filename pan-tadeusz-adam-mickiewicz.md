@@ -1,3 +1,4 @@
+Już są w drodze; na pierwszy znak Napoleona\
 Przejdą Niemen i — bracie! Ojczyzna wskrzeszona!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, słuchając, z wolna okulary składał\
