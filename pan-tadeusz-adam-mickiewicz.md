@@ -1,3 +1,4 @@
+Ileż ty krwi wylałeś twoim jednym strzałem,\
 Ileż klęsk spadło na nas i na twą rodzinę,\
 A wszystko to przez waszą, panie Jacku, winę!\
 A wszakże, gdy dziś jegry Hrabię na cel wzięli,\
