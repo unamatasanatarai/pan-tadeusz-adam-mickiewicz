@@ -1,3 +1,4 @@
+Godząc ich po francusku: co tam gadał, nie wiem,\
 Ale ta zgoda był to popiół nad zarzewiem.\
 Bo Rejtan wziął do serca, okazyi czekał\
 I dobrą sztukę spłatać Niemcowi przyrzekał;\
