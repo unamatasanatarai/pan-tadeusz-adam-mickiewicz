@@ -1,3 +1,4 @@
+Lecz powoli zaczęli drzemać i poziewać;\
 Oko gaśnie za okiem, i cała gromada\
 Kiwa głowami, każdy, gdzie siedział, tam pada:\
 Ten z misą, ten nad kotłem, ten przy wołu ćwierci.\
