@@ -1,3 +1,4 @@
+Przypadek był takowy:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Jenerał Podolskich\
 Ziem przejeżdżał z Wołynia do swoich dóbr polskich,\
