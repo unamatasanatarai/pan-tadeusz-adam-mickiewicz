@@ -1,3 +1,4 @@
+Ojcze Robaku (ciszej rzekł do bernardyna),\
 Słyszałem, żeś zza Niemna odebrał wiadomość;\
 Może też co o naszym wojsku wie Jegomość?»\
 — «Nic a nic» odpowiedział Robak obojętnie,\
