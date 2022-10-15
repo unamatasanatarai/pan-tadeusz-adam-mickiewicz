@@ -1,3 +1,4 @@
+Osiadłszy z dziećmi w karczmie, zatrudniał się szynkiem,\
 Przy tym w pobliskim mieście był też podrabinkiem,\
 A zawsze miłym wszędzie gościem i domowym\
 Doradcą; znał się dobrze na handlu zbożowym,\
