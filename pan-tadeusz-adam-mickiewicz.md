@@ -1,3 +1,4 @@
+Jako dzieci do ojca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na stołkach dokoła\
 Siedziały chłopy, chłopki tudzież szlachta drobna,\
