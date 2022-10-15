@@ -1,3 +1,4 @@
+Słychać zmieszane wrzaski szczwania, gniewu, trwogi,\
 Strzelców, psiarni i zwierząt; aż Wojski do góry\
 Podniósł róg i tryumfu hymn uderzył w chmury.
 
