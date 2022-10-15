@@ -1,3 +1,4 @@
+On odpowie przed carem, bo on miał komendę.\
 Ja, panie Podkomorzy, wasz przyjaciel będę.\
 Ruskie przysłowie mówi: kto się mocno lubi,\
 Ten, panie Podkomorzy, i mocno się czubi.\
