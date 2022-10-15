@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Sędzia spełnił Robaka rozkazy,\
 I usiada na łóżko przy nim; a Gerwazy,\
 Stoi, łokieć przytwierdza na głowni rapiera,\
 A czoło pochylone na dłoniach opiera.
