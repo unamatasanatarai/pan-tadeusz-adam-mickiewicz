@@ -1,3 +1,4 @@
+Sędzia na drugim końcu do nowej sąsiadki\
 Rzekł półgłosem: «Przepraszam, musieliśmy siadać,\
 Nie podobna wieczerzy na później odkładać:\
 Goście głodni, chodzili daleko na pole;\
