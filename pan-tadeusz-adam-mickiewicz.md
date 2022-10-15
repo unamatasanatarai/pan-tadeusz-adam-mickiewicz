@@ -1,3 +1,4 @@
+«Słuchaj no — odparł Rejent — tu, panie, nie śledztwo,\
 Tu obława, tu wszystkich weźmiem na świadectwo...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc kłótnia między zgrają wszczęła się zawzięta:\
