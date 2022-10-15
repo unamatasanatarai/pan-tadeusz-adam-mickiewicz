@@ -1,3 +1,4 @@
+Zmarnował przyszłość! Uczuł słuszną zbrodni karę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W tej burzy uczuć jakby kotwica spoczynku\
 Zabłysnęła mu nagle myśl o pojedynku:\
