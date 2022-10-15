@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Szatan dumy zaczął mi lepsze plany raić:\
 Zemścić się krwawo, ale powód zemsty taić,\
 Nie bywać w zamku, miłość z serca wykorzenić,\
 Puścić w niepamięć Ewę, z inną się ożenić,\
