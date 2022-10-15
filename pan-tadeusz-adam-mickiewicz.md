@@ -1,3 +1,4 @@
+Puścić w niepamięć Ewę, z inną się ożenić,\
 A potem, potem jaką wynaleźć zaczepkę,\
 Pomścić się...
 
