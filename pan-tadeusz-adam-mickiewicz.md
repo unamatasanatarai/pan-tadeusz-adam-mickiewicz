@@ -1,3 +1,4 @@
+Mam nadzieję w ten sposób sprzeczne zgodzić zdania.\
 Dwie części w dyskusyji całej uważałem;\
 Podział już jest zrobiony, idę tym podziałem.\
 Naprzód: dlaczego mamy przedsiębrać powstanie?\
