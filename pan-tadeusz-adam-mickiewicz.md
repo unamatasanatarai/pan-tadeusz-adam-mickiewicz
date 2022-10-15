@@ -1,3 +1,4 @@
+Choć Wojski stanowiska na koniu obiegał,\
 Krzycząc, że czy kto prostym chłopem, czy paniczem,\
 Jeżeli z miejsca zejdzie, dostanie w grzbiet smyczem!\
 Nie było rady! Wszyscy pomimo zakazu\
