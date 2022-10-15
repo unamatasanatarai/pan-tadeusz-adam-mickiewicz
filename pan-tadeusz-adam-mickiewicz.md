@@ -1,3 +1,4 @@
+(Upiec go muszę kiedyś na tym Scyzoryku.)\
 Nie wspomnę innych wielkich zajazdów bez liku,\
 Z których wyszliśmy zawsze, jak szlachcie przystało,\
 I z zyskiem i aplauzem powszechnym i z chwałą!\
