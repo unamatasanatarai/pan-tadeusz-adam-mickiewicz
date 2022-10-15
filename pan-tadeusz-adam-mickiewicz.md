@@ -1,3 +1,4 @@
+Stamtąd zbiorę ze trzystu wąsatych szlachciców;\
 To rzecz moja. Pan niechaj do pałacu wraca\
 I wyśpi się, bo jutro będzie wielka praca;\
 Pan spać lubi, już późno, drugi kur już pieje.\
