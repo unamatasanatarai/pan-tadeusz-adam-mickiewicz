@@ -1,3 +1,4 @@
+Nie bronił czytać i sam słuchać raczył,\
 I młodszym rzeczy trudniejsze tłumaczył,\
 Chwalił piękności, a błędom wybaczył.
 
