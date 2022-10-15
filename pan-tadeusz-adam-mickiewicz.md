@@ -1,3 +1,4 @@
+Którego widne były pod lasem zwaliska.\
 Po cóż te przenosiny? Pan Wojski się krzywił\
 I przepraszał Sędziego; Sędzia się zadziwił,\
 Lecz stało się: już późno i trudno zaradzić,\
