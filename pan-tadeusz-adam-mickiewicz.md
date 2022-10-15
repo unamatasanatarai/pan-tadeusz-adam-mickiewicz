@@ -1,3 +1,4 @@
+I siostrzenicę wszystkim z kolei przedstawia:\
 Naprzód Tadeuszowi, jako krewną bliską.\
 Zosia grzecznie dygnęła, on skłonił się nisko,\
 Chciał coś do niej przemówić, już usta otworzył:\
