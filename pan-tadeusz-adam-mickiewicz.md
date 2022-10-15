@@ -1,3 +1,4 @@
+Szyja także koszulką obciśniona wąską,\
 Kołnierzyk zadzierzgniony różową zawiązką;\
 Zauszniczki wyrżnięte sztucznie z pestek wiszni,\
 Których się wyrobieniem Sak Dobrzyński pyszni\
