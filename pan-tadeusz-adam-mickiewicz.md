@@ -1,3 +1,4 @@
+Raz, i znowu na odlew przecina mu szczękę.\
 Tak padł Gifrejter, fechmistrz najpierwszy z Moskalów,\
 Kawaler trzech krzyżyków i czterech medalów.
 
