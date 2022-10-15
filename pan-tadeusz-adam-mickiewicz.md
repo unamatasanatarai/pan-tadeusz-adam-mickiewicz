@@ -1,3 +1,4 @@
+Ja skarżyć nie mam prawa: przebaczam mu z serca,\
 Ale i on...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Żeby już raz otwarcie był mnie zrekuzował!...\
