@@ -1,3 +1,4 @@
+Kot jęknął raz, jak nowo narodzone dziecię,\
 Żałośnie! Biegą szczwacze: już leży bez ducha,\
 A charty mu sierść białą targają spod brzucha.
 
