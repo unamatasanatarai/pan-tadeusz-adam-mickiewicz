@@ -1,3 +1,4 @@
+I tyle sił, że jednym małym palcem ruszy\
 Scyzoryk swój wiszący dotychczas na ścianie,\
 Póty Soplica tego zamku nie dostanie!»
 
