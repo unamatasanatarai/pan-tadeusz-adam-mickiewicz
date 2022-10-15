@@ -1,3 +1,4 @@
+Ciskając grom po gromie, w Piramidy, w Tabor,\
 W Marengo, w Ulm, w Austerlitz. Zwycięstwo i Zabor\
 Biegły przed nim i za nim. Sława czynów tylu,\
 Brzemienna imionami rycerzy, od Nilu\
