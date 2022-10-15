@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Weszła nowa osoba przystojna i młoda.\
 Jej zjawienie się nagłe, jej wzrost i uroda,\
 Jej ubiór zwrócił oczy; wszyscy ją witali,\
 Prócz Tadeusza widać, że ją wszyscy znali.\
