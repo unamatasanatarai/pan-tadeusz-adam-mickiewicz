@@ -1,3 +1,4 @@
+Nie biegło na ruń, co już umaiła grudę,\
 Lecz kładło się na rolę i, schyliwszy głowy,\
 Ryczało albo żuło swój pokarm zimowy.
 
