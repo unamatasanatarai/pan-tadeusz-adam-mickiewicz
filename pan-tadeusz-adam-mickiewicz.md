@@ -1,3 +1,4 @@
+Myślano, że dzisiejszej podejmie się sprawy\
 I stanie swą osobą na czele wyprawy;\
 Bo bijatykę lubił niezmiernie za młodu\
 I był nieprzyjacielem moskiewskiego rodu.
