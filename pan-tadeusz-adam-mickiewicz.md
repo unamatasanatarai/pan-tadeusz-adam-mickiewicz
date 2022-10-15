@@ -1,3 +1,4 @@
+Zbyt często postrzegano, że psy ziemię ryły\
 I jak gdyby śmierć wietrząc, przeraźliwie wyły:\
 Co wróży głód lub wojnę; a strażnicy boru\
 Widzieli, jak przez cmentarz szła dziewica moru,\
