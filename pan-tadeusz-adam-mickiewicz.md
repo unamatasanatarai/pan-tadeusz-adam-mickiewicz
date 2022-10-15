@@ -1,3 +1,4 @@
+Świeci ziemia ponuro, żółtawo-czerwona:\
 Już chmura, roztaczając cienie na kształt sieci,\
 Wyławia resztki światła, a za słońcem leci,\
 Jak gdyby je pochwycić chciała przed zachodem.\
