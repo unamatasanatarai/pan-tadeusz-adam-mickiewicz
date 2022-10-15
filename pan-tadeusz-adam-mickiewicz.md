@@ -1,3 +1,4 @@
+Ludzi we mgle nie widać: tylko sierpy, kosy\
 I pieśni brzmią, jak muzyk niewidzialnych głosy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W środku, na snopie zboża Ekonom usiadłszy\
