@@ -1,3 +1,4 @@
+Szach, mach!» «To — pisnął Brzytwa — to mi regulament!\
 Po co tu pisać akta, po co psuć atrament?\
 Konfederacji trzeba? o to cała sprzeczka?\
 Jest Marszałek nasz Maciej, a laska Rózeczka».\
