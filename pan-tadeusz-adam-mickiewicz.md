@@ -1,3 +1,4 @@
+Rozeszła się armija na furażowanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy, od pokojów Sędziego odparty,\
 Ustąpić musiał przez wzgląd dla Hrabiowskiej warty.\
