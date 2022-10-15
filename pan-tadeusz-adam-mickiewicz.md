@@ -1,3 +1,4 @@
+Jasny jak nów miesięczny nad czołem Dyjany.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wszyscy chwalą, klaskają. Jeden z oficerów\
 Dobył z kieszeni portefeuille z plikami papierów,\
