@@ -1,3 +1,4 @@
+Zwłaszcza że słychać było opodal trzask łomu.\
 Może szukają? razem wracać nie wypada;\
 Więc Telimena w prawo pod ogród się skrada,\
 A Tadeusz na lewo biegł do wielkiej drogi.\
