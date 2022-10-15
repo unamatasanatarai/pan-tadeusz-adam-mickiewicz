@@ -1,3 +1,4 @@
+Żebyś nigdy na Lachów nie chodził bez armat!«\
 Cóż! jegry byli pjani, Major pić pozwolił!\
 Och major Płut, on dzisiaj bardzo poswywolił!\
 On odpowie przed carem, bo on miał komendę.\
