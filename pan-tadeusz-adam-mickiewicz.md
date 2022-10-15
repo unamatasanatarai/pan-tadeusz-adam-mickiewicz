@@ -1,3 +1,4 @@
+Otworzono mu, cicho wszedł, nisko się skłonił:\
 «Stryjaszku dobrodzieju — rzekł — ledwie dni kilka\
 Przebawiłem tu, dni te minęły jak chwilka;\
 Nie miałem czasu z twoim domem się nacieszyć\
