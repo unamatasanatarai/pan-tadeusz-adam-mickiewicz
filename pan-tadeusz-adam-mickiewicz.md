@@ -1,3 +1,4 @@
+I u Podkomorzego tabakiery prosił;\
 Długo zażywa, kończyć powieści nie raczy,\
 Jak gdyby chciał zaostrzyć ciekawość słuchaczy.\
 Zaczynał wreszcie, kiedy znowu mu przerwano\
