@@ -1,3 +1,4 @@
+Szeroki, bez rękawów, jak wielka opona,\
 Spięty klamrą u szyi, spadał przez ramiona;\
 Kapelusz miał okrągły z piórem, w ręku szpadę.\
 Okręcił się i szpadą powitał gromadę.
