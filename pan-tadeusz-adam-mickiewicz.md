@@ -1,3 +1,4 @@
+Że pan jadasz i pijasz z tymi Soplicami;\
 Trzebaż jeszcze, aby mnie, zamku urzędnika,\
 Gerwazego Rembajłę, Horeszków Klucznika,\
 Lżyć w domu panów moich? i panże to zniesie!»\
