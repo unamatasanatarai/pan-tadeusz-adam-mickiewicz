@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tu już krzyknęli: »Dosyć! Trzeba raz rzecz skończyć,\
 Bóg nas czy diabeł złączył, trzeba się rozłączyć;\
 Dwóch nas jak dwóch słońc pono zanadto na świecie!«\
