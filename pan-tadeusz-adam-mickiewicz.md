@@ -1,3 +1,4 @@
+Widząc szlachtę Dobrzyńskich w tej ciężkiej niewoli,\
 Zaczęli z dawnych gniewów ostygać powoli:\
 Bo szlachta polska, chociaż niezmiernie kłótliwa\
 I porywcza do bitew, przecież nie jest mściwa.\
