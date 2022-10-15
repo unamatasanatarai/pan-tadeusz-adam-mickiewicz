@@ -1,3 +1,4 @@
+Bo w wiosce u Soplicy jest żołnierzy hurma,\
 Wszystko jegry! Asesor w domu: tylko świśnie,\
 Tak wraz przymaszerują, stoją jak umyślnie.\
 A co będzie? A jeśli czekacie Francuza,\
