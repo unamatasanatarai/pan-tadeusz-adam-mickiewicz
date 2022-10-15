@@ -1,3 +1,4 @@
+Ach, domyślam się, — pewnie wzgardzony miłośnik,\
 Jaki pan możny, albo opiekun zazdrośnik,\
 W tym cię parku zamkowym jak zaklętą strzeże!\
 Godna, by o cię bronią walczyli rycerze,\
