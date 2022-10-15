@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną, pomiędzy izbami\
 Stojąc we drzwiach na progu, rozmawiali sami.\
 Niewielki oddzielał ich od słuchaczów przedział,\
