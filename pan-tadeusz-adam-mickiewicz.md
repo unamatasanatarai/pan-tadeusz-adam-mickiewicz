@@ -1,3 +1,4 @@
+Dobrze, gdy strony mają panny albo wdowy\
 Na wydaniu: to zawsze kompromis gotowy.\
 Najdłuższy proces zwykle bywa z duchowieństwem\
 Katolickim albo też z bliskim pokrewieństwem:\
