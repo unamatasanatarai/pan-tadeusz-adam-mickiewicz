@@ -1,3 +1,4 @@
+Może do obu razem. Obmyślmy więc środki,\
 Jak się jej pozbyć: bo stąd mogą urość plotki,\
 Zły przykład i pomiędzy młokosami zwady,\
 Które mogą pomieszać twe prawne układy».\
