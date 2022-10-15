@@ -1,3 +1,4 @@
+Grzeczność nie jest nauką łatwą ani małą.\
 Niełatwą, bo nie na tym kończy się, jak nogą\
 Zręcznie wierzgnąć, z uśmiechem witać lada kogo;\
 Bo taka grzeczność modna, zda mi się kupiecka,\
