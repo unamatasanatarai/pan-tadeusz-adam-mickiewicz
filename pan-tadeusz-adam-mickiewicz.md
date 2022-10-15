@@ -1,3 +1,4 @@
+Kiedym został szlachcicem? Sam Bóg to pamięta!\
 Niechaj Moskal w las idzie pytać się dębiny,\
 Kto jej dał patent rosnąć nad wszystkie krzewiny».\
 «Kniaziu — rzekł Żagiel — świeć waść baki lada komu,\
