@@ -1,3 +1,4 @@
+Skórę jaśnie wielmożny pan nasz Podkomorzy\
 Temu da, kto na drugą nagrodę zasłużył».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy pogładził czoło i brwi zmrużył;\
