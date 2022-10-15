@@ -1,3 +1,4 @@
+Przerwał Robak — i cóż się tedy z nami stanie,\
 Jeśli nie chcesz zgodzić się? Wszakże dałeś słowo\
 Załatwić tę rzecz».
 
