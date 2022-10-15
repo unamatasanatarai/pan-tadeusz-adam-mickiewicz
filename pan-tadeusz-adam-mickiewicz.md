@@ -1,3 +1,4 @@
+Grzmiały z choru; wiwaty szły ciągiem porządnym:\
 Pierwszy wiwat za zdrowie Króla Jegomości,\
 Potem prymasa, potem Królowej Jejmości,\
 Potem szlachty i całej Rzeczypospolitej,\
