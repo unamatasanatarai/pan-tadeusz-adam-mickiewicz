@@ -1,3 +1,4 @@
+Ciągnące się za głową, jak komet ogony.\
 Każdy w innej postawie: ten przyrósł do ziemi,\
 Tylko oczyma kręci na dół spuszczonemi;\
 Ów, patrząc wprost przed siebie, niby senny kroczy,\
