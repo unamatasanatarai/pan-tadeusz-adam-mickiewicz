@@ -1,3 +1,4 @@
+Widział ją w ustach dziecka pożeraną chciwie:\
 Więc było po uroku! po czarach! po dziwie!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak chłopiec, kiedy ujrzy cykoryi kwiaty,\
