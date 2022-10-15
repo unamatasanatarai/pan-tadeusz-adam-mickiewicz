@@ -1,3 +1,4 @@
+Rwał w pole, słuchy wytknął jak dwa różki sarnie,\
 Sam szarzał się nad rolą długi, wyciągnięty,\
 Skoki pod nim sterczały jakby cztery pręty,\
 Rzekłbyś, że ich nie rusza, tylko ziemię trąca\
