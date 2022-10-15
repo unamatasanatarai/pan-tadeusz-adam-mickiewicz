@@ -1,3 +1,4 @@
+Starzy na on ekwipaż parskali ze śmiechu,\
 A chłopi żegnali się, mówiąc: że po świecie\
 Jeździ wenecki diabeł w niemieckiej karecie.\
 Sam Podczaszyc jaki był, opisywać długo;\
