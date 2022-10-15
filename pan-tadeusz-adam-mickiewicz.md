@@ -1,3 +1,4 @@
+Pozywacie go, a on zgody szuka z wami,\
 Ustępuje ze swego, jeszcze grzywny płaci.\
 Ma proces z Hrabią: cóż stąd? obadwa bogaci;\
 Niechaj pan drze się z panem: cóż to do nas, braci?\
