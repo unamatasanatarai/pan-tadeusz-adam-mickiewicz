@@ -1,3 +1,4 @@
+Bo wszakci to już pono wyrasta z dziecięcia».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena zdziwiona i prawie wylękła\
 Podnosiła się coraz, na szalu uklękła;\
