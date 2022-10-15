@@ -1,3 +1,4 @@
+Obrońcę Dobrzyńskiego wynagrodzić hojnie;\
 Dawał mu folwark pięciu dymów w dożywocie\
 I wyznaczył mu rocznie tysiąc złotych w złocie.\
 Lecz Dobrzyński odpisał: «Niech Pociej Macieja\
