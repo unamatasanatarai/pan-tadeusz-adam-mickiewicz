@@ -1,3 +1,4 @@
+Krzyknęli: «Górą Maćki, niech żyją Mazury!»\
 Dodawszy wzajem serca biegną na Moskali:\
 Nadaremnie ich Robak z Maćkiem wstrzymywali.
 
