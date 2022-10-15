@@ -1,3 +1,4 @@
+Wojski zagaił.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Śmiałbym upraszać młodzieży,\
 Ażeby po staremu bawić u wieczerzy,\
