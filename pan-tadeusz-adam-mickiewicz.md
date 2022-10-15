@@ -1,3 +1,4 @@
+Hrabia blondyn... blondyni nie są zbyt namiętni!\
 A Tadeusz? prostaczek! poczciwy chłopczyna!\
 Prawie dziecko! raz pierwszy kochać się zaczyna!\
 Pilnowany, niełacno zerwie pierwsze związki;\
