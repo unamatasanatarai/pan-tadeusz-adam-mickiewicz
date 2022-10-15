@@ -1,3 +1,4 @@
+Do widzenia po trzeźwu; pójdź za mną, Gerwazy!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nigdy się odpowiedzi takiej nie spodziewał\
 Podkomorzy. Właśnie swój kieliszek nalewał;\
