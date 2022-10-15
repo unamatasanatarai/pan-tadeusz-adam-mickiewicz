@@ -1,3 +1,4 @@
+Nasz Józef, nasz Dąbrowski, nasze orły białe!\
 Już są w drodze; na pierwszy znak Napoleona\
 Przejdą Niemen i — bracie! Ojczyzna wskrzeszona!»
 
