@@ -1,3 +1,4 @@
+Mój Robaku! — powtarzał — czy to tylko prawda?\
 Ileż razy zwodzono! Pamiętasz? gadali:\
 Napoleon już idzie! i my już czekali!\
 Gadano: już w Koronie, już Prusaka pobił,\
