@@ -1,3 +1,4 @@
+Nadaremnie ich Robak z Maćkiem wstrzymywali.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy tak na rotę jegrów uderzano z przodu,\
 Wojski rzuca plac boju, idzie do ogrodu;\
