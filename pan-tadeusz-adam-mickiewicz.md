@@ -1,3 +1,4 @@
+Który tysiąc błyszczących nóg wywija razem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Prawda, że jegry byli mocnym trunkiem pjani,\
 Źle mierzą i chybiają, rzadko który rani,\
