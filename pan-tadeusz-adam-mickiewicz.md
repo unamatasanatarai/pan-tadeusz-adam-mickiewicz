@@ -1,3 +1,4 @@
+Na koniec, hejże na koń! powstajem od razu!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Proszę o głos!» zawołał pan komisarz z Klecka,\
 Człowiek młody, przystojny, ubrany z niemiecka.\
