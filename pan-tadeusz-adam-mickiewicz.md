@@ -1,3 +1,4 @@
+Na piasku drobnym, suchym, białym na kształt śniegu,\
 Ślad wyraźny, lecz lekki, odgadniesz, że w biegu\
 Chybkim był zostawiony nóżkami drobnemi\
 Od kogoś, co zaledwie dotykał się ziemi.
