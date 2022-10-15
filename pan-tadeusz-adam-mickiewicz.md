@@ -1,3 +1,4 @@
+Gdzież był pejzażysta który pierwszej mocy?\
 Niebios, niebios potrzeba». — «Nasz malarz Orłowski,\
 Przerwała Telimena — miał gust soplicowski.\
 (Trzeba wiedzieć, że to jest Sopliców choroba,\
