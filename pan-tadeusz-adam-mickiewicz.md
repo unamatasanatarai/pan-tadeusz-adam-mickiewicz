@@ -1,3 +1,4 @@
+Między Żydami w chłopskiej stajni się urodził,\
 Odtąd więc wszystkie stany porównał i zgodził;\
 Niech i tak będzie, kiedy inaczej nie można!\
 Zwłaszcza, że jako słyszę, i jaśnie wielmożna\
