@@ -1,3 +1,4 @@
+Nadaremnie Kropiciel dąsa się i miota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Darmo Sędzia za szlachtą instancję wnosi,\
 I Telimena łączy prośby do łez Zosi,\
