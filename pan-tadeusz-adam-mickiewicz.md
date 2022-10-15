@@ -1,3 +1,4 @@
+Niewielkie z porcelany wydęte osoby\
 W polskich strojach: jakoby aktory na scenie,\
 Zdawały się przedstawiać jakoweś zdarzenie;\
 Gest ich sztucznie wydany, farby osobliwe,\
