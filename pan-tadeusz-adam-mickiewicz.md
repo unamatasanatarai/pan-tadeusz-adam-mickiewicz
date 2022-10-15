@@ -1,3 +1,4 @@
+Gromadziły się ponad wodami jaskółki\
 I z ziemi zmarzłej brały błoto na swe domki.\
 W wieczór słychać w zaroślach szept ciągnącej słomki\
 I stada dzikich gęsi szumią ponad lasem,\
