@@ -1,3 +1,4 @@
+Widząc myśliwców w polu cwałem do nich pędził.\
 Surdut swój angielskiego kroju, biały, długi,\
 Połami na wiatr puścił; z tyłu konno sługi,\
 W kapeluszach jak grzybki, czarnych, lśniących, małych,\
