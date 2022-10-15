@@ -1,3 +1,4 @@
+Kłócąc się o zalety, ten swej Sanguszkówki,\
 A ten bałabanowskiej swej Sagalasówki.\
 Hrabia też i Tadeusz jadą nieweseli,\
 Wstydząc się, że chybili i że się cofnęli:\
