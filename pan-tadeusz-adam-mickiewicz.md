@@ -1,3 +1,4 @@
+Pogląda w niebo, które zdawało się zniżać,\
 Ścieśniać i coraz bardziej ku ziemi przybliżać,\
 Aż oboje, skrywszy się pod zasłonę ciemną\
 Jak kochankowie, wszczęli rozmowę tajemną,\
