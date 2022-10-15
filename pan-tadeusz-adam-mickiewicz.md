@@ -1,3 +1,4 @@
+Pogniewał się, połajał, w końcu go zaniechał;\
 Ale on, chytrze dumny, wpadł na koncept nowy:\
 Udawał, że mu nawet nie przyszło do głowy,\
 Żeby ja mógł się starać o związek takowy!\
