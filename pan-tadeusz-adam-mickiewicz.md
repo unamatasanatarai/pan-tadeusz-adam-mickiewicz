@@ -1,3 +1,4 @@
+Wzniosła oczy, powstała, i padła zemdlona,\
 I przechyliwszy szyję przez Hrabi ramiona,\
 Na pierś jego złożyła swe piersi łabędzie.\
 Hrabia, choć zagniewany, wstrzymał się w zapędzie,\
