@@ -1,3 +1,4 @@
+I pozwolił umierać między swoim ludem\
 Z sakramentami...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Może i teraz, kto wie? możem znowu zgrzeszył!\
