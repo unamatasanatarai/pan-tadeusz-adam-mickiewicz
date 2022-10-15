@@ -1,3 +1,4 @@
+Że stojąc niemy przed nią, to płonął, to bladnął;\
 Co było w jego sercu, on sam nie odgadnął.\
 Uczuł się nieszczęśliwym bardzo — poznał Zosię!\
 Po wzroście i po włosach światłych, i po głosie;\
