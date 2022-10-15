@@ -1,3 +1,4 @@
+Wrzały jak fale, teraz stoją nieruchome\
 I poglądają w niebo najeżywszy słomę.\
 I zielone przy drogach wierzby i topole,\
 Co pierwej, jako płaczki przy grobowym dole,\
