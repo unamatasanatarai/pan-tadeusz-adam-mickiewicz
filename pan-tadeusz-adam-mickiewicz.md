@@ -1,3 +1,4 @@
+Ogon Targowiczanów, jak za tą kometą;\
 Lud prosty, choć w publiczne nie mieszał się rady,\
 Zgadnął zaraz, że ogon ów jest wróżbą zdrady.\
 Słychać, że lud dał imię miotły tej komecie\
