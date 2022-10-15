@@ -1,3 +1,4 @@
+Klucznik i szlachta, że je pojęła opacznie.\
 Wojna z Rosyją jeszcze nieprędko się zacznie;\
 Tymczasem, kto miał udział najczynniejszy w bitwie,\
 Ten nie może bezpieczny zostać się na Litwie:\
