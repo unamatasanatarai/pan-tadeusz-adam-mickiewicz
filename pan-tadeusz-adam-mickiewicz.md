@@ -1,3 +1,4 @@
+Oddalała się z wolna od swych towarzyszy,\
 I szła lasem na wzgórek pochyło wyniosły,\
 Ocieniony, bo drzewa gęściej na nim rosły.\
 W środku szarzał się kamień; strumień spod kamienia\
