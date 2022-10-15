@@ -1,3 +1,4 @@
+Ten w sklepieniu błyszczący herb Półkozic stary,\
 Ozwały się doń zewsząd głosami przeszłości.\
 Zbudził się z marzeń, wspomniał gdzie, u kogo gości:\
 Dziedzic Horeszków, gościem śród swych własnych progów,\
