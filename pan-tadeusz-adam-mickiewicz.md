@@ -1,3 +1,4 @@
+A więc, panie Soplico, wnoszę się do ciebie,\
 Będę żył u mej pani na łaskawym chlebie\
 I kołysząc Horeszków pokolenie trzecie,\
 Wprawiać do Scyzoryka pani mojej dziecię,\
