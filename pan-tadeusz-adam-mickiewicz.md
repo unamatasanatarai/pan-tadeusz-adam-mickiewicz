@@ -1,3 +1,4 @@
+Pamiętam, choć nie miałem wówczas lat dziesięciu,\
 Kiedy widziałem w domu naszym nieboszczyka\
 Sapiehę, pancernego znaku porucznika,\
 Co potem był nadwornym marszałkiem królewskim,\
