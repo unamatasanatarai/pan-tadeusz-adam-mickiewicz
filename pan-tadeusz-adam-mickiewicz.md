@@ -1,3 +1,4 @@
+Przy każdym już szumiała siwą wódką czarka,\
 Ponad wszystkimi z butlą biegała szynkarka.\
 W środku arendarz Jankiel, w długim aż do ziemi\
 Szarafanie, zapiętym haftkami srebrnemi,\
