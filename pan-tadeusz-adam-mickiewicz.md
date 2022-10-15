@@ -1,3 +1,4 @@
+Pośród nich brylant, niby zakryty od oczu,\
 Świecił się jako gwiazda w komety warkoczu:\
 Słowem, ubiór galowy; szeptali niejedni,\
 Że zbyt wykwintny na wieś i na dzień powszedni.\
