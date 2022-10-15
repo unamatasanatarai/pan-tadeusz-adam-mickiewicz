@@ -1,3 +1,4 @@
+Wzrokiem, ręką, walczących zachęcał, przywodził.\
 I teraz woła, aby do niego się łączyć,\
 Uderzyć na Rykowa, zwycięstwo dokończyć.\
 Tymczasem przez posłańca wskazał do Rykowa,\
