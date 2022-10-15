@@ -1,3 +1,4 @@
+Panie Klucznik, przebaczysz mnie, ja skończyć muszę!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jest w tym zasługa nie chcieć zostać winowajcą\
 Narodowym, choć naród okrzyczy cię zdrajcą!\
