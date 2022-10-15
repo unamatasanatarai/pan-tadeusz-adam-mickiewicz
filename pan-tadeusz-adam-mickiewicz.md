@@ -1,3 +1,4 @@
+I trzystu ich kreskami rządził wedle woli,\
 Choć sam nic nie posiadał prócz kawałka roli,\
 Szabli i wielkich wąsów od ucha do ucha.\
 Owoż pan Stolnik nieraz wzywał tego zucha,\
