@@ -1,3 +1,4 @@
+Wielkie, jasne, okrągłe, jak grady ziarniste.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nagle wichry zwarły się, porwały się w poły,\
 Borykają się, kręcą, świszczącymi koły\
