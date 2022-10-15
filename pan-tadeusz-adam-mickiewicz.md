@@ -1,3 +1,4 @@
+I ten gniew wielki, jak się zajął w mgnieniu oka,\
 Tak wywietrzał. Znów zdjęła go żałość głęboka,\
 Myślił: «Jeśli prawdziwe było postrzeżenie,\
 Że Hrabia z Zosią jakieś ma porozumienie,\
