@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Telimena sądziła malowania proby\
 Tonem grzecznej, lecz sztukę znającej osoby;\
 Skąpa w pochwały, lecz nie szczędziła zachętu:\
 «Brawo — rzekła — winszuję, niemało talentu.\
