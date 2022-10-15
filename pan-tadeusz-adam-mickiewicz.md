@@ -1,3 +1,4 @@
+Patrzcie, jako ten słuchacz od gniewu się puszy,\
 Wzniósł ręce, grozi mówcy, usta mu zatyka,\
 Pewnie słyszał pochwały swego przeciwnika;\
 Ten drugi, pochyliwszy czoło na kształt byka,\
