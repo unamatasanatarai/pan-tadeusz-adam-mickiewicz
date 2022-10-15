@@ -1,3 +1,4 @@
+Gdy na uczcie wniósł zdrowie marszałek Rupejko:\
 »Wiwat Doweyko!« — drudzy krzyknęli: »Domeyko!«\
 A kto siedział pośrodku, nie trafił do ładu,\
 Zwłaszcza przy niewyraźnej mowie w czas obiadu.
