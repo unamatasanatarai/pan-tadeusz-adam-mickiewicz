@@ -1,3 +1,4 @@
+Niedobrze, iż się zjawił tuż nad Soplicowem,\
 Może nam grozi jakiem nieszczęściem domowem.\
 Mieliśmy wczoraj dosyć rozterku i zwady,\
 Tak w czasie polowania, jako i biesiady.\
