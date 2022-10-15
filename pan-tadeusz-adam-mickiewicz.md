@@ -1,3 +1,4 @@
+Nic nie widział, nie dostrzegł niczyjego śladu.\
 Niedaleko od okna był parkan od sadu,\
 Na nim chmielowe liście i kwieciste wieńce\
 Chwiały się; czy je lekkie potrąciły ręce?\
