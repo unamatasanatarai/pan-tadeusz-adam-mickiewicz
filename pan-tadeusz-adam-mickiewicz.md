@@ -1,3 +1,4 @@
+Z nim Robak, choć bez strzelby — i trzej w jednej chwili\
 Jak gdyby na komendę razem wystrzelili.\
 Niedźwiedź wyskoczył w górę jak kot przed chartami\
 I głową na dół runął, i czterma łapami\
