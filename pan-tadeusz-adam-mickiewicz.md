@@ -1,3 +1,4 @@
+Nieraz w zwadach karczemnych, Wojski w niej celował:\
 Widać z zamachu ręki, że silnie uderzy,\
 A z oczu łacno zgadnąć, że w Hrabiego mierzy\
 (Ostatniego z Horeszków, chociaż po kądzieli),\
