@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Lecz Kropiciel zerwał się bronić się: po czasie!\
 Bo już był skrępowany we swym własnym pasie.\
 Przecież zwinął się i tak sprężyście podskoczył,\
 Że padł na piersi sennych, po głowach się toczył,\
