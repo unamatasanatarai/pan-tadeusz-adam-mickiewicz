@@ -1,3 +1,4 @@
+I szczyrem koralowym, i zielonym ślazem;\
 Których kształty i barwy mieszały się razem\
 Niby krata ze srebra i złota pleciona,\
 A powiewna od wiatru jak lekka zasłona.
