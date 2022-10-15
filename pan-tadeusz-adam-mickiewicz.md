@@ -1,3 +1,4 @@
+Pierwszy z posłów stał w środku i jął zdawać sprawę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem szlachty coraz gęściej przybywało:\
 Dobrzyńscy prawie wszyscy, sąsiadów niemało\
