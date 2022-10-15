@@ -1,3 +1,4 @@
+Kilku młodych od stołu i pannom służyło.\
 Sędzia, z boku rzuciwszy wzrok na Tadeusza\
 I poprawiwszy nieco wylotów kontusza,\
 Nalał węgrzyna i rzekł: «Dziś, nowym zwyczajem,\
