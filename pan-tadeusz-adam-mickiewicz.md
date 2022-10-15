@@ -1,3 +1,4 @@
+«Kniaziu — rzekł Żagiel — świeć waść baki lada komu,\
 Tu znajdziesz pono mitry i w niejednym domu».\
 «Waść ma krzyż w herbie — wołał Podhajski — to skryta\
 Aluzyja, że w rodzie bywał neofita».\
