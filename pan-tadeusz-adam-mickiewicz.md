@@ -1,3 +1,4 @@
+Z wielkim niebezpieczeństwem, bo z bliska wypalił.\
 Każdy z nas trafność strzału wydziwiał i chwalił,\
 Tylko Niemiec Denassów obojętnie słuchał\
 Pochwał takich i chodząc, pod nos sobie dmuchał:\
