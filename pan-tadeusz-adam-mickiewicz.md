@@ -1,3 +1,4 @@
+Potem o tym obszerniej z sobą pogadamy.\
 Jutro będę dla sprawy w powiatowym mieście;\
 I do waszmościów z drogi zajadę po kweście».
 
