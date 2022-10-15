@@ -1,3 +1,4 @@
+Lecz on zwał się Rębajło, a o jego herbach\
 Nie wiadomo. Klucznikiem siebie tytułował,\
 Iż ten urząd na zamku przed laty piastował.\
 I dotąd nosił wielki pęk kluczy za pasem,\
