@@ -1,3 +1,4 @@
+Niechaj ci zaczną; niech się i lud podweseli;\
 Potem będziem wybornej twej słuchać kapeli».\
 Dał znak.
 
