@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ach, nieraz przy kieliszkach, gdy się tak rozrzewniał,\
 Gdy mię tak ściskał i o przyjaźni zapewniał,\
 Potrzebując mej szabli lub kreski na sejmie,\
 Gdy musiałem nawzajem ściskać go uprzejmie:\
