@@ -1,3 +1,4 @@
+Jestem twój stryj; choć stary, znam, co serce młode;\
 Byłem ci ojcem (mówiąc gładził go pod brodę),\
 Już w ucho szepnął o tym mnie mój palec mały,\
 Że waszeć masz tu jakieś z damami kabały.\
