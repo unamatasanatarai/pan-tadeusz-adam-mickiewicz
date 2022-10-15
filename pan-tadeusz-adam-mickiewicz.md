@@ -1,3 +1,4 @@
+Kogo owa szczęśliwsza gałka oznaczała.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Inaczej bawiono się w drugim końcu stoła;\
 Bo tam, wzmogłszy się nagle, stronnicy Sokoła\
