@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Jużci — bąknął Tadeusz — prawda: są przyczyny\
 Inne, kochany stryju, może z mojej winy!\
 Omyłka! cóż? nieszczęście! już trudno naprawić!\
 Nie, drogi stryju, dłużej nie mogę tu bawić!\
