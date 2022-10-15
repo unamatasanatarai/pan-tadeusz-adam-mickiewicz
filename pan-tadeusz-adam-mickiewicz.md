@@ -1,3 +1,4 @@
+Z dala witając starca niskimi ukłony\
 Rzekli: «Niech będzie Jezus Chrystus pochwalony»\
 «Na wieki wieków, amen» starzec odpowiedział,\
 A gdy się o ważności poselstwa dowiedział,\
