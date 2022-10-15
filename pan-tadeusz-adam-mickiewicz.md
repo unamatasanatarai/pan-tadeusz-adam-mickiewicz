@@ -1,3 +1,4 @@
+Wziął więc flintę, skoczył nań i jak opętany\
 Pędził ku karczmom, które stały przy kaplicy,\
 Kędy mieli się rankiem zebrać obławnicy.
 
