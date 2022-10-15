@@ -1,3 +1,4 @@
+Złote, srebrne: niestety! więc to była słoma?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia z załamanymi poglądał rękoma\
 Na snopek uwiązanej trawami mietlicy,\
