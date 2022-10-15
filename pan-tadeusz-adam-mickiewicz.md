@@ -1,3 +1,4 @@
+Cwałując tuż przy kołach, gadali z damami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ksiądz Robak po dziedzińcu wolnym chodził krokiem\
 Kończąc ranne pacierze; ale rzucał okiem\
