@@ -1,3 +1,4 @@
+Sędzia, z boku rzuciwszy wzrok na Tadeusza\
 I poprawiwszy nieco wylotów kontusza,\
 Nalał węgrzyna i rzekł: «Dziś, nowym zwyczajem,\
 My na naukę młodzież do stolicy dajem;\
