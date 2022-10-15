@@ -1,3 +1,4 @@
+«Prawda — zawołał Robak — jak Pan Bóg na niebie!»\
 «Błogosławioneż niechaj będą usta, które\
 To zwiastują! — rzekł Sędzia — wznosząc ręce w górę.\
 Nie pożałujesz twego poselstwa Robaku,\
