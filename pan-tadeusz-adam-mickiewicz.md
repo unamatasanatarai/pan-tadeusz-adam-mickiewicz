@@ -1,3 +1,4 @@
+Od szabli cienkiej, tudzież Maciej, zwan Konewka\
 Od sztućca który naszał, z gardłem tak szerokiem,\
 Że zeń jak z konwi tuzin kulek lał potokiem.\
 Oba krzyczeli: «Wiwat Chrzciciel z kropidełkiem!»\
