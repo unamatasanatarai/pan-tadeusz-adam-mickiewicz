@@ -1,3 +1,4 @@
+Pewnie ich przed sejmikiem na ucztę sproszono.\
 Czeka nakryty stolik; nikt gości nie sadza,\
 Stoją kupkami, każda kupka się naradza.\
 Patrzcie, iż w każdej kupce stoi w środku człowiek,\
