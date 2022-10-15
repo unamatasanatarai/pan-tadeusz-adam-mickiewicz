@@ -1,3 +1,4 @@
+Nie zdjąwszy czapki, nawet nie schyliwszy głowy;\
 W ręku trzymał błyszczący klucz jakby puginał,\
 Odemknął szafę i w niej coś kręcić zaczynał.
 
