@@ -1,3 +1,4 @@
+Błysnęła tajemnicza, bieluchna sukienka\
 I coś lekkiego znowu upadło z wysoka,\
 I przeleciawszy cały ogród w mgnieniu oka,\
 Pomiędzy zielonymi świeciło ogórki:\
