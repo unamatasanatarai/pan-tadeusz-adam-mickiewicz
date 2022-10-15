@@ -1,3 +1,4 @@
+U nas zaś polowano na dziki w tę porę;\
 Rejtan zabił ze sztućca ogromną maciorę,\
 Z wielkim niebezpieczeństwem, bo z bliska wypalił.\
 Każdy z nas trafność strzału wydziwiał i chwalił,\
