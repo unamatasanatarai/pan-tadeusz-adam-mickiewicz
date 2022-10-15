@@ -1,3 +1,4 @@
+Ziemia drży, słychać, biją stronami pioruny. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojna! wojna! Nie było w Litwie kąta ziemi,\
 Gdzie by jej huk nie doszedł. Pomiędzy ciemnemi\
