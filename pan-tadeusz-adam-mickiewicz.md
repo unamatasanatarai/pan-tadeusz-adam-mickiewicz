@@ -1,3 +1,4 @@
+Czyli wroga ścigali, czyli dzikie źwierzę.\
 Sen myśliwski nam odkrył tajnie przyszłych czasów:\
 Że Litwie trzeba zawsze żelaza i lasów.
 
