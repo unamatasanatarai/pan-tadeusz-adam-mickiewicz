@@ -1,3 +1,4 @@
+I znowu się w rzęd prawych patryjotów mieści.\
 Więc kto będzie śmiał Jacka zmarłego rodzinie\
 Wspomnieć kiedy o dawnej zagładzonej winie,\
 Ten podpadnie za karę takiego wyrzutu,\
