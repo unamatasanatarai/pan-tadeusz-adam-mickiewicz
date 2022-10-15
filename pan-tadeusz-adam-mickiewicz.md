@@ -1,3 +1,4 @@
+Znam ja te wszystkie głupstwa; kiedy dzieci para\
 Kocha się, to tam u nich nieszczęść co niemiara!\
 To cieszą się, to znowu trapią się i smucą,\
 To znowu, Bóg wie o co, do zębów się kłócą,\
