@@ -1,3 +1,4 @@
+Krepsztulowie z Kupściami, Putrament z Pikturną,\
 Z Odyńcami Mackiewicz, z Kwileckimi Turno.\
 Co mówię! wszak Polacy miewali zamieszki\
 Z Litwą, gorsze niżeli z Soplicą Horeszki,\
