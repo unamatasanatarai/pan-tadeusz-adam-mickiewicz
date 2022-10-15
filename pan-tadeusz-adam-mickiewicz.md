@@ -1,3 +1,4 @@
+O ważnych rzeczach; słychać było, że towary\
 Ksiądz przemycał — lecz potwarz ta niegodna wiary.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Robak, wsparty na stole, wpół głośno rozprawiał,\
