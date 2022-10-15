@@ -1,3 +1,4 @@
+Podały mnie na wzgardę i na śmiech przed światem!\
 Mnie, com niegdyś, rzec mogę, trząsł całym powiatem!\
 Mnie, którego Radziwiłł nazywał: kochanku!\
 Mnie, com kiedy wyjeżdżał z mojego zaścianku,\
