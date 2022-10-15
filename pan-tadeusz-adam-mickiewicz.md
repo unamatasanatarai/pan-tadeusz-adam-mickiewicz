@@ -1,3 +1,4 @@
+Albo w piechocie, która nosi broń na ptaki,\
 Nie znać innych prócz kosy i sierpa rynsztunków,\
 I innych gazet, oprócz domowych rachunków!
 
