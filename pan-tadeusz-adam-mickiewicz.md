@@ -1,3 +1,4 @@
+A wyuczyłem śpiewać fein moje bachurki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wymowa lubionego powszechnie Jankiela\
 Trafiała do serc. Powstał krzyk, oklask wesela,\
