@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Telimena, znudzona zbyt długimi swary,\
 Chciała wyjść na dziedziniec, lecz szukała pary;\
 Wzięła koszyczek z kołka: «Panowie, jak widzę,\
 Chcecie zostać w pokoju, ja idę na rydze;\
