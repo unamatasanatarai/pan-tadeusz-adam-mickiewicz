@@ -1,3 +1,4 @@
+Wysmukły bób obraca na nią tysiąc oczu;\
 Owdzie podnosi złotą kitę kukuruza;\
 Gdzieniegdzie otyłego widać brzuch harbuza,\
 Który od swej łodygi aż w daleką stronę,\
