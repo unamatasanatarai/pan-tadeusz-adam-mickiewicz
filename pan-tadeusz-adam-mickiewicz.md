@@ -1,3 +1,4 @@
+Pewnie słyszał pochwały swego przeciwnika;\
 Ten drugi, pochyliwszy czoło na kształt byka,\
 Powiedziałbyś, że mówcę pochwyci na rogi;\
 Ci biorą się do szabel, tamci poszli w nogi.
