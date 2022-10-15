@@ -1,3 +1,4 @@
+Jęła skakać przez pawie, gołębie i kury:\
 Zmieszane ptastwo tłumnie furknęło do góry.\
 Zosia, stopami ledwie dotykając ziemi,\
 Zdawała się najwyżej bujać między niemi;\
