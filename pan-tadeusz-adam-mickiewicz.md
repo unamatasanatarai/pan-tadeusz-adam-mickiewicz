@@ -1,3 +1,4 @@
+Krzycząc: «Albo cię zetnę, albo zjedz twój papier!»\
 Woźny niby jeść zaczął, jak człowiek roztropny,\
 Aż skradłszy się do okna, wpadł w ogród konopny.
 
