@@ -1,3 +1,4 @@
+Był to bernardyn, kwestarz Robak, a miał w dłoni\
 Podniesione do góry węzłowate sznurki:\
 «Ogórków chcesz Waść — krzyknął — oto masz ogórki!\
 Wara, panie, od szkody; na tutejszej grzędzie\
