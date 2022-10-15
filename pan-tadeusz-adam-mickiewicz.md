@@ -1,3 +1,4 @@
+Nie dbając na wyraźne Sędziego zakazy,\
 W niebytność państwa znowu do zamku szturmował,\
 I kredens doń (jak mówi) zaintromitował.
 
