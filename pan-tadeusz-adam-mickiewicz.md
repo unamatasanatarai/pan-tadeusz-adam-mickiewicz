@@ -1,3 +1,4 @@
+Wszak pamiętacie, żeśmy Hrabiego wyzwali.\
 Bić się z nim to rzecz moja, posłałem wyzwanie,\
 W Litwie jest zakazane pojedynkowanie,\
 Jadę więc na granicę Warszawskiego Księstwa.\
