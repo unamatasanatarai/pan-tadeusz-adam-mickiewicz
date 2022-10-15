@@ -1,3 +1,4 @@
+I widać, że czuł jakieś tajemne kłopoty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przemijały w milczeniu talerze i dania;\
 Przerwał nareszcie nudny tok obiadowania\
