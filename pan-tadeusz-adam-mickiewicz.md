@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Kto z wiosek batalijon Moskalów sprowadził?\
 Kto tak prędko sąsiedztwo z zaścianków zgromadził?\
 Asesor li, czy Jankiel? Różnie słychać o tem,\
