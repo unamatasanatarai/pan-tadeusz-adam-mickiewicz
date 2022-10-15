@@ -1,3 +1,4 @@
+Od skroni powiewały dwie wstążki różowe\
 I kilka puklów światłych, rozwitych warkoczy;\
 Na ręku miała koszyk, w dół spuściła oczy,\
 Prawą rękę podniosła niby do chwytania,\
