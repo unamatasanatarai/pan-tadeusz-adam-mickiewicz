@@ -1,3 +1,4 @@
+To wysyłał posłańców, ale gdzie i po co\
 Nie powiadał; częstokroć wymykał się nocą\
 Do dworów pańskich, z szlachtą ustawicznie szeptał,\
 I okoliczne wioski dokoła wydeptał,\
