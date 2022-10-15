@@ -1,3 +1,4 @@
+Buchman, człowiek rozsądny, w bitwę się nie wmieszał,\
 Ale słysząc, że radzą, głosować pośpieszał.\
 Znajdował projekt dobrym, lecz chciał przeinaczyć,\
 Dokładniej go rozwinąć, jaśniej wytłumaczyć,\
