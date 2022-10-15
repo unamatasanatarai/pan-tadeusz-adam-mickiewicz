@@ -1,3 +1,4 @@
+Święty i czysty jak pierwsze kochanie,\
 Niezaburzony błędów przypomnieniem,\
 Niepodkopany nadziei złudzeniem,\
 Ani zmieniony wypadków strumieniem.
