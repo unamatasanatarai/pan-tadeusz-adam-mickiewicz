@@ -1,3 +1,4 @@
+Nigdy by się o tobie Wojski nie dowiedział;\
 Ale czyli pasieki zwabiła cię wonność,\
 Czy uczułeś do owsa dojrzałego skłonność,\
 Wyszedłeś na brzeg puszczy, gdzie się las przerzedził,\
