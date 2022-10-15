@@ -1,3 +1,4 @@
+Nie zapomniał naczynia: złocista konewka,\
 Ów rożek Amaltei, była to marchewka!\
 Widział ją w ustach dziecka pożeraną chciwie:\
 Więc było po uroku! po czarach! po dziwie!
