@@ -1,3 +1,4 @@
+*Lejki*, jako szampańskie kieliszki wysmukłe,\
 *Bielaki* krągłe, białe, szerokie i płaskie,\
 Jakby mlekiem nalane filiżanki saskie,\
 I kulista, czarniawym pyłkiem napełniona\
