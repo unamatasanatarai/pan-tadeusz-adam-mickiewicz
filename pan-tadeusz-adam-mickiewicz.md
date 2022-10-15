@@ -1,3 +1,4 @@
+A kobeźnik kłania się i żebrze oczyma.\
 Jeżeli ich odprawię, biedni będą płakać;\
 Lud przy innej muzyce nie potrafi skakać.\
 Niechaj ci zaczną; niech się i lud podweseli;\
