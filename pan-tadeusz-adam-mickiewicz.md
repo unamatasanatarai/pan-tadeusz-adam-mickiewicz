@@ -1,3 +1,4 @@
+Dziedzic zginął był w czasie krajowych zamieszków.\
 Dobra całe zniszczone sekwestrami rządu,\
 Bezładnością opieki, wyrokami sądu,\
 W cząstce spadły dalekim krewnym po kądzieli,\
