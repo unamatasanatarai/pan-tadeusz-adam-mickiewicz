@@ -1,3 +1,4 @@
+Oczy wodził po polach, po niebios obszarze:\
 Pewnie układał w myśli nocne peizaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaiste, okolica była malownicza!\
