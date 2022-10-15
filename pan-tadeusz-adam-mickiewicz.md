@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tu skończyli rozmowę, piją zadumani;\
 Słychać tylko niekiedy te krótkie wyrazy:\
 «Tak, tak, panie Gerwazy» — «Tak, panie Protazy».
