@@ -1,3 +1,4 @@
+Że tym mieczem wypędzi z Polski trzech mocarzów,\
 Albo sam na nim padnie. Dalej w polskiej szacie\
 Siedzi Rejtan, żałośny po wolności stracie;\
 W ręku trzyma nóż ostrzem zwrócony do łona,\
