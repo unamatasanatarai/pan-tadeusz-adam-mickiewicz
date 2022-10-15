@@ -1,3 +1,4 @@
+Na którąm nie zasłużył, byłaby nikczemność».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy te słowa z uczuciem mówił chłopiec młody,\
 Zaświeciły mu, jako dwie wielkie jagody\
