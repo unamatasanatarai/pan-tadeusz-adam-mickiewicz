@@ -1,3 +1,4 @@
+Nie chce wracać do kraju, Bóg wie gdzie się kryje,\
 Nawet nie chce synowi oznajmić, że żyje,\
 A ciągle nim zarządza. Naprzód w legijony\
 Chciał go posyłać; byłem okropnie zmartwiony.\
