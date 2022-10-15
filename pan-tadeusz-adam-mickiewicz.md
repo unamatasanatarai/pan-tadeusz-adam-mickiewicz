@@ -1,3 +1,4 @@
+Śpieszyłem znowu jak najzimniej dyskurować\
 O sprawach, o sejmikach, a nawet żartować!!\
 Wszystko to, prawda, z pychy: żeby nie ubliżyć\
 Imieniowi Sopliców, żeby się nie zniżyć\
