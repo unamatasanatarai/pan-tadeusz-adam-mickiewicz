@@ -1,3 +1,4 @@
+Ten nie może bezpieczny zostać się na Litwie:\
 Musicie więc do Księstwa uciekać Panowie,\
 A mianowicie Maciej, co się Chrzciciel zowie,\
 Tadeusz, Konew, Brzytew, niech unoszą głowy\
