@@ -1,3 +1,4 @@
+Córeczkę Podkomorstwa wzięła w jedną rękę,\
 A drugą podchyliła do kostek sukienkę.\
 Tadeusz milczkiem za nią na grzyby pośpieszył.
 
