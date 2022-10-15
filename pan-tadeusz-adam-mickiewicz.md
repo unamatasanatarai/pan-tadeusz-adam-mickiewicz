@@ -1,3 +1,4 @@
+Błahy strzelec, uchodząc szyderstw towarzyszy\
 Za chybioną źwierzynę, ileż w waszej ciszy\
 Upolowałem dumań, gdy w dzikim ostępie,\
 Zapomniawszy o łowach, usiadłem na kępie,\
