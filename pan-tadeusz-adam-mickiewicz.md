@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Poparł stronę Chrzciciela, Bartek zwan Brzytewka\
 Od szabli cienkiej, tudzież Maciej, zwan Konewka\
 Od sztućca który naszał, z gardłem tak szerokiem,\
