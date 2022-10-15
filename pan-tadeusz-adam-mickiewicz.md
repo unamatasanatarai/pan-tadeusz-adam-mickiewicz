@@ -1,3 +1,4 @@
+Apelujcie, ja może wynajdę w potrzebie,\
 Mospanie Sędzio, dobry kruczek i na ciebie.\
 Wszak Jankiel, szpieg, którego już rząd dawno śledzi,\
 Jest twoim domownikiem, w karczmie twojej siedzi.\
