@@ -1,3 +1,4 @@
+Tymczasem przez posłańca wskazał do Rykowa,\
 Że jeżeli broń złoży, życie swe zachowa;\
 Jeżeli zaś oddanie broni będzie zwlekać,\
 Robak każe otoczyć resztę i wysiekać.
