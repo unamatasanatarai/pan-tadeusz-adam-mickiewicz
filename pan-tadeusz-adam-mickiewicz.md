@@ -1,3 +1,4 @@
+Takim był, gdy przysięgał na stopniach ołtarzów,\
 Że tym mieczem wypędzi z Polski trzech mocarzów,\
 Albo sam na nim padnie. Dalej w polskiej szacie\
 Siedzi Rejtan, żałośny po wolności stracie;\
