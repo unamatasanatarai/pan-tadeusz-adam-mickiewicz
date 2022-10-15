@@ -1,3 +1,4 @@
+Któż to pana nauczył? to jest moje cięcie,\
 Moje!» Wstał, jenerała porwawszy w objęcie:\
 «Teraz umrę spokojny! Jest przecie na świecie\
 Człowiek, który przytuli moje drogie dziecię;\
