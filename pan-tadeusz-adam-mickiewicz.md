@@ -1,3 +1,4 @@
+A z drugiej Maciej. Szlachta ostyga w zapale,\
 Ogląda się, cofa się; widzą to Moskale:\
 Kapitan Ryków myśli ostatni cios zadać,\
 Spędzić szlachtę z dziedzińca i dworem owładać.
