@@ -1,3 +1,4 @@
+Jest na wydaniu, piękna i posażna panna;\
 Chciałem zagaić». Na to Telimena zbladła,\
 Złożyła książkę, wstała nieco i usiadła.
 
