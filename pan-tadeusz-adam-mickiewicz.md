@@ -1,3 +1,4 @@
+Pierwsi znawcy myślistwa i najlepsi strzelcy,\
 Siedzieli przeciw sobie mrukliwi i gniewni.\
 Oba dobrze poszczuli, oba byli pewni\
 Zwycięstwa swoich chartów: gdy pośród równiny\
