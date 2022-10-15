@@ -1,3 +1,4 @@
+Dziwna rzecz! miejsca wkoło są siedzeniem dziewic,\
 Na które mógłby spojrzeć bez wstydu królewic,\
 Wszystkie zacnie zrodzone, każda młoda, ładna:\
 Tadeusz tam pogląda, gdzie nie siedzi żadna.\
