@@ -1,3 +1,4 @@
+Pieśń o Justynie, powieść o Wiesławie;\
 A przy stoliku drewnianym pan włodarz\
 Albo ekonom, lub nawet gospodarz,\
 Nie bronił czytać i sam słuchać raczył,\
