@@ -1,3 +1,4 @@
+Że polowanie nasze udać się nie może:\
 Jeszcze zbyt wcześnie, jeszcze na pniu stoi zboże\
 I mnóstwo sznurów chłopskiej niezżętej jarzyny:\
 Stąd i Hrabia nie przybył mimo zaprosiny.\
