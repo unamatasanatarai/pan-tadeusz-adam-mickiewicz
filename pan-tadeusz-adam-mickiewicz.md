@@ -1,3 +1,4 @@
+Tryumfujące oczy obracał na gości.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Henryk Dąbrowski udał wielkie zadziwienie\
 I rzekł: «Mój panie Wojski, czy to chińskie cienie?\
