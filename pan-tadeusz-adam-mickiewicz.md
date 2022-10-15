@@ -1,3 +1,4 @@
+Nigdy już odtąd gniewnej nie przebłagasz Zosi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy przypomina starodawne czasy:\
 Każe sobie podawać od kontuszów pasy\
