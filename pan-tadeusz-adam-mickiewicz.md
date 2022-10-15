@@ -1,3 +1,4 @@
+Herb Horeszków, Półkozic, jaśniał na sklepieniu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem.\
 Podkomorzy najwyższe brał miejsce za stołem;\
