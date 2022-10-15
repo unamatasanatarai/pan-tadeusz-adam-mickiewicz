@@ -1,3 +1,4 @@
+Biegli, jedni z kijami, ze strzelbami drudzy;\
 Wojski, stojąc z daleka, poglądał ciekawie\
 W oczy panu Hrabiemu, a nóż miał w rękawie.
 
