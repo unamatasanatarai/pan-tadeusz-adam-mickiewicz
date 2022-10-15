@@ -1,3 +1,4 @@
+A Mazury zowią go litewskim niedźwiedziem.\
 Jeśli Jenerał każe, to go tu przywiedziem».\
 «Jest — rzekł porucznik — kilku innych rodem z Litwy,\
 Jeden żołnierz znajomy pod imieniem Brzytwy\
