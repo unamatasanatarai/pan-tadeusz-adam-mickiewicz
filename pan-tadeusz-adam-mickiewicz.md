@@ -1,3 +1,4 @@
+Ale nigdzie nie widać było ogrodniczki;\
 Tylko co wyszła: jeszcze kołyszą się drzwiczki\
 Świeżo trącone, blisko drzwi ślad widać nóżki\
 Na piasku, bez trzewika była i pończoszki;\
