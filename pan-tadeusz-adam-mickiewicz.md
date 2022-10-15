@@ -1,3 +1,4 @@
+Do pokoju damskiego, do owej komnaty,\
 Kędy Tadeusz mieszkał przed dziesięcią laty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Teraz bawił tam Rejent cudnie wystrojony,\
