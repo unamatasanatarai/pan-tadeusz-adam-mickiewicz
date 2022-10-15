@@ -1,3 +1,4 @@
+Strzelców i obławników, ogary, wystrzały\
 Wywoływano na plac; powstawała wrzawa,\
 Miła uchu myśliwców jak druga obława.\
 Wiem, wiem, o co wam idzie. Ta czarnych trosk chmura\
