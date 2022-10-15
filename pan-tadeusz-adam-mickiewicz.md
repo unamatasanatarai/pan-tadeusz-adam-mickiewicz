@@ -1,3 +1,4 @@
+Słuchał zmrużywszy oczy, słowa nie powiedział,\
 Choć młodzież nieraz jego zasięgała zdania,\
 Bo nikt lepiej nad niego nie znał polowania.\
 On milczał, szczyptę wziętą z tabakiery ważył\
