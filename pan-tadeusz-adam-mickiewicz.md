@@ -1,3 +1,4 @@
+Spojrzał w okno, o dziwy! W promieni przezroczu,\
 W owym sercu, błyszczało dwoje jasnych oczu,\
 Szeroko otworzonych, jak zwykle wejrzenie,\
 Kiedy z jasności dziennej przedziera się w cienie.\
