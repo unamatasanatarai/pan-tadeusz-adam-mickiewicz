@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tymczasem na Wojskiego rozkaz pęki wrzosu,\
 Suche chrusty i pniaki rzucono do stosu.\
 Bucha ogień, wyrasta szara sosna dymu,\
 I rozszerza się w górze na kształt baldakimu.\
