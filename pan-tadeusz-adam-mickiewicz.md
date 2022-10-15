@@ -1,3 +1,4 @@
+Ojciec mnie testamentem kazał, abym służył\
 W wojsku polskim, teraz stryj ten rozkaz powtórzył:\
 Jutro jadę, zrobiłem już postanowienie,\
 I dalbóg, Telimeno, już go nie odmienię».\
