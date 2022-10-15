@@ -1,3 +1,4 @@
+I po cichu uzbrajać całą okolicę,\
 A tymczasem ostrożnie całą rzecz prowadzić,\
 Aby Moskalom naszych zamiarów nie zdradzić».
 
