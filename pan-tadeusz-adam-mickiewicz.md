@@ -1,3 +1,4 @@
+Ileż razy zwodzono! Pamiętasz? gadali:\
 Napoleon już idzie! i my już czekali!\
 Gadano: już w Koronie, już Prusaka pobił,\
 Wkracza do nas! A on! co? pokój w Tylży zrobił!\
