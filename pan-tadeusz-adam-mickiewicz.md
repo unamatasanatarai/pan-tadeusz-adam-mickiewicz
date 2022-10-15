@@ -1,3 +1,4 @@
+Woźny sam głosem swoim przed laty wywołał,\
 Albo o których później dowiedzieć się zdołał.\
 Prostym ludziom wokanda zda się imion spisem;\
 Woźnemu jest obrazów wspaniałych zarysem.\
