@@ -1,3 +1,4 @@
+Jako owad prusaczy, gdy wrzątkiem kto zleje.\
 My śmiejąc się, trąc ręce, prosim uniżenie\
 O nowinki? pytamy, co słychać o Jenie?\
 Tu ich strach zdjął; dziwią się, że o klęsce owej\
