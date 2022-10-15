@@ -1,3 +1,4 @@
+Również głęboko w niebie schowany skowronek;\
 Ówdzie orzeł szerokim skrzydłem przez obszary\
 Zaszumiał, strasząc wróble, jak kometa cary;\
 Zaś jastrząb, pod jasnymi wiszący błękity,\
