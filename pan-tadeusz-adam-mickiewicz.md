@@ -1,3 +1,4 @@
+Te gałęziste rogi, jakby las wawrzynów\
 Zasiany ręką ojców na wieńce dla synów,\
 Te rzędami portretów zdobione filary,\
 Ten w sklepieniu błyszczący herb Półkozic stary,\
