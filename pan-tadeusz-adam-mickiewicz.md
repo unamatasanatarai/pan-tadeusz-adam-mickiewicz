@@ -1,3 +1,4 @@
+Aż nagle skoczył przez płot i wpadł do konopi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W tej zielonej, pachnącej i gęstej krzewinie\
 Koło domu jest pewny przytułek źwierzynie\
