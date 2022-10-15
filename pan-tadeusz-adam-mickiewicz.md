@@ -1,3 +1,4 @@
+Czy kwitnie gaj Mendoga pod farnym kościołem?\
 I tam na Ukrainie czy się dotąd wznosi\
 Przed Hołowińskch domem, nad brzegami Rosi,\
 Lipa tak rozrośniona, że pod jej cieniami\
