@@ -1,3 +1,4 @@
+Tylko się to nie zdało panu Buchmanowi.\
 Buchman, człowiek rozsądny, w bitwę się nie wmieszał,\
 Ale słysząc, że radzą, głosować pośpieszał.\
 Znajdował projekt dobrym, lecz chciał przeinaczyć,\
