@@ -1,3 +1,4 @@
+Za nim szedł kwestarz, Sędzia tuż przy bernardynie.\
 Sędzia u progu rękę dał Podkomorzynie,\
 Tadeusz Telimenie, Asesor Krajczance,\
 A pan Rejent na końcu Wojskiej Hreczeszance.
