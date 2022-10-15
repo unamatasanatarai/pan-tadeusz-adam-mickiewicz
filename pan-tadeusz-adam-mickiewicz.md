@@ -1,3 +1,4 @@
+To rzekłszy, z Podkomorzym przy pełnym kielichu\
 O politycznych sprawach rozmawiał po cichu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy tak były zajęte stołu strony obie,\
