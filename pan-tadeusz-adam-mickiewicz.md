@@ -1,3 +1,4 @@
+Kiedy śród roli padnie na krzemienia skibę\
 Lub śród zielonej łąki w drobną wody szybę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia zsiadł z konia, sługi odprawił do domu,\
