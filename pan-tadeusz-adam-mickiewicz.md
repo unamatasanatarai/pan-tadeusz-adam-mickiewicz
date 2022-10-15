@@ -1,3 +1,4 @@
+Ryknęły jak niedźwiedzie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    A już deszcz wciąż pluszczy\
 Jak z sita, w gęstych kroplach. Wtem rykły pioruny,\
