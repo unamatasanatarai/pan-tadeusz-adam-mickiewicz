@@ -1,3 +1,4 @@
+O którym powiadano, że w libijskiej ziemi\
 Goszcząc, polował niegdyś z królmi murzyńskiemi\
 I tam tygrysa spisą w ręcznym boju zwalił,\
 Z czego się bardzo książę ów Denassów chwalił.\
