@@ -1,3 +1,4 @@
+A więc panujem jako starsi nad obiema.\
 Jużci pleban inaczej uczy na ambonie...\
 Powiada, że to było tak w Starym Zakonie,\
 Ale skoro Chrystus Pan, choć z królów pochodził,\
