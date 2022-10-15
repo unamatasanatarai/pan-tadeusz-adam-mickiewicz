@@ -1,3 +1,4 @@
+Ja, któregoście sędzią zakładu obrali,\
 Wydaję wreszcie wyrok: obaście wygrali.\
 Wracam fanty, niech każdy przy swoim zostanie,\
 A wy podpiszcie zgodę». Na starca wezwanie\
