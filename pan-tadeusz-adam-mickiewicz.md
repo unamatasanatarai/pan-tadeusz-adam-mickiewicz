@@ -1,3 +1,4 @@
+Te księgi proste jako ich piosenki!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak za dni moich przy wiejskiej zabawie,\
 Czytano nieraz pod lipą na trawie\
