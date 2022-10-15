@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    «Nie jest to, panie Macieju,\
 Bracie mój, a nas wszystkich Ojcze Dobrodzieju,\
 Nie jest to marna pomoc. Ja bym na Francuzów\
 Spuścił się w czasie wojny, jak na czterech tuzów:\
