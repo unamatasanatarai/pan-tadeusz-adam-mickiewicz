@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, wydarłszy się z objęcia przemocą:\
 «Jak to? — rzekł — czyś z rozumu obrana? gdzie? po co?\
 Jechać za mną? Ja, będąc sam prostym żołnierzem,\
 Włóczyć, czy markietankę?» — «To my się pobierzem»\
