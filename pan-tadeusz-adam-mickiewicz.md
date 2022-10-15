@@ -1,3 +1,4 @@
+Tu pokazywał strzelbę przedziwnej roboty,\
 Choć maleńką, i zaczął wyliczać jej cnoty.\
 «Ja biegłem — przerwał Rejent, otarłszy pot z czoła —\
 Biegłem tuż za niedźwiedziem; a pan Wojski woła:\
