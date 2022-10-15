@@ -1,3 +1,4 @@
+Zdaje się, żeś ty nie rad z przybycia mojego?\
 Milczysz kwaśny? I jakże, serce ci nie skacze,\
 Gdy widzisz orły złote, srebrne? gdy trębacze\
 Pobudkę Kościuszkowską trąbią ci nad uchem?\
