@@ -1,3 +1,4 @@
+Jeślibym się ożenił: ten sprzęt mnie darował\
 Książę Dominik, kiedym z nim razem polował\
 I z marszałkiem Sanguszką księciem, z jenerałem\
 Mejenem, i gdy wszystkich na charty wyzwałem.\
