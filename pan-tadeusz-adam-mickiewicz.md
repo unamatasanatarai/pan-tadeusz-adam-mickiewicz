@@ -1,3 +1,4 @@
+Jako wierzchołki drzewa powiązane społem\
 Gdy je wicher rozerwie; i ręce pod stołem\
 Blisko siebie leżące wstecz nagle uciekły,\
 I dwie twarze w jeden się rumieniec oblekły.
