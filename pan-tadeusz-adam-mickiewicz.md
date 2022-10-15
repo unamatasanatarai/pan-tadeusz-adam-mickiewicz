@@ -1,3 +1,4 @@
+Grabowski list przeczytał, krzyknął: «Jena! Jena!\
 Zbito Prusaków na łeb, na szyję, wygrana!»\
 Ja, z konia zsiadłszy, zaraz padłem na kolana,\
 Dziękując Panu Bogu... Do miasta jedziemy,\
