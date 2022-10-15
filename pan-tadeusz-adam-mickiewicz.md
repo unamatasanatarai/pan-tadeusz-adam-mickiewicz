@@ -1,3 +1,4 @@
+Ucho Zosi rozróżnia wśród tysiąca gwarów\
 Akord muszek i półton fałszywy komarów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W polu koncert wieczorny ledwie jest zaczęty;\
