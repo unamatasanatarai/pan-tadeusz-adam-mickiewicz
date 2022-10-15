@@ -1,3 +1,4 @@
+Konewka strzelił w czapkę, ale chybił celu;\
 Wtem zatrzeszczały tyki, już Protazy w chmielu.\
 «Protestuję!» zawołał; pewny był ucieczki,\
 Bo za sobą miał łozę i bagniska rzeczki.
