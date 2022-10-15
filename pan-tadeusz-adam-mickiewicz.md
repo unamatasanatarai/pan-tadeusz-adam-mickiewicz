@@ -1,3 +1,4 @@
+Tam się człowiek napije, nadysze ojczyzny!\
 Dalbóg Dobrzyńscy! ja wasz brat, ale Sędziego\
 Nie pozwolę pokrzywdzić; nie będzie nic z tego.\
 Nie tak, panowie bracia, w Wielkopolszcze było:\
