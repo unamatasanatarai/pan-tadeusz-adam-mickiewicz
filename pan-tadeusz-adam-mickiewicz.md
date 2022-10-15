@@ -1,3 +1,4 @@
+
 > Zbawienne rady Bartka zwanego Prusak — Głos żołnierski Maćka Chrzciciela — Głos polityczny pana Buchmana — Jankiel radzi ku zgodzie, którą Scyzoryk rozcina — Rzecz Gerwazego, z której okazują się wielkie skutki wymowy sejmowej — Protestacja starego Maćka — Nagłe przybycie posiłków wojennych zrywa naradę — Hejże na Soplicę!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z kolei Bartek poseł rzecz swą wyprowadzał.\
