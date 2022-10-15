@@ -1,3 +1,4 @@
+Jadąc jako palestrant, to własne swe sprawy\
 Forytując, jeździłem nawet do Warszawy.\
 Człek niemało skorzystał! Chciałbym i synowca\
 Wysłać pomiędzy ludzi, prosto jak wędrowca,\
