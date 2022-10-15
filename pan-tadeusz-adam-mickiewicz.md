@@ -1,3 +1,4 @@
+Na ciele chorującym, nim ostrzem raz zada:\
 Tak Robak wyraz bystrych oczu swych złagodził,\
 Długo nimi po oczach Gerwazego wodził,\
 Na koniec, jakby ślepym chciał uderzyć ciosem,\
