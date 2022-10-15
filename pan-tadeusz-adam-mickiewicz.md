@@ -1,3 +1,4 @@
+Kurtę z połami żółtą, galonem oprawną,\
 Który dziś żółty, dawniej zapewne był złoty,\
 Wkoło szyte jedwabiem herbowe klejnoty,\
 Półkozice: i stąd też cała okolica\
