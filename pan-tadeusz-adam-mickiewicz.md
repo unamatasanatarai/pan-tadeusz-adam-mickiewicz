@@ -1,3 +1,4 @@
+Szabli nie nosił; przecież z dawnego zwyczaju,\
 Na wspomnienie Moskala, zawsze rękę zwracał\
 Na lewy bok: zapewne Rózeczki swej macał;\
 I stąd był nazywany powszechnie *Zabokiem*).\
