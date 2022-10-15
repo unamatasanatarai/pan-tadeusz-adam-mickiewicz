@@ -1,3 +1,4 @@
+Podniósł ku niebu oczy, cicho pacierz zmówił\
 I pobiegł w pole szybko, jakby go kto łowił.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem na Wojskiego rozkaz pęki wrzosu,\
