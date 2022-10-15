@@ -1,3 +1,4 @@
+Szacowali, iż służył u wielkiego pana,\
 Był dobry patryjota i pełen nauki,\
 Z ksiąg obcych wyuczył się gospodarstwa sztuki,\
 I dóbr administracją prowadził porządnie;\
