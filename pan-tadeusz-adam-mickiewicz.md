@@ -1,3 +1,4 @@
+Człek niemało skorzystał! Chciałbym i synowca\
 Wysłać pomiędzy ludzi, prosto jak wędrowca,\
 Jak czeladnika, który terminuje lata,\
 Ażeby nabył trochę znajomości świata.\
