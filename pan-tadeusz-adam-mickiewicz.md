@@ -1,3 +1,4 @@
+Zaczęli z dawnych gniewów ostygać powoli:\
 Bo szlachta polska, chociaż niezmiernie kłótliwa\
 I porywcza do bitew, przecież nie jest mściwa.\
 Biega więc do Macieja starego po radę.\
