@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tylko kapral Dobrzyński Sak ani kapeli\
 Nie słucha, ani tańczy, ani się weseli.\
 Ręce w tył założywszy, stoi zły, ponury,\
 Wspomina swe dawniejsze do Zosi konkury;\
