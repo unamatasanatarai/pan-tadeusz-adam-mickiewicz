@@ -1,3 +1,4 @@
+A czoło pochylone na dłoniach opiera.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Robak, nim zaczął mówić, w Klucznika oblicze\
 Wzrok utkwił i milczenie chował tajemnicze.\
