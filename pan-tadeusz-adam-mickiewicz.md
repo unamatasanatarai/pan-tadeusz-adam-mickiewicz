@@ -1,3 +1,4 @@
+Dobył szpady, broniąc się, zbliżał się do progu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem, z drugiej strony izby wpada szlachty wiele\
 Przez okna, z rapierami, Rózeczka na czele.\
