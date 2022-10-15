@@ -1,3 +1,4 @@
+Nogi więźniów i drugą belką je zamyka:\
 Oba drewna, gwoździami przebite po rogach,\
 Ścisnęły się jako psie paszczęki na nogach;\
 Zaś powrozami mocniej sznurowano ręce\
