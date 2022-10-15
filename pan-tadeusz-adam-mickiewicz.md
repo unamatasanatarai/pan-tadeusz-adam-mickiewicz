@@ -1,3 +1,4 @@
+Panuje ruch niezwykły. Stąd chłopska furmanka\
 Skrzypi, lecąc jak poczta; stąd szlachecka bryka\
 Cwałem tarkoce, drugą i trzecią spotyka;\
 Z lewej drogi posłaniec jak kuryjer goni,\
