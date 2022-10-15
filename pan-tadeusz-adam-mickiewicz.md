@@ -1,3 +1,4 @@
+Wtenczas i swoją ważność zarazem poznaje:\
 Jak na szalach, żebyśmy nasz ciężar poznali,\
 Musim kogoś posadzić na przeciwnej szali.\
 Zaś godna jest waszmościów uwagi osobnej\
