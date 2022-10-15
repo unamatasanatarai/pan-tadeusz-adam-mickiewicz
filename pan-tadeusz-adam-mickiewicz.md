@@ -1,3 +1,4 @@
+Zdawał się słuchać rozmów, oczy w talerz wlepił;\
 Telimena mu leje wino, on się gniewa\
 Na natrętność; pytany o zdrowie — poziewa.\
 Ma za złe (tak się zmienił jednego wieczora),\
