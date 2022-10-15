@@ -1,3 +1,4 @@
+Kędy działy się jakieś rzeczy nadzwyczajne.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na gościńcu i drogach od samego ranka\
 Panuje ruch niezwykły. Stąd chłopska furmanka\
