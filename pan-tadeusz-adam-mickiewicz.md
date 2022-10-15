@@ -1,3 +1,4 @@
+Nie wiedząc, że napastnik już z przeciwnej strony\
 Przybliżył się, czołgając jak wąż przez zagony,\
 Aż wyskoczył z łopuchu. Spojrzała — stał blisko,\
 O cztery grzędy od niej, i kłaniał się nisko.\
