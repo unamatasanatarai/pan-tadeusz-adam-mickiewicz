@@ -1,3 +1,4 @@
+Zręcznie między dwie ławy umiała się wtłoczyć,\
 A potem, między rzędem siedzących i stołem,\
 Jak bilardowa kula toczyła się kołem.\
 W biegu dotknęła blisko naszego młodziana;\
