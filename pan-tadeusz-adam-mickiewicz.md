@@ -1,3 +1,4 @@
+Lat setnych, wszyscy: «Hejże na Soplicę!» krzyczą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jankiel wymknął się milczkiem, oklep. Prusak, równie\
 Niesłuchany, choć jeszcze rozprawiał wymównie,\
