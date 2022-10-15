@@ -1,3 +1,4 @@
+Tak Gerwazy z długiego stał się krótki, gruby;\
 Rozciągnęły się, nawet skrzypnęły powrozy,\
 Ale nie pękły! Klucznik ze wstydu i zgrozy\
 Przewrócił się i w ziemię schowawszy twarz gniewną,\
