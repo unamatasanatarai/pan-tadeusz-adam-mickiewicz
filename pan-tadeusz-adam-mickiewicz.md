@@ -1,3 +1,4 @@
+Robak każe otoczyć resztę i wysiekać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kapitan Ryków wcale nie prosił pardonu;\
 Zebrawszy koło siebie pół batalijonu,\
