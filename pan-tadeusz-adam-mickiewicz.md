@@ -1,3 +1,4 @@
+czówna. Jej wynalazek epokę stanowi\
 W domowym gospodarstwie; dziś powszechnie znany,\
 Lecz w owych czasach jeszcze za nowość podany,\
 Przyjęty pod sekretem od niewielu osób,\
