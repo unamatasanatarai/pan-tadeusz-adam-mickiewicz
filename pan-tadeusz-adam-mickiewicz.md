@@ -1,3 +1,4 @@
+Tak po nieźmiernym niebie szło samotne słońce.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś pospólstwo litewskie z całej okolicy\
 Zebrało się przed wschodem wokoło kaplicy,\
