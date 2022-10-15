@@ -1,3 +1,4 @@
+By poznać, gdzie popasasz i gdzie masz noclegi.\
 Teraz Wojski z obławą, już od matecznika\
 Postawiwszy szeregi, odwrót ci zamyka.
 
