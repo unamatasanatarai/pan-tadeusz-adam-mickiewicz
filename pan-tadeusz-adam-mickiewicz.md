@@ -1,3 +1,4 @@
+Wyciągnął z lekka na stół rękę, dłoń i palce,\
 Położył nóż na dłoni, trzonkiem do paznokcia\
 Indeksu, a żelazem zwrócony do łokcia;\
 Potem rękę w tył nieco wychyloną kiwał,\
