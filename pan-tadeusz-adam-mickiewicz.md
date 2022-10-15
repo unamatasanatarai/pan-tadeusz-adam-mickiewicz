@@ -1,3 +1,4 @@
+Bez niego już by było dziś po Soplicowie!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Konewka dotąd małe dał męstwa dowody.\
 Choć najpierwszy ze szlachty uwolniony z kłody,\
