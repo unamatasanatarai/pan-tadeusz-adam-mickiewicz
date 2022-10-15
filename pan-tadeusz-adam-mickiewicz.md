@@ -1,3 +1,4 @@
+Maciek prostak ubogi był najwięcej czczony,\
 Nie tylko jako rębacz *Rózeczką* wsławiony,\
 Lecz jako człek mądrego i pewnego zdania,\
 Znający dzieje kraju, rodziny podania.\
