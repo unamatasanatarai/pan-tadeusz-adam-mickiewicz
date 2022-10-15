@@ -1,3 +1,4 @@
+A wszystko to przez waszą, panie Jacku, winę!\
 A wszakże, gdy dziś jegry Hrabię na cel wzięli,\
 Ostatniego z Horeszków chociaż po kądzieli,\
 Tyś go zasłonił, i gdy Moskal do mnie palił,\
