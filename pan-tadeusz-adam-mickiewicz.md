@@ -1,3 +1,4 @@
+Moskala; Brzytew idzie pod komendę Rózgi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Komenda — przerwał Chrzciciel — dobra ku paradzie;\
 U nas była komenda w kowieńskiej brygadzie\
