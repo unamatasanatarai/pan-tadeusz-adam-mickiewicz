@@ -1,3 +1,4 @@
+I do jednej strzelili razem niedźwiedzicy.\
 Prawda, że po ich strzale upadła bez duchu;\
 Ale już pierwej niosła z dziesiątek kul w brzuchu.\
 Strzelby z jednym kalibrem miało wiele osób:\
