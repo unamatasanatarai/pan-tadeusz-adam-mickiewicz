@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Nieraz Klucznik był w podobnych trwogach,\
 Nieraz miewał powrozy na ręku i nogach,\
 A przecież się uwalniał; wiedział o sposobie\
