@@ -1,3 +1,4 @@
+Wiedz wasze, że Soplice nie zwykli się godzić:\
 Gdy pozwą, muszą wygrać; nieraz w ich imieniu\
 Trwał proces, aż wygrali w szóstym pokoleniu.\
 Dosyć zrobiłem głupstwa z porady waszeci,\
