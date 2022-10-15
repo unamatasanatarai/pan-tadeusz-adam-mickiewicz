@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ku tej sernicy Wojski z Woźnym milczkiem idą,\
 Każdy zbrojny ogromnym drągiem jakby dzidą;\
 Za nimi ochmistrzyni dąży przez konopie\
 I kuchcik, małe, ale bardzo silne chłopię.\
