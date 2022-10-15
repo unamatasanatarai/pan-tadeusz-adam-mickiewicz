@@ -1,3 +1,4 @@
+I musi albo bić się, albo gnić w Sybirze.\
 Więc nic nie mówiąc, smutnie po sobie spójrzeli,\
 Westchnęli; na znak zgody głowami skinęli.
 
