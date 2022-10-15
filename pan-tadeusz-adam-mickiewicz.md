@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na dole jak ruiny miast: tu wywrót dębu\
 Wysterka z ziemi na kształt ogromnego zrębu;\
 Na nim oparte, jak ścian i kolumn obłamy,\
