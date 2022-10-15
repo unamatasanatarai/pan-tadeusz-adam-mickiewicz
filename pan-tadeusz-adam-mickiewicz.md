@@ -1,3 +1,4 @@
+Sam mówiłeś, że jeszcze za wcześnie — zbyt młodzi, —\
 Rozpatrzmy się, czekajmy, nic to nie zaszkodzi,\
 Poznajmy z sobą państwo młodych, będziem zważać;\
 Nie można szczęścia drugich tak na traf narażać.\
