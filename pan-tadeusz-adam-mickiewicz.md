@@ -1,3 +1,4 @@
+Grabowskim, który teraz jest rejmentu szefem,\
 A podówczas żył na wsi blisko Obiezierza,\
 Polowaliśmy sobie na małego źwierza.\
 Był pokój w Wielkopolszcze, jak teraz na Litwie;\
