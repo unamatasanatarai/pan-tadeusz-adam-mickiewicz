@@ -1,3 +1,4 @@
+Tamten jak źwierza znalazł, ten jak ranę zadał,\
 Tamten psiarnię zawołał, ów źwierza nawrócił\
 Znowu w ostęp. Asesor z Rejentem się kłócił,\
 Jeden wielbiąc przymioty swojej Sanguszkówki,\
