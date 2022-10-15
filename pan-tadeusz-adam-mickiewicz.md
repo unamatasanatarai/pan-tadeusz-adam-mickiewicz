@@ -1,3 +1,4 @@
+Z lewej drogi posłaniec jak kuryjer goni,\
 Z prawej przebiegło w zawód kilkanaście koni:\
 Wszyscy śpieszą, ku różnym kierują się stronom.\
 Co to ma znaczyć? Powstał ze snopa Ekonom,\
