@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wtem dzwoniąc w tabakierę, rzekł pan Podkomorzy:\
 «Panie Wojski, niech wasze na potem odłoży\
 Te historie. Prawda, że sejmik ciekawy:\
 Ale my głodni, każ wać przynosić potrawy».
