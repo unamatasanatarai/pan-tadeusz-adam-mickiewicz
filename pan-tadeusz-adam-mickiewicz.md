@@ -1,3 +1,4 @@
+Tadeusz, będąc bliższy, obydwu wyprzedził,\
 Stanął obok Sędziego i oczyma śledził.\
 Dawno już nie był w polu; na szarej przestrzeni\
 Trudno dojrzeć szaraka, zwłaszcza śród kamieni.\
