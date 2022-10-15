@@ -1,3 +1,4 @@
+Te półmiski kontuzów, arkasów, blemasów,\
 Z ingrediencyjami pomuchl, figatelów,\
 Cybetów, piżm, dragantów, pinelów, brunelów;\
 Owe ryby: łososie suche, dunajeckie,\
