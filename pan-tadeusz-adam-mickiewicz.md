@@ -1,3 +1,4 @@
+Między głowę Chrzciciela i ręce Moskali.\
 Cofnęli się, wydawszy przeraźliwe głosy;\
 Lecz jedna ręka, mocniej wplątana we włosy,\
 Została się wisząca i krwią buchająca.\
