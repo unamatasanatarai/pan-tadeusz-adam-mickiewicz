@@ -1,3 +1,4 @@
+W pustym folwarku ledwie wynalazł dwie babie,\
 Od których słyszy, że pan i dworska drużyna\
 Ruszyli tłumnie, zbrojnie, drogą do Dobrzyna.
 
