@@ -1,3 +1,4 @@
+Rozmowa, jął ją znowu zbierać do ogniska,\
 Do swojej tabakiery; częstował, kichali,\
 Życzyli sobie zdrowia, on rzecz ciągnął daléj:\
 «Gdy cesarz Napoleon w potyczce zażywa\
