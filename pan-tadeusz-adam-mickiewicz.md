@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz za to w trzecim gronie dzieje się inaczej:\
 Tu mówca musi łowić za pasy słuchaczy.\
 Patrzcie, wyrywają się i cofają uszy;\
