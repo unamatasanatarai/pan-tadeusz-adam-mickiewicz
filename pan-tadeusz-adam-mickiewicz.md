@@ -1,3 +1,4 @@
+Aż mucha, odurzona od tyla łoskotu,\
 Widząc dwóch ludzi w progu broniących odwrotu,\
 Rzuciła się z rozpaczą pomiędzy ich lica;\
 I tam za nią mignęła Wojskiego prawica.\
