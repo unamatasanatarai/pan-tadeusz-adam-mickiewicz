@@ -1,3 +1,4 @@
+Które Hrabia oberwał pełznąc przez zagony,\
 Zieleniły się jako wieniec rozpleciony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«O ty — rzekł — jakimkolwiek uczczę cię imieniem,\
