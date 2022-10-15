@@ -1,3 +1,4 @@
+Wszystko to bardzo dobre polowanie wróży;\
 Nareszcie Podkomorzy dał rozkaz podróży.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ruszyli szczwacze z wolna, jeden tuż za drugim;\
