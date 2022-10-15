@@ -1,3 +1,4 @@
+«Owoż — kończył Protazy — był to znak proroczy\
 O jej losie, widziałem znak na własne oczy.\
 Przed rokiem tu siedziała w święto czeladź nasza\
 Pijąc miód; alić patrzym: pęc, pada z poddasza\
