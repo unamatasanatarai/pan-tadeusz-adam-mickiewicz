@@ -1,3 +1,4 @@
+Która miejsca na gniazdo szuka w okolicy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż zdała się szukać samotności, ciszy.\
 Oddalała się z wolna od swych towarzyszy,\
