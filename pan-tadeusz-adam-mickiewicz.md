@@ -1,3 +1,4 @@
+Reszta wsiadała na koń. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Hrabia i Gerwazy\
 Porządkują, rozdają oręże, rozkazy.\
