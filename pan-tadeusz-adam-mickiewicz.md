@@ -1,3 +1,4 @@
+I na konikach małe goniły panicze\
 Przed oczyma rodziców, którzy te pogonie\
 Ledwie raczyli widzieć, cóż kłócić się o nie!\
 Więc niech jaśnie wielmożny Podkomorzy raczy\
