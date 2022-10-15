@@ -1,3 +1,4 @@
+I w tylcu głowy, mózgu rozkroiwszy słoje,\
 Znalazł kulę, wydobył, suknią ochędożył,\
 Przymierzył do ładunku, do flinty przyłożył,\
 A potem dłoń podnosząc i kulę na dłoni:\
