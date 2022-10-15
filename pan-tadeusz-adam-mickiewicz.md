@@ -1,3 +1,4 @@
+Tak w czasie polowania, jako i biesiady.\
 Rejent kłócił się z rana z panem Asesorem,\
 A pan Tadeusz wyzwał Hrabiego wieczorem.\
 Pono spór ten ze skóry niedźwiedziej pochodził;\
