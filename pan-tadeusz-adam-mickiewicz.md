@@ -1,3 +1,4 @@
+Krótkie; w ręku kręciła wachlarz dla zabawki\
 (Bo nie było gorąco); wachlarz pozłocisty\
 Powiewając rozlewał deszcz iskier rzęsisty;\
 Głowa do włosów, włosy pozwijane w kręgi,\
