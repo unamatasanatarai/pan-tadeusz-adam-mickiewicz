@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    «A! a! to rzecz nowa!\
 Czy to Tadeuszowi szkodzi, czy nie szkodzi —\
 Rzekła z gniewem — sądź o tym sam waćpan dobrodziéj!\
 Mnie nic do Tadeusza; sami o nim radźcie,\
