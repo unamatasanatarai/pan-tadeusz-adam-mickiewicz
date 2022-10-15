@@ -1,3 +1,4 @@
+Na podróż ma strój inny: szerokie rajtuzy\
 I kurtkę, której poły podpięte na guzy\
 Można zakasać albo spuścić na kolana;\
 Czapka z uszami, sznurkiem u wierzchu związana,\
