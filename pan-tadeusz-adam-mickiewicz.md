@@ -1,3 +1,4 @@
+Gdy im nieraz mówiłam, jak tam z wielu względów\
 Godna pochwały czujność i srogość urzędów.\
 Byłam ja w Petersburku, nie raz, nie dwa razy!\
 Miłe wspomnienia! wdzięczne przeszłości obrazy!\
