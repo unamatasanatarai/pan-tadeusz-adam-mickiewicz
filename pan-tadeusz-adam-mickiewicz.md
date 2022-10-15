@@ -1,3 +1,4 @@
+«Tylko zgódźcie się — prosił uprzejmie Konewka —\
 Chrzcicielu i Macieju, pod czyją iść wodzą?»\
 Ale mu przerwał Buchman: «Niech się głupi godzą,\
 Dyskusyje publicznej sprawie nie zaszkodzą.\
