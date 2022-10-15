@@ -1,3 +1,4 @@
+Jakże tam było? powiedz; trzeba tę rzecz zatrzeć.\
 Już mię znudziło wreszcie na tyle głupstw patrzeć:\
 Ważniejsze ja mam sprawy niż godzić pieniaczy;\
 Ale jeszcze raz zgodzę». «Zgodzić? Cóż to znaczy!\
