@@ -1,3 +1,4 @@
+Ocieniały szerokie pole; spodem grzędy.\
 Tu kapusta, sędziwe schylając łysiny,\
 Siedzi i zda się dumać o losach jarzyny;\
 Tam, plącząc stronki w marchwi zielonej warkoczu,\
