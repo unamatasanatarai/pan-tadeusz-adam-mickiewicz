@@ -1,3 +1,4 @@
+Sądź!» — tu ukląkł i podał swoje pejzaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena sądziła malowania proby\
 Tonem grzecznej, lecz sztukę znającej osoby;\
