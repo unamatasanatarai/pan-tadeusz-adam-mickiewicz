@@ -1,3 +1,4 @@
+Wiecie co? grajmy w karty? w welba-cwelba? w wista?\
 Albo pójdźmy mazurka? he! do diabłów trzysta!\
 Wszak ja w jegerskim pułku pierwszy mazurzysta!»\
 Za czym ku damom bliżej chylił się wygięty,\
