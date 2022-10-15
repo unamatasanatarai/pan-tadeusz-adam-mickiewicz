@@ -1,3 +1,4 @@
+Co do władzy więc — kiedy oczyma przebiegam\
 Dzieje całej ludzkości, i cóż w nich spostrzegam?\
 Oto, ród ludzki dziki, w lasach rozpierzchniony,\
 Skupia się, zbiera, łączy dla wspólnej obrony,\
