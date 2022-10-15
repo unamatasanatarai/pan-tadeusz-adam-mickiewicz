@@ -1,3 +1,4 @@
+«Nie pamiętam już dobrze, co się dawniej działo;\
 Wiem, że wszyscy mówili, iż za mąż iść trzeba\
 Za pana: ja się zawsze zgadzam z wolą Nieba\
 I z wolą starszych». Potem, spuściwszy oczęta,\
