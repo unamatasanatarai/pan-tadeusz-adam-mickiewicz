@@ -1,3 +1,4 @@
+Czarnoziemne, zapewne należne do dworu,\
 Uprawne dobrze na kształt ogrodowych grządek:\
 Że w tym domu dostatek mieszka i porządek.\
 Brama na wciąż otwarta przechodniom ogłasza,\
