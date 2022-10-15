@@ -1,3 +1,4 @@
+I gwar myśliwców; już są pod bramą: to oni!\
 Wziąwszy Zosię pod rękę pobiegła do sali.\
 Myśliwi na pokoje jeszcze nie wchadzali;\
 Musieli po komnatach odmieniać swą odzież,\
