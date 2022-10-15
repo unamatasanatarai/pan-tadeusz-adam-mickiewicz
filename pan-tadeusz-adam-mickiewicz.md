@@ -1,3 +1,4 @@
+Zawszem ciebie szanował; ale od tej chwili\
 Kocham cię, jak gdybyśmy bracią sobie byli!...\
 Przygotujemy wszystko; lecz wyjść nie czas jeszcze:\
 Ja sam wyznaczę miejsce i czas wam obwieszczę.\
