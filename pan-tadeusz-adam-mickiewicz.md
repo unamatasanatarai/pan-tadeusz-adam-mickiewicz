@@ -1,3 +1,4 @@
+«Każ pan, żeby się jeszcze kapela wstrzymała.\
 Wiesz, że dzisiaj synowca mego zaręczyny;\
 A dawnym obyczajem jest naszej rodziny,\
 Zaręczać się i żenić przy wiejskiej muzyce.\
