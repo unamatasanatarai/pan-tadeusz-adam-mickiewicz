@@ -1,3 +1,4 @@
+Goście głodni, chodzili daleko na pole;\
 Myśliłem, że dziś z nami nie będziesz przy stole».\
 To rzekłszy, z Podkomorzym przy pełnym kielichu\
 O politycznych sprawach rozmawiał po cichu.
