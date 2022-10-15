@@ -1,3 +1,4 @@
+Tak przekradł się Gorecki, Pac i Obuchowicz,\
 Piotrowski, Obolewski, Rożycki, Janowicz,\
 Mierzejewscy, Brochocki i Bernatowicze,\
 Kupść, Gedymin i inni, których nie policzę:\
