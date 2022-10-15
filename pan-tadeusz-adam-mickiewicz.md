@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wszyscy chwalą, klaskają. Jeden z oficerów\
 Dobył z kieszeni portefeuille z plikami papierów,\
 Rozłożył je, ołówek przyciął, w ustach zmoczył,\
 Patrzy w Zosię, rysuje. Ledwie Sędzia zoczył\
