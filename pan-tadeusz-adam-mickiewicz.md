@@ -1,3 +1,4 @@
+Trzasł zamek: lecz zalany krwią proch już nie spalił;\
 Sierżant u nóg Chrzciciela na swą broń się zwalił.\
 Chrzciciel schyla się, chwyta karabin za rurę\
 I wijąc jak kropidłem podnosi go w górę,\
