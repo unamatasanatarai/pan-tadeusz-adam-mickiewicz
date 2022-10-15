@@ -1,3 +1,4 @@
+I jak bawić się trzeba, i jak czas podzielić,\
 By życie uprzyjemnić i wieś rozweselić.\
 Tadeusz odpowiadał śmielej, szła rzecz daléj,\
 W pół godziny już byli z sobą poufali;\
