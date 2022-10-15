@@ -1,3 +1,4 @@
+Rozwiąże oczy, tylą łez brzemienne\
 I sprawia, że łza przystygła wypłynie,\
 Nim się te usta znajdą, wiek przeminie.
 
