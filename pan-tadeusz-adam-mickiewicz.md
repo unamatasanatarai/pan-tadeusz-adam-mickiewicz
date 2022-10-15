@@ -1,3 +1,4 @@
+Hasło zakończonego na dziś grzybobrania;\
 Odgłos nie smutny wcale ani pogrzebowy,\
 Jak się Hrabiemu zdało: owszem, obiadowy.\
 Dzwon ten, w każde południe krzyczący z poddasza,\
