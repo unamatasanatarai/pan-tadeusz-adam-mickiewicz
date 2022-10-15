@@ -1,3 +1,4 @@
+Stuka z lekka i dalej odlatuje, ginie,\
 Schował się, ale dziobem nie przestaje pukać,\
 Jak dziecko, gdy schowane woła, by go szukać.\
 Bliżej siedzi wiewiórka, orzech w łapkach trzyma,\
