@@ -1,3 +1,4 @@
+Ślubny, szuka na łące; a Rejenta dama\
 Jeszcze u gotowalni, choć spieszy się sama\
 I choć jej pomagają służebne kobiety,\
 Nie mogła w żaden sposób skończyć toalety:\
