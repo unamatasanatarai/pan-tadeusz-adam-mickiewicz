@@ -1,3 +1,4 @@
+Świeciły się z daleka pobielane ściany,\
 Tym bielsze, że odbite od ciemnej zieleni\
 Topoli, co go bronią od wiatrów jesieni.\
 Dom mieszkalny niewielki, lecz zewsząd chędogi,\
