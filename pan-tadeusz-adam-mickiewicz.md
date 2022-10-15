@@ -1,3 +1,4 @@
+Krajów włoskich! różowe cezarów ogrody!\
 Wy, klasyczne Tyburu spadające wody!\
 I straszne Pauzylipu skaliste wydroże!\
 To, Hrabio, kraj malarzów! U nas, żal się Boże!...\
