@@ -1,3 +1,4 @@
+Upadli, właśnie kiedy pluton ognia dawał.\
 Ledwie ołów prześwisnął, już Gerwazy wstawał,\
 Już wskoczył w dym, dwóm jegrom zaraz głowy zmiata\
 Uciekają strwożeni; Klucznik goni, płata;\
