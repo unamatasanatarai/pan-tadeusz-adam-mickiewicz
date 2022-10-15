@@ -1,3 +1,4 @@
+Dawniej na dwory pańskie jachał szlachcic młody;\
 Ja sam lat dziesięć byłem dworskim Wojewody,\
 Ojca Podkomorzego, mościwego pana\
 (Mówiąc, Podkomorzemu ścisnął za kolana);\
