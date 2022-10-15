@@ -1,3 +1,4 @@
+Pachnące kwitną lasy; z legiją Dunaju\
 Tam wódz Murzyny gromi, a wzdycha do kraju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mowy starca krążyły we wsi po kryjomu;\
