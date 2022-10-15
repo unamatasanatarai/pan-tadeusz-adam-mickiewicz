@@ -1,3 +1,4 @@
+A sama kręcąc sito, jako tanecznica\
 Bębenek, i w takt bijąc, swawolna dziewica\
 Jęła skakać przez pawie, gołębie i kury:\
 Zmieszane ptastwo tłumnie furknęło do góry.\
