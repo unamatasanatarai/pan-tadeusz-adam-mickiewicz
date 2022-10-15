@@ -1,3 +1,4 @@
+Patrzy: widzi przy oknie ludzi uzbrojonych,\
 W czarnych krótkich kaszkietach, w mundurach zielonych.\
 Jeden z nich, opasany szarfą, trzymał szpadę\
 I ostrzem jej kierował swych drabów gromadę,\
