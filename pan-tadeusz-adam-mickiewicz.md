@@ -1,3 +1,4 @@
+Dwaj byli niedźwiedziego najbliżsi pazura:\
 Tadeusz i pan Hrabia; im należy skóra.\
 Pan Tadeusz ustąpi (jestem tego pewny),\
 Jako młodszy i jako gospodarza krewny;\
