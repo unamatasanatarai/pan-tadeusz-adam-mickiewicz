@@ -1,3 +1,4 @@
+Przestraszone łoskotem; czekał, nie wracało!\
 Tylko usłyszał znowu trzykrotne stukanie\
 I słowa: «Niech pan wstaje, czas na polowanie.\
 Pan zaspał». Skoczył z łóżka i obu rękami\
