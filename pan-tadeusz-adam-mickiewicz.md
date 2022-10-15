@@ -1,3 +1,4 @@
+Całe grono z posępną i cichą postawą\
 Pogląda w niebo, które zdawało się zniżać,\
 Ścieśniać i coraz bardziej ku ziemi przybliżać,\
 Aż oboje, skrywszy się pod zasłonę ciemną\
