@@ -1,3 +1,4 @@
+Z głębokiego dumania, w środku się postawił,\
 Wąsy siwe pokręcił, kapoty poprawił,\
 Iskrzyły mu się oczy (zawżdy postrzegano\
 Ten blask niezwykły, kiedy o łowach gadano),\
