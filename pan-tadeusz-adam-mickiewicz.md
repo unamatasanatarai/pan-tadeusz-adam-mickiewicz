@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Dobra była rada:\
 Klucznik i Hrabia wpadli w obroty nie lada.\
 Przy wyższym końcu stoła wrzał tylko krzyk wielki,\
 Ale z ostrego końca latały butelki\
