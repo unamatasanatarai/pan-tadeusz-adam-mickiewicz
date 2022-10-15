@@ -1,3 +1,4 @@
+Podkomorzy rywalów zagodzić pośpieszał;\
 Lecz Telimena wziąwszy Hrabiego na stronę:\
 «Jeszcze — szepnęła — Rejent nie wziął mię za żonę;\
 Jeżeli pan przeszkadzasz, odpowiedzże na to,\
