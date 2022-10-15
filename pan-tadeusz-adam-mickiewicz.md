@@ -1,3 +1,4 @@
+Nie chcąc wniść do dam w kurtkach. Pierwsza wpadła młodzież,\
 Pan Tadeusz i Hrabia, co żywo przebrani.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena sprawuje obowiązki pani,\
