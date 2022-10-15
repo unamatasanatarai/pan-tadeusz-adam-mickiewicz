@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Skrzypak u sukni zakasał rękawek,\
 Ścisnął gryf krzepko, oparł brodę o podstawek\
 I smyk jak konia w zawód puścił po skrzypicy.\
