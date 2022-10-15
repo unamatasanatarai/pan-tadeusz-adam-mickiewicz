@@ -1,3 +1,4 @@
+Mój bezład w domu, bieda, mój nałóg haniebny,\
 Podały mnie na wzgardę i na śmiech przed światem!\
 Mnie, com niegdyś, rzec mogę, trząsł całym powiatem!\
 Mnie, którego Radziwiłł nazywał: kochanku!\
