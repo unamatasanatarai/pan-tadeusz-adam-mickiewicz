@@ -1,3 +1,4 @@
+Wojski zaprzeczył i nikt kuchcie nie uwierzył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już goście zgromadzeni w wielkiej zamku sali,\
 Czekając uczty, wkoło stołu rozmawiali,\
