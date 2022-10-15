@@ -1,3 +1,4 @@
+Nie służąc pysze, ziemskiej nie szukając chwały,\
 Żyłem dotąd i chciałem umrzeć bernardynem,\
 Nie wydając nazwiska, nie tylko przed gminem,\
 Ale nawet przed tobą i przed własnym synem!\
