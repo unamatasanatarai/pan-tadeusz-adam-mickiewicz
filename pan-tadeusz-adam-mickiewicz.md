@@ -1,3 +1,4 @@
+Wszyscy jednogłośnie, jak na dane hasło,\
 Krzyknęli: «Dąbrowskiego!» Wszystko razem wrzasło,\
 Wszystko się uścisnęło: chłop z tatarskim hrabią,\
 Mitra z Krzyżem, Poraje z Gryfem i z Korabią;\
