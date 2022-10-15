@@ -1,3 +1,4 @@
+Nie widział? czy niedawno tu? przyjezdna może?»\
 Dziewczę wstrząsnęło głową. — «Przepraszam, panienko,\
 Czy nie tam pokój panny, gdzie owe okienko?»
 
