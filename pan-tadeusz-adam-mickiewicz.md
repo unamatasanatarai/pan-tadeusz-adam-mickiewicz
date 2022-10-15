@@ -1,3 +1,4 @@
+I liściem podesłany, bez ruchu, bez wrzawy,\
 Niewidzialny i ledwie dosłyszany szepce,\
 Jako dziecię krzykliwe złożone w kolebce,\
 Gdy matka nad nim zwiąże firanki majowe\
