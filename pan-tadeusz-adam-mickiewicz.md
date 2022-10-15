@@ -1,3 +1,4 @@
+Ażeby nabył trochę znajomości świata.\
 Nie dla rang ni orderów! Proszę uniżenie,\
 Ranga moskiewska, order: cóż to za znaczenie?\
 Któryż to z dawnych panów, ba, nawet dzisiejszych,\
