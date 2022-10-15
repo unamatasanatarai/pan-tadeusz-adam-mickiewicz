@@ -1,3 +1,4 @@
+Choć duszę oddać. W szablę nie byłem zbyt tęgi;\
 Wszakże, bierali ludzie i ode mnie cięgi,\
 Wie świat, że w czasie polskich ostatnich sejmików\
 Wyzwałem i zraniłem dwóch braci Buzwików,\
