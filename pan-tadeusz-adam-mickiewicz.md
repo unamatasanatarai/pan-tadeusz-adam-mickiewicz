@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Już — rzekła ciotka — z dwojga złego, lepiej z ptastwem,\
 Niż z tym, co u nas dotąd gościło plugastwem;\
 Przypomnij tylko sobie, kto tu u nas bywał:\
 Pleban, co pacierz mruczał lub w warcaby grywał,\
