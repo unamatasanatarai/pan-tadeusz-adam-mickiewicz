@@ -1,3 +1,4 @@
+Nigdy się krwią bezbronnych ta szpada nie splami;\
 Soplicowie! jesteście moimi więźniami.\
 Tak zrobiłem we Włoszech, kiedy pod opoką,\
 Którą Sycylianie zwą Birbante-rokką,\
