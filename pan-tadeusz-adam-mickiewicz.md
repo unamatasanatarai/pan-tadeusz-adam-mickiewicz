@@ -1,3 +1,4 @@
+Sami wolni, uczyńmy i włościan wolnemi,\
 Oddajmy im w dziedzictwo posiadanie ziemi,\
 Na której się zrodzili, którą krwawą pracą\
 Zdobyli, z której wszystkich żywią i bogacą.\
