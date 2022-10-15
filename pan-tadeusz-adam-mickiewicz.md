@@ -1,3 +1,4 @@
+Na zakupienie różnych szkieł i teleskopów.\
 Ksiądz Poczobut, człek sławny, był obserwatorem\
 I całej Akademii naonczas Rektorem;\
 Przecież w końcu katedrę i teleskop rzucił,\
