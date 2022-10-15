@@ -1,3 +1,4 @@
+Przeprowadzała księdza; on już był za drzwiami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;On już pierwej przez okno ujrzał Tadeusza,\
 Który leciał gościńcem, w cwał, bez kapelusza,\
