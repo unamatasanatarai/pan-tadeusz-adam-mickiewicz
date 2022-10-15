@@ -1,3 +1,4 @@
+Z pod Zurich; a miał także i za męstwo szpadę,\
 Także od feldmarszałka trzy zadowolnienia,\
 Dwie pochwały cesarskie i cztery wspomnienia,\
 Wszystko na piśmie...»
