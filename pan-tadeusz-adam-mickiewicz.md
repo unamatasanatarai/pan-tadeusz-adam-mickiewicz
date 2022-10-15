@@ -1,3 +1,4 @@
+A wieprz marudzi w tyle, dąsa się i zgrzyta,\
 I snopy zboża kradnie i na zapas chwyta.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ptastwo skryło się w lasy, pod strzechy, w głąb trawy;\
