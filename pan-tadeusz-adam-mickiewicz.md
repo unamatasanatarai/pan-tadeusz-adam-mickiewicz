@@ -1,3 +1,4 @@
+Gdy za tobą, kobiety szalały! Wąsalu!\
 Nie tak dawno! takeś zestarzał się z żalu!\
 Jakżem ciebie nie poznał po owym wystrzale,\
 Kiedyś tak do niedźwiedzia trafił doskonale?\
