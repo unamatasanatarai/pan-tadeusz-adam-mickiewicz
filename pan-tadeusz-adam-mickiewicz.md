@@ -1,3 +1,4 @@
+Rzecze Ryków — ot słowo! Co po waszej zgubie?\
 Ja człek poczciwy, ja was państwo Lachy lubię,\
 Że wy ludzie weseli, dobrzy do wypitki,\
 I także ludzie śmiali, dobrzy do wybitki.\
