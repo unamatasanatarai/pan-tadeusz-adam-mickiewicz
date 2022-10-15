@@ -1,3 +1,4 @@
+Trzy dni tu będzie wisiał, potem do kaplicy\
 Złoży się, jako wotum dla Boga Rodzicy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;To powiedziawszy, order wydobył z pokrowca,\
