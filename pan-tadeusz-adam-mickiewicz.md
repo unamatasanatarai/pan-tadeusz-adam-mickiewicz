@@ -1,3 +1,4 @@
+«To nie fraszka — zawołał Klucznik — łotrów wieszać!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szmer wzmagał się. Wtem Jankiel posłuchania prosił,\
 Na ławę wskoczył, stanął i nad głowy wznosił\
