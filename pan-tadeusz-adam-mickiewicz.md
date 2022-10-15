@@ -1,3 +1,4 @@
+Przy wyższym końcu stoła wrzał tylko krzyk wielki,\
 Ale z ostrego końca latały butelki\
 Koło Hrabiego głowy. Strwożone kobiety\
 W prośby, w płacz; Telimena, krzyknąwszy: «Niestety!»\
