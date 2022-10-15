@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia w porannym stroju i z głową odkrytą\
 Stała, trzymając w ręku podniesione sito;\
 Do nóg jej biegło ptastwo. Stąd kury szurpate\
