@@ -1,3 +1,4 @@
+Wyiskrza, wąsy rusza i ogonem trzepie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Rębajło — rzekł ksiądz — już mię nie zatrwożą\
 Gniewy ludzkie, bo jestem już pod ręką Bożą.\
