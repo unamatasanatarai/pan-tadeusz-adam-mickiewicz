@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Telimena, tak myśląc, z sofy się podniosła\
 I stanęła na palcach: rzekłbyś, że podrosła;\
 Odkryła nieco piersi, wygięła się bokiem,\
 I sama siebie pilnym obejrzała okiem,\
