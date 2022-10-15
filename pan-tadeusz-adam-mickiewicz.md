@@ -1,3 +1,4 @@
+Panie Buchman, gadaj Waść, jakby cara zrzucić».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tu sęk — krzyknął Kropiciel — gdybym mógł podskoczyć\
 Do tronu i Kropidłem, plusk, raz cara zmoczyć:\
