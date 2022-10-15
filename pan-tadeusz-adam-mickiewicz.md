@@ -1,3 +1,4 @@
+Snuło się mnóstwo kształtów, których dziwne ruchy,\
 Niby tańce, i dziwny ubiór: istne duchy\
 Błądzące po księżycu. Tamci w czarnych, ciasnych,\
 Ci w długich, rozpuszczonych szatach jak śnieg jasnych;\
