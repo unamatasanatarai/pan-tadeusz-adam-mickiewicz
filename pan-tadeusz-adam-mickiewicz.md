@@ -1,3 +1,4 @@
+I u nas w Litwie sprawić Moskwie taką łaźnię?\
 He, co myślisz Macieju? Jeśli z Bonapartem\
 Moskwa drze koty, to on wojuje nie żartem:\
 Bohater pierwszy w świecie, a wojsk ma bez liku!\
