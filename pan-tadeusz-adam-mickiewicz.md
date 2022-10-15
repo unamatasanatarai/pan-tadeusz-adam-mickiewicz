@@ -1,3 +1,4 @@
+Załatwić tę rzecz».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Prawda, słowo dam na nowo —\
 Rzecze Ryków — ot słowo! Co po waszej zgubie?\
