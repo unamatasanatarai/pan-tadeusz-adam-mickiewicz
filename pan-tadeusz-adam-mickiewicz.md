@@ -1,3 +1,4 @@
+Jakby chciał zająć puste miejsce Lucypera,\
 Warkocz długi w tył rzucił i część nieba trzecią\
 Obwinął nim, gwiazd krocie zagarnął jak siecią\
 I ciągnie je za sobą, a sam wyżej głową\
