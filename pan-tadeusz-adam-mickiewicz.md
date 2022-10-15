@@ -1,3 +1,4 @@
+«Wojny z Moskalem! Bić się! Hejże na Moskali!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Prusak wciąż wołał, a głos coraz wyżej wznosił;\
 Aż posłuchanie częścią ukłonem wyprosił,\
