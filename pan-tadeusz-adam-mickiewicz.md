@@ -1,3 +1,4 @@
+Nagle króliki znikły w ziemi, a gromady\
 Wróblów na dach uciekły przed gośćmi nowymi,\
 Którzy szli do folwarku krokami prędkiemi.\
 Byli to z plebanii przez szlachty gromadę\
