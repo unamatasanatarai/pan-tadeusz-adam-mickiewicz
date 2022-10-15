@@ -1,3 +1,4 @@
+Uczuć, ile jest piekła w obrażonej dumie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szatan dumy zaczął mi lepsze plany raić:\
 Zemścić się krwawo, ale powód zemsty taić,\
