@@ -1,3 +1,4 @@
+Już bekasy, do góry porwawszy się, wiją\
 I bekając raz po raz, jak w bębenki biją.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na finał szmerów muszych i ptaszęcej wrzawy\
