@@ -1,3 +1,4 @@
+Wszystkich gości obecnych, wszystkich zaproszonych,\
 Wszystkich przyjaciół, których kto żywy spamięta,\
 I których zmarłych pamięć pozostała święta!
 
