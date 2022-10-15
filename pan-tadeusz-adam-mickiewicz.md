@@ -1,3 +1,4 @@
+Do cesarza i wyrok nieco ułaskawi.\
 Skończyło się, że charty poszły na powrozy,\
 A czynownik na cztery tygodnie do kozy.\
 Zabawiła nas cały wieczór ta pustota;\
