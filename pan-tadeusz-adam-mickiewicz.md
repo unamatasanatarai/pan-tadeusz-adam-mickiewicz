@@ -1,3 +1,4 @@
+Krwią, poświęceniem się...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biłem się za kraj; gdzie? jak? zmilczę; nie dla chwały\
 Ziemskiej biegłem tylekroć na miecze, na strzały.\
