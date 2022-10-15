@@ -1,3 +1,4 @@
+Sam widziałem, kobiety w wioskach napastują,\
 Przechodniów odzierają, kościoły rabują!\
 Cesarz idzie do Moskwy... daleka to droga,\
 Jeśli cesarz jegomość wybrał się bez Boga!\
