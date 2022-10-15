@@ -1,3 +1,4 @@
+Klucznik idąc kłaniał się, aż dobył się z tłoku,\
 I rzekł:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Jaśnie wielmożny koronny hetmanie,\
