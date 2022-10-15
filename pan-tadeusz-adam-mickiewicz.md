@@ -1,3 +1,4 @@
+Wojski rzuca plac boju, idzie do ogrodu;\
 Przy boku jego stąpał ostrożny Protazy,\
 A Wojski mu po cichu wydawał rozkazy.
 
