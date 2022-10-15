@@ -1,3 +1,4 @@
+Wyławia resztki światła, a za słońcem leci,\
 Jak gdyby je pochwycić chciała przed zachodem.\
 Kilka wichrów raz po raz prześwisnęło spodem,\
 Jeden za drugim lecą, miecąc krople dżdżyste,\
