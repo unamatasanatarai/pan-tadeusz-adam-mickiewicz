@@ -1,3 +1,4 @@
+Ściska się okrąg ptastwa, krzykliwy, ruchawy,\
 Opasany gołębi sznurem, na kształt wstęgi\
 Białej, środkiem pstrokaty w gwiazdy, w cętki, w pręgi.\
 Tu dzioby bursztynowe, tam czubki z korali\
