@@ -1,3 +1,4 @@
+Jak dwie strzały złożone na jednej cięciwie.\
 Wtem Wojski krzyknął: «Wyczha!» Zając smyk zza płotu\
 Na łąkę; charty za nim; i wnet bez obrotu\
 Sokół i Kusy razem spadli na szaraka\
