@@ -1,3 +1,4 @@
+A sam się z placką muszą do sadu wyprawił.\
 Depcąc, świszcząc i klaszcząc, bardzo zwierza trwoży;\
 Szczwacze, trzymając każdy charta na obroży,\
 Ukazują palcami, skąd zając wyruszy,\
