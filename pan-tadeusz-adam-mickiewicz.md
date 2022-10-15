@@ -1,3 +1,4 @@
+Poszedł więc z nim dla rady tudzież dla obrony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś miejsce Gerwazego, najdalsze od progu,\
 Między dwiema ławami, w samym karczmy rogu,\
