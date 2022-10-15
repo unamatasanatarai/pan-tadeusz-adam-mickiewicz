@@ -1,3 +1,4 @@
+Wstrząsając koralowe na głowach szyszaki\
 I wiosłując skrzydłami przez bruzdy i krzaki,\
 Szeroko wyciągają ostrożaste pięty;\
 Za nimi z wolna indyk sunie się odęty\
