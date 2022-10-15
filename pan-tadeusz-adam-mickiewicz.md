@@ -1,3 +1,4 @@
+Terajewicza znałem, co idąc na dziki,\
 Nie brał nigdy innego oręża prócz piki;\
 Budrewicza, co chodził z niedźwiedziem w zapasy:\
 Takich mężów widziały niegdyś nasze lasy!\
