@@ -1,3 +1,4 @@
+Patrząc we drzwi kaplicy, odkrywają głowy.\
 Włos litewskiego ludu, biały albo płowy,\
 Pozłacał się jako łan dojrzałego żyta;\
 Gdzieniegdzie kraśna główka dziewicza wykwita,\
