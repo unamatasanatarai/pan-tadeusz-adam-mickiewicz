@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem znowu głowę z wolna podniósł Maciej stary,\
 I zaczęły cokolwiek uciszać się gwary:\
 «Nie drwijcie — rzekł — z Robaka; znam go, to ćwik klecha,\
