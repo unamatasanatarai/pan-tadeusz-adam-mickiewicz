@@ -1,3 +1,4 @@
+Ustąpił z placu bitwy? Brzechalski Protazy.\
 On, za krzesłem Sędziego stojąc niewzruszenie,\
 Ciągnął woźnieńskim głosem swoje oświadczenie,\
 Aż skończył i z pustego zszedł pobojowiska,\
