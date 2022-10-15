@@ -1,3 +1,4 @@
+Może troszeczką sławy me imię ozdobię,\
 Może wkrótce w ojczyste wrócim okolice;\
 Wtenczas, stryju, wspomnę ci twoje obietnice,\
 Wtenczas na klęczkach drogą powitam Zosienkę\
