@@ -1,3 +1,4 @@
+Twoja powieść, Gerwazy, zajęła mię mocno.\
 Szkoda, żeś mię nie przywiódł tu w godzinę nocną;\
 Udrapowany płaszczem, siadłbym na ruinach,\
 A ty byś mi o krwawych rozpowiadał czynach.\
