@@ -1,3 +1,4 @@
+Zaplątaj dobrze węzeł, końce wsadź do wody.\
 Raportu nie podamy, tak się nikt nie dowie.\
 Bóg dał ręce żeby brać: to ruskie przysłowie».
 
