@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Widzi siostra — rzekł Sędzia, skrobiąc smutnie głowę —\
 Chciałbym bardzo: cóż, kiedy mam trudności nowe!\
 Pan Jacek nie wypuszcza z opieki swej syna,\
 I przysłał mi tu właśnie na kark bernardyna\
