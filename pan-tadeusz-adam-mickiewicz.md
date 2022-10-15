@@ -1,3 +1,4 @@
+Jutro jadę, zrobiłem już postanowienie,\
 I dalbóg, Telimeno, już go nie odmienię».\
 «Ja — rzekła Telimena — nie chcę ci zagradzać\
 Drogi do sławy, szczęściu twojemu przeszkadzać!\
