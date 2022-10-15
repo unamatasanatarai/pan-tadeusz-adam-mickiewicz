@@ -1,3 +1,4 @@
+Że nam z wiosną swobody zorza zajaśnieje\
 I Litwa, co was teraz żegna jak tułaczy,\
 Wkrótce jako zwycięskich swych zbawców zobaczy.\
 Sędzia wszystko, co trzeba, zgotuje na drogę\
