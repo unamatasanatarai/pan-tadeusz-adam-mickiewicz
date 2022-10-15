@@ -1,3 +1,4 @@
+Dla dobra powszechnego: to pierwsza ustawa,\
 Z której jako ze źródła płyną wszystkie prawa.\
 Widzimy tedy, że rząd umową się tworzy,\
 Nie pochodząc, jak mylnie sądzę, z woli Bożej.\
