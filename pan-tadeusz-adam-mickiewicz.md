@@ -1,3 +1,4 @@
+Dobrze na koniu jeździł, pieszo dzielnie chodził,\
 Tępy nie był, lecz mało w naukach postąpił,\
 Choć stryj na wychowanie niczego nie skąpił;\
 On wolał z flinty strzelać albo szablą robić.\
