@@ -1,3 +1,4 @@
+Wołowe, sarnie, combry dzicze i jelenie;\
 Ci skubią stosy ptastwa, lecą puchów chmury,\
 Obnażają się głuszce, cietrzewie i kury.\
 Lecz kur niewiele było: od owej wyprawy,\
