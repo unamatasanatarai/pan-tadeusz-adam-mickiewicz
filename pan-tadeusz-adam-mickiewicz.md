@@ -1,3 +1,4 @@
+Jeśli palce trafią się, da afirmatywę,\
 A jeżeli się chybią, rzuci negatywę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na lewej druga scena; refektarz klasztoru\
