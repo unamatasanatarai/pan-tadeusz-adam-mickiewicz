@@ -1,3 +1,4 @@
+Panegiryk ogromny, w półtrzecia arkusza.\
 Skomponował go rymem podoficer młody,\
 Który niegdyś w stolicy sławne pisał ody;\
 Potem wdział mundur, lecz i w wojsku beletrysta,\
