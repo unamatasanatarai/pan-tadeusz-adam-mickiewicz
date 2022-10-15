@@ -1,3 +1,4 @@
+Ja byłem sekundantem; jak się wszystko działo,\
 Opowiem od początku historyję całą...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nim Wojski zaczął mówić, Gerwazy spór zgodził.\
