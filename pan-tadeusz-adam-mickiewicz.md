@@ -1,3 +1,4 @@
+Zdawały się naradzać, oskarżać nawzajem.\
 Wreszcie wracają, z wolna skacząc przez zagony,\
 Spuściły uszy, tulą do brzucha ogony\
 I przybiegłszy, ze wstydu nie śmieją wznieść oczu,\
