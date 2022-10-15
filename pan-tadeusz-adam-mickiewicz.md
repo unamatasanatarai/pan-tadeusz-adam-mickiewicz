@@ -1,3 +1,4 @@
+Tym łacniej, że wódz wzięty i pierzchła załoga;\
 Lecz zdobywcy chcą bić się, wyszukują wroga.\
 Do domu niewpuszczeni biegą do folwarków,\
 Do kuchni. Gdy do kuchni weszli, widok garków,\
