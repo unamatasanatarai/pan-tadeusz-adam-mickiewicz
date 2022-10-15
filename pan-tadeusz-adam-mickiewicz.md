@@ -1,3 +1,4 @@
+Bo w graniu była łowów historyja krótka:\
 Zrazu odzew dźwięczący, rześki — to pobudka;\
 Potem jęki po jękach skomlą — to psów granie;\
 A gdzieniegdzie ton twardszy jak grzmot — to strzelanie.
