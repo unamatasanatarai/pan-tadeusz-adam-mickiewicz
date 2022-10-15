@@ -1,3 +1,4 @@
+«Jest — rzekł porucznik — kilku innych rodem z Litwy,\
 Jeden żołnierz znajomy pod imieniem Brzytwy\
 I drugi co z tromblonem jeździ na flankiery;\
 Są także w pułku strzelców dwa grenadyjery\
