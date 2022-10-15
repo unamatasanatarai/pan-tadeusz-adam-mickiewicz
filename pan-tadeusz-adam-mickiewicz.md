@@ -1,3 +1,4 @@
+W kąt.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Z kąta, kędy wisiał portret nieboszczyka,\
 Ostatniego z rodziny Horeszków Stolnika,\
