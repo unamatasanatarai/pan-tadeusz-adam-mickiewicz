@@ -1,3 +1,4 @@
+Więc wracali do domu oznajmić za stołem,\
 Że się skończył spór między Kusym i Sokołem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Była wieść, że zająca tego Wojski w domu\
