@@ -1,3 +1,4 @@
+Świecą się pod lipami twoje ściany białe,\
 Jeśli tam dotąd szlachty sąsiedzkiej gromada\
 Za gościnnymi stoły Sędziego zasiada:\
 Pewnie tam piją często za Konewki zdrowie;\
