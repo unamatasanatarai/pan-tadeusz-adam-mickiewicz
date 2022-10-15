@@ -1,3 +1,4 @@
+Jak ojce żyły w raju, tak dziś żyją wnuki,\
 Dzikie i swojskie razem, w miłości i zgodzie,\
 Nigdy jeden drugiego nie kąsa ni bodzie.\
 Nawet gdyby tam człowiek wpadł, chociaż niezbrojny,\
