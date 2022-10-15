@@ -1,3 +1,4 @@
+Na *Sito*, ni na *Smoka*, ani też na *Szale*.\
 Dziś oczy i myśl wszystkich pociąga do siebie\
 Nowy gość dostrzeżony niedawno na niebie:\
 Był to kometa pierwszej wielkości i mocy.\
