@@ -1,3 +1,4 @@
+A przecież się uwalniał; wiedział o sposobie\
 Rwania więzów, był silny bardzo, ufał sobie.\
 Przemyślał ratować się milczkiem. Oczy zmrużył,\
 Niby śpi; z wolna ręce i nogi przedłużył,\
