@@ -1,3 +1,4 @@
+Głowa do włosów, włosy pozwijane w kręgi,\
 W pukle, i przeplatane różowymi wstęgi,\
 Pośród nich brylant, niby zakryty od oczu,\
 Świecił się jako gwiazda w komety warkoczu:\
