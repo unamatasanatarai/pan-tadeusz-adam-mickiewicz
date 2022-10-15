@@ -1,3 +1,4 @@
+Jeśli nie chcesz zgodzić się? Wszakże dałeś słowo\
 Załatwić tę rzecz».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Prawda, słowo dam na nowo —\
