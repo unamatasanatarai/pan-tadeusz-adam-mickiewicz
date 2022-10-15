@@ -1,3 +1,4 @@
+Jeśli Soplicowskiej krwi kroplę w żyłach macie,\
 Uważ tylko: Francuzi uderzają z przodu...\
 A gdyby z tyłu zrobić powstanie narodu?\
 Co myślisz? Niech no Pogoń zarży, niech na Żmudzi\
