@@ -1,3 +1,4 @@
+Mężczyznom dano wódkę; za czym wszyscy siedli,\
 I chłodnik zabielany milcząc żwawo jedli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po chłodniku szły raki, kurczęta, szparagi,\
