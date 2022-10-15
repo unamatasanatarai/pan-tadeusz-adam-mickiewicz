@@ -1,3 +1,4 @@
+Kończył nauki, końca doczekał nareszcie.\
 Wbiega i okiem chciwie ściany starodawne\
 Ogląda czule, jako swe znajome dawne.\
 Też same widzi sprzęty, też same obicia,\
