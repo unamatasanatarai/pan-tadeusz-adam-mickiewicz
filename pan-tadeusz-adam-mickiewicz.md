@@ -1,3 +1,4 @@
+Gościnnego Sędziego również to obchodzi;\
 Wojski zaś, uważając że tak wszyscy milczą,\
 Nazywał tę wieczerzę nie polską, lecz wilczą.
 
