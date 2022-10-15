@@ -1,3 +1,4 @@
+Ustępuje ze swego, jeszcze grzywny płaci.\
 Ma proces z Hrabią: cóż stąd? obadwa bogaci;\
 Niechaj pan drze się z panem: cóż to do nas, braci?\
 Pan Sędzia ciemiężyciel! On pierwszy zabraniał,\
