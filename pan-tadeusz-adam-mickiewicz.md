@@ -1,3 +1,4 @@
+Dobry dla Prus, a u mnie jest rozum szlachecki.\
 To wiem: że kto chce bić się, niech Kropidło chwyta;\
 Kto umierać, ten księdza niech woła, i kwita!\
 Ja chcę żyć, bić! Bernardyn po co? czy my żaki?\
