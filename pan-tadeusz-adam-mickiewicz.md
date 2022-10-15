@@ -1,3 +1,4 @@
+Rozmowy: «Panna mieszka tu? blisko ogrodu?\
 Czy na wsi? Jak to było, żem panny we dworze\
 Nie widział? czy niedawno tu? przyjezdna może?»\
 Dziewczę wstrząsnęło głową. — «Przepraszam, panienko,\
