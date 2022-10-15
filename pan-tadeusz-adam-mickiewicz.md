@@ -1,3 +1,4 @@
+Panienki za wysmukłym gonią *borowikiem*,\
 Którego pieśń nazywa grzybów pułkownikiem.\
 Wszyscy dybią na *rydza*; ten wzrostem skromniejszy\
 I mniej sławny w piosenkach, za to najsmaczniejszy,\
