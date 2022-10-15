@@ -1,3 +1,4 @@
+Coraz ku Telimenie groźnym okiem błyśnie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena nie mogła pojąć, co to znaczy;\
 Ruszywszy ramionami, myśliła: dziwaczy!\
