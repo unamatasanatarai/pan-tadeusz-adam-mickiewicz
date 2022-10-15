@@ -1,3 +1,4 @@
+Znaleźć się, spodziewam się, że umiesz: w stolicy\
 Urosłaś; choć dwa lata mieszkasz w okolicy,\
 Nie zapomniałaś jeszcze całkiem Petersburka.\
 No, Zosiu, toaletę rób, dostań tam z biurka,\
