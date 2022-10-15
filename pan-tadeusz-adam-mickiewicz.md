@@ -1,3 +1,4 @@
+W którą chłopiec zarzuca źrebcom dzięcielinę.\
 W kuchni kilka rapierów kucharka bezbożna\
 Odhartowała, kładąc je w piec zamiast rożna;\
 Buńczukiem, łupem z Wiednia, otrzepywa żarna:\
