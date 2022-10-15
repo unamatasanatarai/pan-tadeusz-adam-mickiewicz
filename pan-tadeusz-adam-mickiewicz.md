@@ -1,3 +1,4 @@
+Tak nie chcą znać człowieka rodu, obyczajów!\
 Dość, że ważny i że się stempel na nim widzi,\
 Więc szanują przyjaciół jak pieniądze Żydzi».
 
