@@ -1,3 +1,4 @@
+Po dwakroć Wojski machnął, zdziwił się, że chybił,\
 Trzeci raz machnął, tylko co okna nie wybił;\
 Aż mucha, odurzona od tyla łoskotu,\
 Widząc dwóch ludzi w progu broniących odwrotu,\
