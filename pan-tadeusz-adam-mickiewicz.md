@@ -1,3 +1,4 @@
+Bieży na prawe skrzydło, gdzie niebezpieczeństwo\
 Nowe grozi Maćkowi. Śmierci Gifrejtera\
 Mszcząc się, Proporszczyk z długim szpontonem naciera\
 (Szponton, jest to zarazem dzida i siekiera;\
