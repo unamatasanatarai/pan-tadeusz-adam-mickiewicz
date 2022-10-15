@@ -1,3 +1,4 @@
+Aż wyskoczył z łopuchu. Spojrzała — stał blisko,\
 O cztery grzędy od niej, i kłaniał się nisko.\
 Już głowę odwróciła i wzniosła ramiona,\
 I zrywała się lecieć jak kraska spłoszona,\
