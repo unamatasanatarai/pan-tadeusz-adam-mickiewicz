@@ -1,3 +1,4 @@
+Ja tylko mam słów parę przemówić do gminy,\
 W rzeczy, która się tycze Sopliców rodziny,\
 Tutejszych panów.
 
