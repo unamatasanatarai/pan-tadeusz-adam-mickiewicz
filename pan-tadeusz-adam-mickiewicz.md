@@ -1,3 +1,4 @@
+Żyje dotąd i z swoich bogactw się przechwala,\
 Zamku Horeszków tyka swych kopców krawędzią,\
 Szanowany w powiecie, ma urząd, jest Sędzią!\
 I pan mu zamek oddasz? Niecne jego nogi\
