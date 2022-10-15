@@ -1,3 +1,4 @@
+Psy powróciły same i nikt pewnie nie wie,\
 Czy zwierz uszedł, czy wzięty; nikt zgadnąć nie zdoła,\
 Czy wpadł w paszczę Kusego, czyli też Sokoła,\
 Czyli obydwu razem: różnie sądzą strony,\
