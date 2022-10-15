@@ -1,3 +1,4 @@
+Moskalów od Polaków rozróżnić nie umie,\
 Woła: «Stroj się!» (co znaczy: formuj się do szyku)\
 Ale komendy jego nie słychać śród krzyku.
 
