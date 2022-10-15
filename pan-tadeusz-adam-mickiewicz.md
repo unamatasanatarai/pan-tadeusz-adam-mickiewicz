@@ -1,3 +1,4 @@
+Świeżą hańbę swych chartów mieli na pamięci.\
 W oczach im stoi niecny kot: skoki wyciąga,\
 I omykiem spod gaju kiwając urąga,\
 I tym omykiem ćwiczy po sercach jak biczem...\
