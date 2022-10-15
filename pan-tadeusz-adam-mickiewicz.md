@@ -1,3 +1,4 @@
+Tu mówca musi łowić za pasy słuchaczy.\
 Patrzcie, wyrywają się i cofają uszy;\
 Patrzcie, jako ten słuchacz od gniewu się puszy,\
 Wzniósł ręce, grozi mówcy, usta mu zatyka,\
