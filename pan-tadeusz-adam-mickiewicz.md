@@ -1,3 +1,4 @@
+Słudzy czekają, nim się pan Wojski ubierze,\
 Który teraz za domem urządzał wieczerzę.\
 On pana zastępuje i on, w niebytności\
 Pana, zwykł sam przyjmować i zabawiać gości\
