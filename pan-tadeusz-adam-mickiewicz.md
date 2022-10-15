@@ -1,3 +1,4 @@
+Siadam za stół, i proszę wszystkich za mną siadać\
 Majorze, gdyby zrazów? panie poruczniku,\
 Co myślisz? gdyby wazę dobrego ponczyku?»
 
