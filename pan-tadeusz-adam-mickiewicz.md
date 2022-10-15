@@ -1,3 +1,4 @@
+Zwała się Kokosznicka, z domu Jendykowi-\
 czówna. Jej wynalazek epokę stanowi\
 W domowym gospodarstwie; dziś powszechnie znany,\
 Lecz w owych czasach jeszcze za nowość podany,\
