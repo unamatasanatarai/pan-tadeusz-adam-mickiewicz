@@ -1,3 +1,4 @@
+Wtenczas — dębowym liściem uwieńczeni,\
 Rzuciwszy miecze, siędą rozbrojeni\
 Rycerze nasi, zechcą słuchać o przeszłości!\
 Wtenczas zapłaczą nad ojców losami,\
