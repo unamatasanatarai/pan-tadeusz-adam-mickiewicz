@@ -1,3 +1,4 @@
+Nieszczęściem, trącił krzaki suchego agrestu:\
 Ogrodniczka, jak gdyby zlękła się szelestu,\
 Oglądała się wkoło, lecz nic nie spostrzegła;\
 Przecież ku drugiej stronie ogrodu pobiegła.\
