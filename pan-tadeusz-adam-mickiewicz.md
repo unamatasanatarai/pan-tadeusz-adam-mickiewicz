@@ -1,3 +1,4 @@
+Znam ja dobrze Rosyją. Państwo nie wierzyli,\
 Gdy im nieraz mówiłam, jak tam z wielu względów\
 Godna pochwały czujność i srogość urzędów.\
 Byłam ja w Petersburku, nie raz, nie dwa razy!\
