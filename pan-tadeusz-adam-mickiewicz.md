@@ -1,3 +1,4 @@
+Sarkając na gderanie swej krzykliwej żony;\
 Ówdzie pawie jak tratwy długimi ogony\
 Sterują się po łące, a gdzieniegdzie z góry\
 Upada jak kiść śniegu gołąb srebrnopióry.\
