@@ -1,3 +1,4 @@
+Około nich na drzewach gnieździ się Ryś bystry\
 I żarłoczny Rosomak jak czujne ministry;\
 Dalej zaś, jak podwładni szlachetni wasale,\
 Mieszkają Dziki, Wilki i Łosie rogale.\
