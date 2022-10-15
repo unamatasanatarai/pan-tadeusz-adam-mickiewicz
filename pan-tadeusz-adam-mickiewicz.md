@@ -1,3 +1,4 @@
+Zamek w ręku Horeszków był przez lat czterysta;\
 Część gruntów oderwano w czasie Targowicy,\
 I jak pan wie, oddano władaniu Soplicy.\
 Nie tylko tę część, wszystko zabrać im należy,\
