@@ -1,3 +1,4 @@
+Chociaż Żyd, dosyć czystą miał polską wymowę,\
 Szczególniej zaś polubił pieśni narodowe;\
 Przywoził mnóstwo z każdej za Niemen wyprawy,\
 Kołomyjek z Halicza, mazurów z Warszawy;\
