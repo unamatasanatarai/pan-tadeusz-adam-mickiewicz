@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Broniliście się, ty wiesz, dzielnie i przytomnie.\
 Zdziwiłem się. Moskale padali wkoło mnie.\
 Bydlęta, źle strzelają! Na widok ich klęski\
 Złość mię znowu porwała. — Ten Stolnik zwycięski!\
