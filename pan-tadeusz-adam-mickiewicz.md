@@ -1,3 +1,4 @@
+Walczmy, kto kogo czuciem miłości wyścignie!\
 Zostawim oba drogie serc naszych przedmioty,\
 Pośpieszymy obadwa na miecze, na groty;\
 Walczmy z sobą stałością, żalem i cierpieniem,\
