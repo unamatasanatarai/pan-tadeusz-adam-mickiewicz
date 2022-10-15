@@ -1,3 +1,4 @@
+Wyzywaj!» «Zamek — wołał Klucznik — wieś i ziemie\
 Zabieraj pan». To mówiąc, zwrócił się do Hrabi:\
 «Jeśli pan chce mieć pokój, niech wszystko zagrabi.\
 Po co proces, mopanku! sprawa jak dzień czysta:\
