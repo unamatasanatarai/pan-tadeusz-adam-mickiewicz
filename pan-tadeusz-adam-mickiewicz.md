@@ -1,3 +1,4 @@
+Ulżyły Tadeusza sercu te wyznania.\
 Wiele też innych rzeczy sobie oświadczyli;\
 A wszystko to się stało w jednej krótkiej chwili.
 
