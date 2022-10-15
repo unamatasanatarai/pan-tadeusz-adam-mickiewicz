@@ -1,3 +1,4 @@
+Chwiał się. Wojski z obliczem nabrzmiałym, promiennym,\
 Z oczyma wzniesionymi, stał jakby natchniony,\
 Łowiąc uchem ostatnie znikające tony.\
 A tymczasem zagrzmiało tysiące oklasków,\
