@@ -1,3 +1,4 @@
+Słyszałeś pewnie, o czym już gadają wszędzie,\
 O czym ja wiadomostki przynosiłem nieraz:\
 Teraz czas już powiedzieć wszystko, czas już teraz!\
 Ważne rzeczy, mój bracie! Wojna tuż nad nami!\
