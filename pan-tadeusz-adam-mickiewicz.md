@@ -1,3 +1,4 @@
+Wtem Zosieńka, nad ptastwem litością wzruszona,\
 Podbiegła i nakryła rączką te rycerze;\
 Jeszcze się w ręku bili, aż leciało pierze,\
 Taka była zawziętość w tym maleńkim lichu.\
