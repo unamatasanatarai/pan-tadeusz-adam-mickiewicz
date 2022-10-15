@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, choć utrudzony, chociaż w gronie gości,\
 Nie chybił gospodarskiej, ważnej powinności:\
 Udał się sam ku studni. Najlepiej z wieczora\
