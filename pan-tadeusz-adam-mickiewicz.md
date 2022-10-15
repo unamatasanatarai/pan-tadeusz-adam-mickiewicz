@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Wtem, gałąź wstrząsła się trącona,\
 I pomiędzy jarzębin rozsunione grona\
 Kraśniejsze od jarzębin zajaśniały lica:\
