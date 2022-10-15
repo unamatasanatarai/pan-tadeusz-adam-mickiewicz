@@ -1,3 +1,4 @@
+Małe jeziorka, trawą zarosłe na poły,\
 Tak głębokie, że ludzie dna ich nie dośledzą\
 (Wielkie jest podobieństwo, że diabły tam siedzą).\
 Woda tych studni sklni się, plamista rdzą krwawą,\
