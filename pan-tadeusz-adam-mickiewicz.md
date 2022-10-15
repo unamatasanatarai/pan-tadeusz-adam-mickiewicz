@@ -1,3 +1,4 @@
+Każdy dumał i rzucał dokoła wejrzenie,\
 Jak gdyby kogoś szukał; z wolna wszystkich oczy\
 Sędziwa twarz Wojskiego ciągnie i jednoczy:\
 Znak to był, że szukają na przyszłą wyprawę\
