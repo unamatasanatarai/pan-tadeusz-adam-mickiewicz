@@ -1,3 +1,4 @@
+Ogląda czule, jako swe znajome dawne.\
 Też same widzi sprzęty, też same obicia,\
 Z którymi się zabawiać lubił od powicia,\
 Lecz mniej wielkie, mniej piękne niż się dawniej zdały.\
