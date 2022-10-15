@@ -1,3 +1,4 @@
+Bernardyn zmówił krótki pacierz po łacinie;\
 Podano w kolej wódkę: za czym wszyscy siedli,\
 I chołodziec litewski milczkiem żwawo jedli.
 
