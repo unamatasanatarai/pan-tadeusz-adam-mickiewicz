@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Szczęściem, nikt nie uważał; bo dotychczasowa\
 Żywa, głośna, lecz dosyć porządna rozmowa\
 Zakończyła się nagłym wybuchem hałasu.\
 Jak strzelcy, gdy na lisa zaciągną do lasu,\
