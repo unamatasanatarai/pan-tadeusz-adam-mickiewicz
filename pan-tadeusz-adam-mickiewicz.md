@@ -1,3 +1,4 @@
+Długą rozmową, w której nie mógł brać udziału.\
 Aż, gdy zaczęto sławić cudzoziemskie gaje,\
 I wyliczać z kolei wszystkich drzew rodzaje:\
 Pomarańcze, cyprysy, oliwki, migdały,\
