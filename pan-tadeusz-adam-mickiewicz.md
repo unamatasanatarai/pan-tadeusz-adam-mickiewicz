@@ -1,3 +1,4 @@
+Że mnie poznał i ku mnie rękę tak wyciągał,\
 Szydząc i grożąc... Chwytam karabin Moskala,\
 Ledwiem przyłożył, prawie nie mierzył — wypala!\
 Wiesz!...
