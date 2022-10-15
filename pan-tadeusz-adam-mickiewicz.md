@@ -1,3 +1,4 @@
+A kiedy będzie ważnym osobom znajomy,\
 Dostanie urząd, order; wtenczas niech porzuci\
 Służbę, jeżeli zechce, niech do domu wróci,\
 Mając już i znaczenie, i znajomość świata.\
