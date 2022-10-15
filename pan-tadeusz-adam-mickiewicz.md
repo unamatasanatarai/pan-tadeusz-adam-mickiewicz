@@ -1,3 +1,4 @@
+Czy nie najlepiej w puszczę, do chaty leśnika?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Robak kiwając głową rzekł: «Do jutra rana\
 Mam czas. Teraz, mój bracie, poślij do plebana,\
