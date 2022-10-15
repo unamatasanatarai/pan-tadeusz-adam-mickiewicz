@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wewnątrz samego domu, w stajni i wozowni,\
 Pełno znajdziesz rynsztunków, jak w starej zbrojowni.\
 Pod dachem wiszą cztery ogromne szyszaki,\
 Ozdoby czół marsowych: dziś Wenery ptaki,\
