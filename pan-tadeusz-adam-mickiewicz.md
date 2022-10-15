@@ -1,3 +1,4 @@
+Pan wyzwałeś Majora! Ja do Kapitana\
 Mam dawniejszą urazę: on do zamku mego...»\
 («Mów pan — przerwał Protazy — do zamku naszego»)\
 «On wpadł — rzekł kończąc Hrabia — na czele złodziejów,\
