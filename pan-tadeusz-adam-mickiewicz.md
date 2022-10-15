@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;I znowu cichość w dole. Dzięcioł na jedlinie\
 Stuka z lekka i dalej odlatuje, ginie,\
 Schował się, ale dziobem nie przestaje pukać,\
