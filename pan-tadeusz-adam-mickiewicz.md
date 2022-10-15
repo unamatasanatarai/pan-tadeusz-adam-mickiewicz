@@ -1,3 +1,4 @@
+Jako wódz gospodarstwa obmyśla wyprawę\
 W pole i w domu przyszłą urządza zabawę.\
 Dał rozkaz ekonomom, wójtom i gumiennym,\
 Pisarzom, ochmistrzyni, strzelcom i stajennym\
