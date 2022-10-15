@@ -1,3 +1,4 @@
+«Jeszcze — szepnęła — Rejent nie wziął mię za żonę;\
 Jeżeli pan przeszkadzasz, odpowiedzże na to,\
 A odpowiedz mi zaraz, krótko, węzłowato:\
 Czy mnie kochasz, czyś dotąd serca nie odmienił,\
