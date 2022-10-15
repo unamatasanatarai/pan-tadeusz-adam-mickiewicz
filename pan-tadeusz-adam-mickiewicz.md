@@ -1,3 +1,4 @@
+(Taki rosół krew czyści i pokrzepia zdrowie);\
 Dalej inne potrawy, a któż je wypowie!\
 Kto zrozumie nieznane już za naszych czasów,\
 Te półmiski kontuzów, arkasów, blemasów,\
