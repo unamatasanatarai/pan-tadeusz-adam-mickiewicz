@@ -1,3 +1,4 @@
+Częstując się nawzajem, toczą rozhowory.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tak, tak, mój Protazeńku» rzekł Klucznik Gerwazy.\
 «Tak, tak, mój Gerwazeńku» rzekł Woźny Protazy.\
