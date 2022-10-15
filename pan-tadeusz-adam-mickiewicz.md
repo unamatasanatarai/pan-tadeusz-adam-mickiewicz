@@ -1,3 +1,4 @@
+Jak on mnie ściskał! Wszyscy, którzy to widzieli,\
 Myślili, że on ze mną duszą się podzieli...\
 On przyjaciel?... On wiedział, co się wtenczas działo\
 W duszy mojej!...
