@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Panno święta, co Jasnej bronisz Częstochowy\
 I w Ostrej świecisz Bramie! Ty, co gród zamkowy\
 Nowogródzki ochraniasz z jego wiernym ludem!\
 Jak mnie dziecko do zdrowia powróciłaś cudem\
