@@ -1,3 +1,4 @@
+Chciałbym bardzo: cóż, kiedy mam trudności nowe!\
 Pan Jacek nie wypuszcza z opieki swej syna,\
 I przysłał mi tu właśnie na kark bernardyna\
 Robaka, który przybył z tamtej strony Wisły,\
