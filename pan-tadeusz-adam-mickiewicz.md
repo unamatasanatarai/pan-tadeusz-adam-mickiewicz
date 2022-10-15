@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Poloneza czas zacząć. — Podkomorzy rusza\
 I z lekka zarzuciwszy wyloty kontusza,\
 I wąsa pokręcając, podał rękę Zosi\
 I skłoniwszy się grzecznie w pierwszą parę prosi.\
