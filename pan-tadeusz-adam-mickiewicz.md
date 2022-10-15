@@ -1,3 +1,4 @@
+Oba ludzie uczciwi, szlachta z prapradziadów,\
 Mieszkali po dwóch stronach nad rzeką Wilejką,\
 Jeden zwał się Domejko, a drugi Dowejko.\
 Do niedźwiedzicy oba razem wystrzelili:\
