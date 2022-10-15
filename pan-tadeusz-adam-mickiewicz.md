@@ -1,3 +1,4 @@
+Zbrojną, myśli, że zbójcy, aż Hrabię poznaje.\
 «Co to jest?» pyta. Hrabia szpadą nad nim mignął,\
 Lecz widząc bezbronnego w zapale ostygnął:\
 «Soplico — rzekł — odwieczny wrogu mej rodziny,\
