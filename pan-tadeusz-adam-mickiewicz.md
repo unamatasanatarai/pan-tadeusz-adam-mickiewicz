@@ -1,3 +1,4 @@
+Z folwarku niedostępną zrobiła fortecę.\
 O tym więc, co się działo w obozie Soplicy,\
 Dziś nie mogła rozejść się wieść po okolicy,\
 A właśnie zawisł szlachty los od tajemnicy.
