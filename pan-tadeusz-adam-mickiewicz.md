@@ -1,3 +1,4 @@
+Lekkie i ciche; kilka cienkich strunek jęczy,\
 Jak kilka much, gdy z siatki wyrwą się pajęczéj.\
 Lecz strun coraz przybywa: Już rozpierzchłe tony\
 Łączą się i akordów wiążą legijony,\
