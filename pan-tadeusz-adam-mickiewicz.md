@@ -1,3 +1,4 @@
+Poznałem tego łotra Soplicę! poznałem!\
 Po wzroście i po wąsach! Jego to postrzałem\
 Zginął Stolnik, widziałem! Łotr jeszcze do góry\
 Wzniesioną trzymał strzelbę, jeszcze dym szedł z rury!\
