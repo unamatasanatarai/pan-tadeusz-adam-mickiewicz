@@ -1,3 +1,4 @@
+I czeka słońca. Kędyś, u brzegów kałuży,\
 Klekce bocian. Na kopach siedzą wrony zmokłe,\
 Rozdziawiwszy się ciągną gawędy rozwlokłe;\
 Obrzydłe gospodarzom jako wróżby słoty.\
