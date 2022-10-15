@@ -1,3 +1,4 @@
+Mężczyznom dano wódkę; wtenczas wszyscy siedli,\
 I chołodziec litewski milcząc żwawo jedli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Tadeusz, choć młodzik, ale prawem gościa\
