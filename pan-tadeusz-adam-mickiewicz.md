@@ -1,3 +1,4 @@
+Dalej Jasiński, młodzian piękny i posępny;\
 Obok Korsak, towarzysz jego nieodstępny:\
 Stoją na szańcach Pragi, na stosach Moskali,\
 Siekąc wrogów, a Praga już się wkoło pali.\
