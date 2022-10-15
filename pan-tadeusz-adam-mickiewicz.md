@@ -1,3 +1,4 @@
+I zwycięzca, wydartych potomkom cezarów\
 Rzucił w oczy Francuzów sto krwawych sztandarów,\
 Jak Jabłonowski zabiegł, aż kędy pieprz rośnie,\
 Gdzie się cukier wytapia i gdzie w wiecznej wiośnie\
