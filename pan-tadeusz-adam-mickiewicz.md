@@ -1,3 +1,4 @@
+Na którym wisiał gruby zegarek jak gruszka:\
 «Jutro — rzekł — pół do piątej, przy leśnej kaplicy\
 Stawią się bracia strzelcy, wiara obławnicy».
 
