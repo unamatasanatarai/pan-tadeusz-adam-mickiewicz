@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Po chłodniku szły raki, kurczęta, szparagi,\
 W towarzystwie kielichów węgrzyna, malagi.\
 Jedzą, piją, a milczą wszyscy. Nigdy pono,\
 Od czasu jako mury zamku podźwigniono,\
