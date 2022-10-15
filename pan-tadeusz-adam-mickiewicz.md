@@ -1,3 +1,4 @@
+I pobiegł w pole szybko, jakby go kto łowił.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem na Wojskiego rozkaz pęki wrzosu,\
 Suche chrusty i pniaki rzucono do stosu.\
