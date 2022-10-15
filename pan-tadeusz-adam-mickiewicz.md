@@ -1,3 +1,4 @@
+Posłowi Rejtanowi i księciu Denassów».
 
 &nbsp;&nbsp;&nbsp;&nbsp;A wtem ozwał się Sędzia nalewając czaszę:\
 «Piję zdrowie Robaka, Wojski, w ręce wasze!\
