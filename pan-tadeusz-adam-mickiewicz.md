@@ -1,3 +1,4 @@
+Jeśli nie prawda, żem cię, dalbóg, bardzo lubił,\
 Czy kochał. Krótkie z sobą spędziliśmy chwile,\
 Ale one mnie przeszły tak słodko, tak mile,\
 Że będą długo, zawsze myśli mej przytomne,\
