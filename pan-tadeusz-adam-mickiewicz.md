@@ -1,3 +1,4 @@
+Nawet dla Żydów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Hrabski koń, zwrócony z drogi,\
 Prosto kłusował polem aż pod zamku progi.\
