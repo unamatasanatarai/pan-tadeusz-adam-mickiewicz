@@ -1,3 +1,4 @@
+Po drodze zwiedzał szlachtę, już to dla zabawy,\
 Już dla popularności; wstąpił więc do pana\
 Tadeusza, dziś świętej pamięci, Rejtana,\
 Który był potem naszym nowogrodzkim posłem\
