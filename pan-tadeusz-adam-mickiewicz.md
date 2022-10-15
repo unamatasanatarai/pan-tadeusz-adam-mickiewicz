@@ -1,3 +1,4 @@
+Skradał się, lub zamknąwszy oczy siadał marzyć;\
 W dzień szukał rozmów, w nocy musiano mu gwarzyć\
 Pacierze różańcowe albo gadać bajki.\
 Stąd też nieprzyjacielem zabitym był fajki,\
