@@ -1,3 +1,4 @@
+I ten zamek na łysą głowę mu nie runie?...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pomyśl o zemście, to wnet szatan broń podsunie.\
 Ledwiem pomyślił: szatan nasyła Moskali.\
