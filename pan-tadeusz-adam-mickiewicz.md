@@ -1,3 +1,4 @@
+Szydząc i grożąc... Chwytam karabin Moskala,\
 Ledwiem przyłożył, prawie nie mierzył — wypala!\
 Wiesz!...
 
