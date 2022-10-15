@@ -1,3 +1,4 @@
+Nie chybił gospodarskiej, ważnej powinności:\
 Udał się sam ku studni. Najlepiej z wieczora\
 Gospodarz widzi, w jakim stanie jest obora.\
 Dozoru tego nigdy sługom nie poruczy;\
