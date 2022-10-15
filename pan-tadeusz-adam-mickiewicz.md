@@ -1,3 +1,4 @@
+Przed panem prośbą próżną, nie dostać odmowy,\
 Bo jakież by to były między szlachtą mowy,\
 Gdyby wiedziano, że ja Jacek...
 
