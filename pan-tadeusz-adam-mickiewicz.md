@@ -1,3 +1,4 @@
+Moja Siora powiła małego Jankielka:\
 Ja dziś traktuję wszystkich, a muzyka wielka!\
 Każę przynieść kozice, basetlę, dwie skrzypiec,\
 A pan Maciek Dobrodziej lubi stary lipiec\
