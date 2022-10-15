@@ -1,3 +1,4 @@
+Upuścił drążki z palców, podniósł w górę ręce;\
 Czapka lisia spadła mu z głowy na ramiona,\
 Powiewała poważnie broda podniesiona,\
 Na jagodach miał kręgi dziwnego rumieńca,\
