@@ -1,3 +1,4 @@
+Jak gdyby chciał zaostrzyć ciekawość słuchaczy.\
 Zaczynał wreszcie, kiedy znowu mu przerwano\
 Powieść taką ciekawą, tak pilnie słuchaną!\
 Bo do Sędziego nagle ktoś przysłał człowieka,\
