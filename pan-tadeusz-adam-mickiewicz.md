@@ -1,3 +1,4 @@
+By ją dojrzeć przez okna, w konopie się wkradał,\
 Żeby patrzeć, jak ona pleła swe ogródki,\
 Rwała ogórki albo karmiła kogutki!\
 Niewdzięczna! Spuścił głowę i na koniec świsnął\
