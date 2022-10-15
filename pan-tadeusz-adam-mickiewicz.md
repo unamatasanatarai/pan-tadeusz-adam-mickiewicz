@@ -1,3 +1,4 @@
+I zostało się w domu Sędziego. Więc z gaju\
 Wychodziła gromada, niosąca krobeczki,\
 Koszyki uwiązane końcami chusteczki,\
 Pełne grzybów; a panny w jednym ręku niosły,\
