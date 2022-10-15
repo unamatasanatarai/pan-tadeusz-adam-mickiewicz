@@ -1,3 +1,4 @@
+Myślał o nich i, czyje były, odgadywał.\
 Przypadkiem oczy podniósł, i tuż na parkanie\
 Stała młoda dziewczyna... Białe jej ubranie\
 Wysmukłą postać tylko aż do piersi kryje,\
