@@ -1,3 +1,4 @@
+Kończąc ranne pacierze; ale rzucał okiem\
 Na pana Tadeusza, marszczył się, uśmiechał,\
 Wreszcie kiwnął nań palcem, Tadeusz podjechał;\
 Robak palcem po nosie dawał mu znak groźby:\
