@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wyszła msza. Nie obejmie świątynia maleńka\
 Całego zgromadzenia: lud na trawie klęka;\
 Patrząc we drzwi kaplicy, odkrywają głowy.\
 Włos litewskiego ludu, biały albo płowy,\
