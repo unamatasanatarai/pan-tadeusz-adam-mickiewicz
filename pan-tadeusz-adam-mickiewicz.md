@@ -1,3 +1,4 @@
+I sztućce na podłodze, dalej sztenfle, kurki,\
 I narzędzia ślusarskie, którymi rynsztunki\
 Poprawiano; proch, papier: robiono ładunki.\
 Czy Hrabia z całym dworem wyjechał na łowy?\
