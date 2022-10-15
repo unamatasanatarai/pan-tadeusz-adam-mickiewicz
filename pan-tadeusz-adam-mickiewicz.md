@@ -1,3 +1,4 @@
+Już spotkały się szpady i zaczęły zgrzytać;\
 Rycerze wznosząc nogi, prawymi kolany\
 Przyklękają, w przód i w tył skacząc na przemiany.
 
