@@ -1,3 +1,4 @@
+He, cóż myślisz Macieju, nasz ojcze Króliku?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Skończył. Czekają wszyscy Macieja wyroku.\
 Maciej głowy nie ruszył ani podniósł wzroku,\
