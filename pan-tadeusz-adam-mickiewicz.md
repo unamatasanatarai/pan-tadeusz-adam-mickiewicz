@@ -1,3 +1,4 @@
+Po kim była żałoba, tylko zgadywano\
 W okolicy; i tylko cichy smutek panów,\
 Lub cicha radość, była gazetą ziemianów.
 
