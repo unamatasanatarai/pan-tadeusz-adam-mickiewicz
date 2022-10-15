@@ -1,3 +1,4 @@
+I radości, niestety! ujrzał najwyraźniej,\
 Przypomniał, poznał włos ów krótki, jasnozłoty,\
 W drobne, jako śnieg białe, zwity papiloty,\
 Niby srebrzyste strączki, co od słońca blasku\
