@@ -1,3 +1,4 @@
+Nawet śpią muchy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Wojski, rzuciwszy łopatkę,\
 Znudzony ciszą, idzie pomiędzy czeladkę;\
