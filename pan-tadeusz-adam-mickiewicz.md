@@ -1,3 +1,4 @@
+Podczaszyc, mimo równość, wziął tytuł markiża;\
 Wiadomo, że tytuły przychodzą z Paryża,\
 A natenczas tam w modzie był tytuł markiża.\
 Jakoż, kiedy się moda odmieniła z laty,\
