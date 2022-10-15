@@ -1,3 +1,4 @@
+Gdy mu coś drogę zaszło; spojrzał: widzi marę,\
 Całą w bieliźnie, długą, wysmukłą i cienką.\
 Suwała się ku niemu z wyciągniętą ręką,\
 Od której odbijał się drżący blask miesięczny,\
