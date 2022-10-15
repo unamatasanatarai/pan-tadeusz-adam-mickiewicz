@@ -1,3 +1,4 @@
+Przebóg! naróżowana!
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Czy róż w złym gatunku,\
 Czy jakoś na obliczu przetarł się z trafunku:\
