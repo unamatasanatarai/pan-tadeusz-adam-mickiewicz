@@ -1,3 +1,4 @@
+A szczególniej Dobrzyńscy, i stąd wasza chwała\
 Urosła w Litwie! Wszakże to Dobrzyńscy sami\
 Bili się na zajezdzie myskim z Moskalami,\
 Których przywiódł jenerał ruski Wojniłowicz\
