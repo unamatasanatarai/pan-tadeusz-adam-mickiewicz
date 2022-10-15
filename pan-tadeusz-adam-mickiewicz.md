@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zadął znowu. Myśliłbyś, że róg kształty zmieniał\
 I że w ustach Wojskiego to grubiał, to cieniał,\
 Udając głosy zwierząt: to raz w wilczą szyję\
