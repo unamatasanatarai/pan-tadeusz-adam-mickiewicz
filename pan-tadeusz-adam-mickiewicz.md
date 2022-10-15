@@ -1,3 +1,4 @@
+Rozkrzyżowana, z włosem rozpuszczonym, blada,\
 Pędzi w las, podskakuje, przyklęka, upada,\
 I nie mogąc już powstać, kręci się po darni;\
 Widać z jej ruchów, w jakiej strasznej jest męczarni:\
