@@ -1,3 +1,4 @@
+To miejsce jest zagadką; młodź lubi zagadki;\
 Roztargniony, do swojej nadobnej sąsiadki\
 Ledwo słów kilka wyrzekł, do Podkomorzanki;\
 Nie zmienia jej talerzów, nie nalewa szklanki,\
