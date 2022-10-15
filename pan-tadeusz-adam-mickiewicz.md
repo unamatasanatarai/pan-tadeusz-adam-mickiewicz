@@ -1,3 +1,4 @@
+Ale poczekaj ciociu, niech no się pobawię\
 Trochę z ludźmi, obaczysz, jak się ja poprawię».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Już — rzekła ciotka — z dwojga złego, lepiej z ptastwem,\
