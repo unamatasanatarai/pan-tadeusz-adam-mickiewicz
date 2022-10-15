@@ -1,3 +1,4 @@
+Bo nad ciebie nie miała strzelca Litwa nasza,\
 Byłeś także po Maćku pierwszy do pałasza!\
 Prawda! o tobie niegdyś śpiewały szlachcianki:\
 *Oto Jacek wąs kreci, trzęsą się zaścianki,*\
