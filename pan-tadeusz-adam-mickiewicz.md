@@ -1,3 +1,4 @@
+Nie tak, panowie bracia, w Wielkopolszcze było:\
 Co za duch! co za zgoda! aż przypomnieć miło!\
 Nikt tam podobną fraszką nie śmiał rady mieszać».\
 «To nie fraszka — zawołał Klucznik — łotrów wieszać!»
