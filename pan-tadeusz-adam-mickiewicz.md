@@ -1,3 +1,4 @@
+Polskiej... zowią ją dotąd i Księżną Litewską —\
 Koronęć jeszcze dotąd piastuje królewską...\
 Lecz na Litewskim Księstwie teraz syzma siedzi!»\
 «Z Częstochowy? — rzekł Wilbik. — Byłem tam w spowiedzi,\
