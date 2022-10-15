@@ -1,3 +1,4 @@
+Reszta zlękła od kłody cofa się z przestrachem:\
 Tak Kropiciel ruchomym nakrył szlachtę dachem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym rozbito kłodę, rozcięto powrozy.\
