@@ -1,3 +1,4 @@
+Szałwi, benedykty, kardy, macierzanki:\
 Cała zielna domowa apteka Wojszczanki.\
 Sernica w górze miała wszerz sążni półczwarta,\
 A u dołu na jednym wielkim słupie wsparta\
