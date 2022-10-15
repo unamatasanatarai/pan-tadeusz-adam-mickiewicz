@@ -1,3 +1,4 @@
+Rzucając na stół kiesę ciężką dukatami:\
 «Państwo Lachy, już jest ta gadka między wami,\
 Że każdy Moskal złodziej: powiedźcież, kto spyta,\
 Że znaliście Moskala, który zwan Nikita\
