@@ -1,3 +1,4 @@
+Wszyscy pewni zwycięstwa, wołają ze łzami:\
 «Bóg jest z Napoleonem, Napoleon z nami!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;O wiosno! kto cię widział wtenczas w naszym kraju,\
