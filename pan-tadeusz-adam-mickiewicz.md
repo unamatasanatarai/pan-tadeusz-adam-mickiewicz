@@ -1,3 +1,4 @@
+Doszli zwierza. Wrzask znowu, skowyt: zwierz się broni\
 I zapewne kaleczy; śród ogarów grania\
 Słychać coraz to częściej jęk psiego konania.
 
