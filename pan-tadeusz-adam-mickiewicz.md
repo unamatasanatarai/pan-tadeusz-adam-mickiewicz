@@ -1,3 +1,4 @@
+Być szpiegiem swej kochanki; nawet jak szkaradnie,\
 Odmieniać smak i serce — lecz któż sercem władnie?\
 Darmo chce brak miłości zastąpić sumnieniem,\
 Chłód duszy ogrzać znowu jej wzroku promieniem:\
