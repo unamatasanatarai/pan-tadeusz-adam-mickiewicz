@@ -1,3 +1,4 @@
+Cóż są wasze małżeństwa, jeśli nie łańcuchy,\
 Które związują tylko ręce, a nie duchy?\
 Wierzaj: są oświadczenia, nawet bez wyznania;\
 Są obowiązki, nawet bez obowiązania!\
