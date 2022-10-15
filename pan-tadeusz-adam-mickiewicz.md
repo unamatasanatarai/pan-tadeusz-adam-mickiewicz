@@ -1,3 +1,4 @@
+Na koniec chciał ją przerwać; wziął w obydwie ręce\
 Tabakierkę, kichaniem melodyję zmieszał,\
 I nim się nastroili, tak mówić pośpieszał:\
 «Chwalicie mą tabakę, mości dobrodzieje;\
