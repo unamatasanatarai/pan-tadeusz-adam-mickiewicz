@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Kiedyś... gdy zemsty lwie przehuczą ryki,\
 Przebrzmi głos trąby, przełamią się szyki,\
 Gdy orły nasze lotem błyskawicy\
 Spadną u dawnej Chrobrego granicy,\
