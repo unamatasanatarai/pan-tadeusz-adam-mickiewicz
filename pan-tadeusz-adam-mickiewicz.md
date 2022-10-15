@@ -1,3 +1,4 @@
+Zmniejszy nasz dochód, w miernym musimy żyć stanie.\
 Ja przywykłem do życia oszczędnego z młodu;\
 Lecz ty Zofio, jesteś z wysokiego rodu,\
 W stolicy przepędziłaś twoje młode lata,\
