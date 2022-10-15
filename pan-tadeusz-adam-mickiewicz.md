@@ -1,3 +1,4 @@
+Nie wspomnę innych wielkich zajazdów bez liku,\
 Z których wyszliśmy zawsze, jak szlachcie przystało,\
 I z zyskiem i aplauzem powszechnym i z chwałą!\
 Po cóż o tym wspominać? Dziś darmo pan Hrabia,\
