@@ -1,3 +1,4 @@
+Przez całą zimę w moim sercu się krzewiła,\
 Że, jako mówię panu, ustawniem tęskniła\
 Do tego pokoiku, i coś mi szeptało,\
 Że tam znów pana znajdę — i tak się też stało.\
