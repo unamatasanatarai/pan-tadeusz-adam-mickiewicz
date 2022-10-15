@@ -1,3 +1,4 @@
+Ale dziś muszą znowu ustąpić boginie:\
 Mars powraca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    O świcie zjawił się w Dobrzynie\
