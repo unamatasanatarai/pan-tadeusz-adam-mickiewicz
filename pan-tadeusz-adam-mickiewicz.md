@@ -1,3 +1,4 @@
+Lecz w owych czasach jeszcze za nowość podany,\
 Przyjęty pod sekretem od niewielu osób,\
 Nim go wydał kalendarz, pod tytułem: Sposób\
 Na jastrzębie i kanie, albo nowy środek\
