@@ -1,3 +1,4 @@
+I swą konfederatkę z czaplinymi pióry\
 To na czole zawiesza, to nad czołem wstrząsa,\
 Aż włożył ją na bakier i pokręcił wąsa.\
 Idzie; wszyscy zazdroszczą, biegą w jego ślady,\
