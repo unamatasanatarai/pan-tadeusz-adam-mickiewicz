@@ -1,3 +1,4 @@
+A służba nie jest drużba, stary, głupi Ryków!\
 Czy ty oszalał? Ja mam puszczać buntowników!\
 W takim wojennym czasie! Ha, pany Polaki,\
 Ja was nauczę buntu! Ha, szlachta łajdaki,\
