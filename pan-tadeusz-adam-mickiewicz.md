@@ -1,3 +1,4 @@
+Cieszy się mówca widząc, że są nawróceni,\
 Gładzi kieszeń, bo kreski ich już ma w kieszeni.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz za to w trzecim gronie dzieje się inaczej:\
