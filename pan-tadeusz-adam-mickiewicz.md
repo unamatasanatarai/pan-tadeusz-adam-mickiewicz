@@ -1,3 +1,4 @@
+Walcząc z ludźmi i z losem, póki mu śród burzy\
 Przyświeca ta nadzieja, że Ojczyźnie służy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Oświadczyli, że zaraz wyjeżdżać gotowi;\
