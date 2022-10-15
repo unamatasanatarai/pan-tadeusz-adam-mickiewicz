@@ -1,3 +1,4 @@
+Idąc z Lecha i Rusa, dwu braci rodzonych;\
 Stąd się tyle procesów litewskich ciągnęło\
 Długo z księżmi Krzyżaki, aż wygrał Jagiełło;\
 Stąd na koniec pendebat długo przed aktami\
