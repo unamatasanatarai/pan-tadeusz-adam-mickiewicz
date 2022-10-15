@@ -1,3 +1,4 @@
+Na ustęp! Ja, Protazy Baltazar Brzechalski,\
 Dwojga imion, generał niegdyś trybunalski,\
 Vulgo Woźny, woźnieńską obdukcyją robię\
 I wizyją formalną, zamawiając sobie\
