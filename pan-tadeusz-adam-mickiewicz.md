@@ -1,3 +1,4 @@
+Napoleon już zbiera armiję ogromną,\
 Jakiej człowiek nie widział i dzieje nie pomną;\
 Obok Francuzów ciągnie polskie wojsko całe,\
 Nasz Józef, nasz Dąbrowski, nasze orły białe!\
