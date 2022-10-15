@@ -1,3 +1,4 @@
+Cesarz wielki bohater! gadać o tym wiele!\
 Pamiętam, że Pułascy, moi przyjaciele,\
 Mawiali, poglądając na Dymuliera,\
 Że dla Polski polskiego trzeba bohatera,\
