@@ -1,3 +1,4 @@
+Gdy się pan Wojski dosyć napytał, nabadał,\
 Na samym końcu dzieje tego dnia powiadał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Dobrze mój Tadeuszu, (bo tak nazywano\
