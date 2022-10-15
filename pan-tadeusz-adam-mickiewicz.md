@@ -1,3 +1,4 @@
+Jeden za drugim zmyka i w puszczę się wciska,\
 Chcą pierwsi spotkać źwierza: choć Wojski ostrzegał,\
 Choć Wojski stanowiska na koniu obiegał,\
 Krzycząc, że czy kto prostym chłopem, czy paniczem,\
