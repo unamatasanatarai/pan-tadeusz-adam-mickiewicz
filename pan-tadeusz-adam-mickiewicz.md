@@ -1,3 +1,4 @@
+I każdego z nich opis zwycięstwa lub zgonu.\
 Po wielu latach pierwszy raz miała rodzina\
 Wieść o życiu, o chwale i o śmierci syna;\
 Brał dom żałobę, ale powiedzieć nie śmiano\
