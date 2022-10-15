@@ -1,3 +1,4 @@
+Wageny i fornalki; mężczyźni, kobiety,\
 Z fajkami, z imbryczkami, wleką pudła, bety;\
 Drapią jak mogą. A my milczkiem wchodzim w radę:\
 Hejże na koń, pomieszać Niemcom rejteradę!\
