@@ -1,3 +1,4 @@
+Gwałtem porwać? Wszak mógłbym: zza krat i zza klamek\
 Wydarłbym ją, rozbiłbym w puch ten jego zamek!\
 Miałem za sobą Dobrzyn i cztery zaścianki!\
 Ach, gdyby ona była jak nasze szlachcianki\
