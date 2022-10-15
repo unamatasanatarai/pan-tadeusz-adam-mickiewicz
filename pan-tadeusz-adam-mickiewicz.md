@@ -1,3 +1,4 @@
+Jakieś dziwne przeczucie, jak przed świata końcem,\
 Jakieś oczekiwanie tęskne i radosne.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy pierwszy raz bydło wygnano na wiosnę,\
