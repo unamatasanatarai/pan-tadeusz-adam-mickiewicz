@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Krzyk dochodzi echami zwierciadlanej sali,\
 Kędy Hrabia, Gerwazy i dżokeje spali.\
 Przebudza się Gerwazy: darmo się wydziera,\
 Związany w kij do swego własnego rapiera;\
