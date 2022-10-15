@@ -1,3 +1,4 @@
+I rzekł do księdza: «Czas już, żebym ci powiedział\
 To, o czymem z pewnością wczoraj się dowiedział:\
 Że nasz Tadeusz szczerze zakochany w Zosi.\
 Niechajże przed odjazdem o rękę jej prosi.\
