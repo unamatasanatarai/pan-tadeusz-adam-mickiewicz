@@ -1,3 +1,4 @@
+Nim zajdzie słońce. Woźny z miną uroczystą\
 Wyciągnął słuch i rękę, skoro pozew zoczył;\
 Stał poważnie, a rad by z radości podskoczył.\
 Na samą myśl procesu czuł, że się odmłodził:\
