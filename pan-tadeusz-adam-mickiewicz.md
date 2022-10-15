@@ -1,3 +1,4 @@
+Udając głosy zwierząt: to raz w wilczą szyję\
 Przeciągając się, długo, przeraźliwie wyje;\
 Znowu jakby w niedźwiedzie rozwarłszy się gardło,\
 Ryknął; potem beczenie żubra wiatr rozdarło.
