@@ -1,3 +1,4 @@
+I jedna głowa jego była nieruchoma.\
 Przeciw niemu stał Chrzciciel zwieszony rękoma\
 Na maczudze, a głową na końcu maczugi\
 Wspartą kręcił, jak tykwą wbitą, na kij długi,\
