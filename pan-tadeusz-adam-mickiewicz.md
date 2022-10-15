@@ -1,3 +1,4 @@
+Powiedz gdzie? Śpieszmy, czeka zaprzężona bryka.\
 Czy nie najlepiej w puszczę, do chaty leśnika?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Robak kiwając głową rzekł: «Do jutra rana\
