@@ -1,3 +1,4 @@
+Nie było jej; mignęła tylko śród okienka\
 Jej różowa wstążeczka i biała sukienka.\
 Widać na grzędach, jaką przeleciała drogą,\
 Bo liść zielony, w biegu potrącony nogą,\
