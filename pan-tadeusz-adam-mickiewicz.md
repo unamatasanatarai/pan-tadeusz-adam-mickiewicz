@@ -1,3 +1,4 @@
+Zbudził się z marzeń, wspomniał gdzie, u kogo gości:\
 Dziedzic Horeszków, gościem śród swych własnych progów,\
 Biesiadnikiem Sopliców, swych odwiecznych wrogów!\
 A przy tym zawiść, którą czuł dla Tadeusza,\
