@@ -1,3 +1,4 @@
+W stolicy przepędziłaś twoje młode lata,\
 Czyż zgodzisz się żyć na wsi, z daleka od świata,\
 Jak ziemianka?»
 
