@@ -1,3 +1,4 @@
+Kobiety zatrzymują, chłopcy się szamocą,\
 Rwą się biec, bić się, ale nie wiedzą z kim, o co?\
 Muszą chcąc nie chcąc zostać. W mieszkaniu plebana\
 Trwa rada długa, tłumna, strasznie zamieszana;\
