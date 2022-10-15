@@ -1,3 +1,4 @@
+Jeden Wojski w żałości, krzyczy, że chybiono.\
 Strzelcy i obławnicy poszli jedną stroną\
 Na przełaj źwierza, między ostępem i puszczą,\
 A niedźwiedź, odstraszony psów i ludzi tłuszczą,\
