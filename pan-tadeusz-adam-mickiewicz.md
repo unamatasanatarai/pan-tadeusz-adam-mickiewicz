@@ -1,3 +1,4 @@
+Śród nich Podkomorzyna, dalej inne panie,\
 Oficerowie, pany, szlachta i ziemianie,\
 Mężczyźni i kobiety, na przemian po parze,\
 Usiadają porządkiem, gdzie Wojski ukaże.
