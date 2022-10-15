@@ -1,3 +1,4 @@
+Powiedz mi wasze wszystko; ja może nawzajem\
 Coś odkryję i tak się oba poprzyznajem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Stryjaszku — rzekł Tadeusz, całując mu rękę\
