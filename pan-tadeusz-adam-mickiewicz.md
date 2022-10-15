@@ -1,3 +1,4 @@
+Z czego się bardzo książę ów Denassów chwalił.\
 U nas zaś polowano na dziki w tę porę;\
 Rejtan zabił ze sztućca ogromną maciorę,\
 Z wielkim niebezpieczeństwem, bo z bliska wypalił.\
