@@ -1,3 +1,4 @@
+Śród nich jedna króluje postać, jak w pogodę\
 Lilia jezior skroń białą wznosząca nad wodę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dano trzecią potrawę. Wtem pan Podkomorzy,\
