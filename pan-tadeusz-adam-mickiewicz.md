@@ -1,3 +1,4 @@
+Że zbyt wykwintny na wieś i na dzień powszedni.\
 Nóżek, choć suknia krótka, oko nie zobaczy,\
 Bo biegła bardzo szybko, suwała się raczéj\
 Jako osóbki, które na trzykrólskie święta\
