@@ -1,3 +1,4 @@
+Czego pamięć dotychczas między ludźmi słynie.\
 Mopanku! rzadko który pisarz prowentowy\
 Tak zręcznie temperuje pióra, jak on głowy.\
 Długo liczyć! A nosów i uszu bez liku!\
