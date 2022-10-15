@@ -1,3 +1,4 @@
+Kiedy je z nieba zrzucał dla Adama ojca\
 Wygnanego za grzechy z rozkoszy ogrojca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nieco wyżej *Dawida wóz*, gotów do jazdy,\
