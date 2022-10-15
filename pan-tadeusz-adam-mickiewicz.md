@@ -1,3 +1,4 @@
+Razem i słomę kraje, i wybija zboże:\
 Tak pracują Kropiciel i Brzytwa pospołu,\
 Mordując nieprzyjaciół, ten z góry, ten z dołu.
 
