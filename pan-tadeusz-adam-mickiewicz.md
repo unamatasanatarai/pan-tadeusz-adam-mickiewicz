@@ -1,3 +1,4 @@
+Ja na pana Hrabiego nie zanoszę skargi;\
 To tylko były zwykłe sąsiedzkie zatargi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«A czy Sędzia — rzekł Major — żółtą księgę czytał?»\
