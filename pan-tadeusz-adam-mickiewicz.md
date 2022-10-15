@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ale Płut, Tadeusza widząc przed swym frontem,\
 Naradzał się po cichu z gifrejterem Gontem,\
 Który w rocie uchodził za pierwszego strzelca.\
 «Gonto — rzekł Major — widzisz ty tego wisielca?\
