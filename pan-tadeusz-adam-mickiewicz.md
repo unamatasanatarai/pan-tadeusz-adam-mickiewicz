@@ -1,3 +1,4 @@
+On rzekł: «Głupi!» ... i ręką milczenie nakazał.\
 Na trzecim wozie Prusak w kubraku wytartym,\
 A pan Zan z Mickiewiczem jechali na czwartym.
 
