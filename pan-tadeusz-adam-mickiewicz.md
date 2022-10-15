@@ -1,3 +1,4 @@
+Sopliców czyż nie równe Tęczyńskim zaszczyty\
 Krwią, herbem, wierną służbą Rzeczypospolitej?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jak łatwo może człowiek popsuć szczęście drugim\
