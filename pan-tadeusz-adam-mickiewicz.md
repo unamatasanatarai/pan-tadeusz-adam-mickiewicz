@@ -1,3 +1,4 @@
+Już nie puste, bo on je napełnił myślami.\
 Po tym miejscu biegało domysłów tysiące,\
 Jako po deszczu żabki na samotnej łące;\
 Śród nich jedna króluje postać, jak w pogodę\
