@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Formuj się do ataku! — zawołał — na sztyki!\
 Naprzód!» Wnet szereg rury wytknąwszy jak tyki,\
 Schyla głowy, zrusza się i przyśpiesza kroku.\
