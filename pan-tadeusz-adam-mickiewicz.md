@@ -1,3 +1,4 @@
+Jak się dziać zwykło, kiedy zbierają się chmury,\
 Ale coraz spadała. Wiatr rozwinął dłonie\
 I mgłę muskał, wygładzał, rozścielał na błonie;\
 Tymczasem słonko z góry tysiącem promieni\
