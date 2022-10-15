@@ -1,3 +1,4 @@
+Lecz przechrzcił się; łotr wielki, jak się zwykle dzieje\
 Z Polakiem, który w carskiej służbie zmoskwicieje.\
 Płut stał z fajką przed frontem, w boki się podpierał\
 I gdy mu kłaniano się, nos w górę zadzierał,\
