@@ -1,3 +1,4 @@
+Czasem wymkną się w górę przez trawy zielenie,\
 Jakby dwa wodotryski, dwa rogi jelenie,\
 I mignie między drzewa źwierz żółtawym pasem,\
 Jak promień, kiedy wpadłszy gaśnie między lasem.
