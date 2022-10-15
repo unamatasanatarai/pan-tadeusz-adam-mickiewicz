@@ -1,3 +1,4 @@
+Sam waści Zosię? He? Cóż, nie skoczysz z radości?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz rzekł po chwili «Dobroć jegomości\
 Dziwi mnie. Lecz cóż? Łaska stryja dobrodzieja\
