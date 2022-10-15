@@ -1,3 +1,4 @@
+Starzec wysoki, siwy, twarz miał czerstwą, zdrową,\
 Zmarszczkami pooraną, posępną, surową.\
 Dawniej pomiędzy szlachtą z wesołości słynął;\
 Ale od bitwy, w której dziedzic zamku zginął,\
