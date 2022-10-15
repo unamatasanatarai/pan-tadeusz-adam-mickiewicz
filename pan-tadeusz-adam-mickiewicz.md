@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Stryjaszku — rzekł Tadeusz, całując mu rękę\
 I rumieniąc się — powiem prawdę. Tę panienkę,\
 Zosię, wychowanicę stryja, podobałem\
