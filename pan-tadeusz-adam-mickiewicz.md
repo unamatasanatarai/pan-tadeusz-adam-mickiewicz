@@ -1,3 +1,4 @@
+Jeszcze większa; chcę skończyć, lecz szlachcic maruda\
 Upiera się; przewidział, że mię znudzić może:\
 Dłużej też nie wytrzymam i dzisiaj broń złożę,\
 Przyjmę warunki zgody, jakie mi sąd poda...»\
