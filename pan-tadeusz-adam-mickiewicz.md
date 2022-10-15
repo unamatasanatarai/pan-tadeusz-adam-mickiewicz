@@ -1,3 +1,4 @@
+Oba chóry zgodzone w dwa wielkie akordy.\
 Ten fortissimo zabrzmiał, tamten nuci z cicha;\
 Ten zdaje się wyrzekać, tamten tylko wzdycha:\
 Tak dwa stawy gadały do siebie przez pola\
