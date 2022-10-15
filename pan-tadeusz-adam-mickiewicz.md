@@ -1,3 +1,4 @@
+Względy, urzędy nudzą, uszko delikatne!\
 Ja cię tu zaraz po tych zauszniczkach płatnę.\
 Fora za drzwi! Do korda! Tomasz, karabelę!»
 
