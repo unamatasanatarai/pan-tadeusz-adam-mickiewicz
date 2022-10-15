@@ -1,3 +1,4 @@
+Pamiętna wiosno wojny, wiosno urodzaju!\
 O wiosno, kto cię widział, jak byłaś kwitnąca\
 Zbożami i trawami, a ludźmi błyszcząca,\
 Obfita we zdarzenia, nadzieją brzemienna!\
