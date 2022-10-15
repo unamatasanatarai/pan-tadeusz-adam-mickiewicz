@@ -1,3 +1,4 @@
+Stanie i nieruchomie dzierżąc dziób zadarty,\
 I głowę grzebieniastą pochyliwszy bokiem,\
 Aby tym łacniej w niebo mógł celować okiem,\
 Dostrzeże wiszącego jastrzębia śród chmury,\
