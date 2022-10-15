@@ -1,3 +1,4 @@
+Że nawet o nim jaśnie wielmożny pan wiedział.\
 Gdyby on gadać umiał, może by powiedział\
 Cokolwiek na pochwałę i tej starej ręki,\
 Która służyła długo, wiernie, Bogu dzięki,\
