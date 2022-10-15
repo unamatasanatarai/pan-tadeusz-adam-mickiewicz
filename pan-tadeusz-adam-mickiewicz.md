@@ -1,3 +1,4 @@
+Stąpając po jarzynach, kwiatach i agreście,\
 Aż, przeskoczywszy parkan, odetchnął nareście!\
 Przypomniał, że dziewczynie mówił o śniadaniu;\
 Może już wszyscy wiedzą o jego spotkaniu\
