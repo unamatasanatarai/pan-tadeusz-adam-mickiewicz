@@ -1,3 +1,4 @@
+Młodego chłopca na świat wielki wyprowadzić,\
 Kroki jego kierować, pomagać mu, radzić,\
 Serce mu kształcić, mieć w nim przyjaciela, brata,\
 Nareszcie — użyć świata póki służą lata!...
