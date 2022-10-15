@@ -1,3 +1,4 @@
+Do wielkiej puszczy, która, jako oko sięga,\
 Czerniła się na całym brzegu widnokręga.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Któż zbadał puszcz litewskich przepastne krainy,\
