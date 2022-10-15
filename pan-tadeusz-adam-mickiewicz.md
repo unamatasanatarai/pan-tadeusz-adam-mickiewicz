@@ -1,3 +1,4 @@
+Nie znajdują się nigdy martwych zwierząt kości.\
 Słychać, że tam w stolicy między zwierzętami\
 Dobre są obyczaje, bo rządzą się sami;\
 Jeszcze cywilizacją ludzką nie popsuci,\
