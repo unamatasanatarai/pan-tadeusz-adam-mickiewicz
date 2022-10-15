@@ -1,3 +1,4 @@
+Twarz schyloną w otwarte utuliła dłonie,\
 Choć nie słyszysz szlochania, znać, że we łzach tonie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Daremnie broniło się serce Tadeusza;\
