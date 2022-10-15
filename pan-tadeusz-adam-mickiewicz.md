@@ -1,3 +1,4 @@
+Ten, choć długo ucztował i usnął głęboko,\
 Dawał przecie znak życia. Przemknął jedno oko\
 I widzi... istne zmory! Dwie okropne twarze\
 Tuż nad sobą, a każda ma wąsów po parze,\
