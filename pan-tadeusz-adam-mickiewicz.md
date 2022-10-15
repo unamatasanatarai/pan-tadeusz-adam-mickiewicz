@@ -1,3 +1,4 @@
+Major zginął bez śladu, jak gdyby wpadł w wodę.\
 Co się z nim stało, różnie powiadano o tem,\
 Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.\
 Daremnie pytaniami Klucznika dręczono;\
