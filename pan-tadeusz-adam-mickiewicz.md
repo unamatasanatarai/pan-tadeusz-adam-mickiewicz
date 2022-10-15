@@ -1,3 +1,4 @@
+Powtarzał, nazywano go także Mopanku;\
 Czasem Szczerbcem, że całą łysinę miał w szczerbach;\
 Lecz on zwał się Rębajło, a o jego herbach\
 Nie wiadomo. Klucznikiem siebie tytułował,\
