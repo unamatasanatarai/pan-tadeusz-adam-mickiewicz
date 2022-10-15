@@ -1,3 +1,4 @@
+Słuchaj pan historyi swej własnej rodzinnej,\
 Która się stała właśnie w tej izbie, nie innej.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nieboszczyk pan mój, Stolnik, pierwszy pan w powiecie,\
