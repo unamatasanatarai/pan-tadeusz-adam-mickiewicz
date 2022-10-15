@@ -1,3 +1,4 @@
+Na morgach chłopskich bronię robić polowanie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ekonom z lewej izby rzekł: «Nie dziw, mospanie,\
 Bo też pan tak drogo płaci za taką zwierzynę.\
