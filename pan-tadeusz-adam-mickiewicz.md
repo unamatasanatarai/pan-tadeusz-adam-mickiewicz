@@ -1,3 +1,4 @@
+Zakrył rękami, spod rąk łez potok się rzucił:\
 «Jenerale — rzekł — ciebie długo Litwa nasza\
 Czekała — długo, jak my Żydzi Mesyjasza...\
 Ciebie prorokowali dawno między ludem\
