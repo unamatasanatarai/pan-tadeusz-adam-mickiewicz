@@ -1,3 +1,4 @@
+Roznoszący potrawy: barszcz królewskim zwany,\
 I rosół staropolski sztucznie gotowany,\
 Do którego pan Wojski z dziwnymi sekrety\
 Wrzucił kilka perełek i sztukę monety\
