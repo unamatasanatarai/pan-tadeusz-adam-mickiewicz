@@ -1,3 +1,4 @@
+O dobru pospolitym, głupi, u was zwada?\
 Nie można było, głupi, ani się rozmówić,\
 Głupi, ani porządku, ani postanowić\
 Wodza nad wami, głupi! A niech no kto podda\
