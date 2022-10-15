@@ -1,3 +1,4 @@
+Która mu jak Ołtarzyk Złoty zawsze służy,\
 Której nigdy nie rzuca w domu i w podróży.\
 Była to trybunalska wokanda: tam rzędem\
 Stały spisane sprawy, które przed urzędem\
