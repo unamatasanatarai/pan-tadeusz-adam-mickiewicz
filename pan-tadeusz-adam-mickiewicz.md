@@ -1,3 +1,4 @@
+Tylko ręką kilkakroć uderzył po boku,\
 Jak gdyby szabli szukał (od zaboru kraju\
 Szabli nie nosił; przecież z dawnego zwyczaju,\
 Na wspomnienie Moskala, zawsze rękę zwracał\
