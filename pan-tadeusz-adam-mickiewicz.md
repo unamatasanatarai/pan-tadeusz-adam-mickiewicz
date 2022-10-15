@@ -1,3 +1,4 @@
+Szumią około domu i szemrze ulewa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W takim dniu pożądany był czas najburzliwszy:\
 Bo nawałnica, boju plac mrokiem okrywszy,\
