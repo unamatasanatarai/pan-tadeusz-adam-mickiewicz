@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tu Wojski skończył opis i laską znak daje.\
 I wnet zaczęli wchodzić parami lokaje\
 Roznoszący potrawy: barszcz królewskim zwany,\
 I rosół staropolski sztucznie gotowany,\
