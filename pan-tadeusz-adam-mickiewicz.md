@@ -1,3 +1,4 @@
+I na deszczu, bo coraz wzmagała się słota.\
 Nadaremnie Kropiciel dąsa się i miota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Darmo Sędzia za szlachtą instancję wnosi,\
