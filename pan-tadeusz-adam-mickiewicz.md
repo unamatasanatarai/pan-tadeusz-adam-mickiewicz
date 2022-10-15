@@ -1,3 +1,4 @@
+O inkursyją, to jest o najazd granicy,\
 Gwałt zamku, w którym Sędzia dotąd prawnie włada,\
 Czego dowodem jawnym jest, że w zamku jada».\
 «Brzechaczu! — wrzasnął Klucznik — ja cię wnet nauczę!»\
