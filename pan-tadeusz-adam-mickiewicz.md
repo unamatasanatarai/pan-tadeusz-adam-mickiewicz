@@ -1,3 +1,4 @@
+Żal jej było, że inną śmiał Tadeusz lubić,\
 Chciała go skarać, ale nie myśliła zgubić.\
 Więc puściła się za nim, wznosząc ręce obie,\
 Krzycząc: «Stój! głupstwo! kochaj czy nie! żeń się sobie\
