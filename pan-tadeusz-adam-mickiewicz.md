@@ -1,3 +1,4 @@
+Widział sposób rozjęcia krzykliwego sporu,\
 A więc krzyknął: «Panowie, po grzyby do boru!\
 Kto z najpiękniejszym rydzem do stołu przybędzie,\
 Ten obok najpiękniejszej panienki usiędzie:\
