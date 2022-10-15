@@ -1,3 +1,4 @@
+A panu Majorowi nikt za to nic nie da.\
 Wiesz co Major? ot lepiej tę sprawę zagodzić,\
 Pan Sędzia Majorowi musi trud nagrodzić,\
 My powiemy, że my tu przyszli dla wizyty,\
