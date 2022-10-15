@@ -1,3 +1,4 @@
+Dostał za niego postrzał, spod konia dobywa,\
 Uprowadza; a szlachcie każe się rozstąpić,\
 Lepiej mierzyć, postrzałów nadaremnych skąpić,\
 Kryć się za płoty, studnie, za ściany obory;\
