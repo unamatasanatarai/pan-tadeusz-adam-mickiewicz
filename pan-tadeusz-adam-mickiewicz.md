@@ -1,3 +1,4 @@
+Jakieś oczekiwanie tęskne i radosne.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy pierwszy raz bydło wygnano na wiosnę,\
 Uważano, że chociaż zgłodniałe i chude,\
