@@ -1,3 +1,4 @@
+Tym lepiej, więc go jako wojażera wyślij».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Widzi siostra — rzekł Sędzia, skrobiąc smutnie głowę —\
 Chciałbym bardzo: cóż, kiedy mam trudności nowe!\
