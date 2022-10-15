@@ -1,3 +1,4 @@
+Gdy Sędziego nawiedził, skoro pobył mało,\
 Przyjmował zwyczaj, którym wszystko oddychało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Krótkie były Sędziego z synowcem witania:\
