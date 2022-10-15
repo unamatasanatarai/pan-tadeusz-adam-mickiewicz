@@ -1,3 +1,4 @@
+Dwóch zarąbałem w kłótni, dwóch na pojedynku;\
 Jednego podpaliłem w drewnianym budynku,\
 Kiedyśmy zajeżdżali z Rymszą Korelicze:\
 Upiekł się tam jak piskorz; a tych nie policzę,\
