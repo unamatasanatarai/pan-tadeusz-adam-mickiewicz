@@ -1,3 +1,4 @@
+I której żaden nigdy nie słyszał Soplica,\
 Zadrżał Tadeusz, twarz mu pobladła jak trupia,\
 Tupnąwszy nogą, usta ścisnąwszy, rzekł: «Głupia!»
 
