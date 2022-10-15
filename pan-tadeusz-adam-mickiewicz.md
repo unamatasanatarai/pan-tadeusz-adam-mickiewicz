@@ -1,3 +1,4 @@
+Krzyknął Mickiewicz. Zatem wszczynały się swary\
 O różnych taratatki kształtach i czamary.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przemyślny Robak, widząc, że się tak rozpryska\
