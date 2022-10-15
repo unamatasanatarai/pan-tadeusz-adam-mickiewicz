@@ -1,3 +1,4 @@
+Starszyzna przy stoliku małym zgromadzona\
 Mówiła o sposobach nowych gospodarskich,\
 O nowych coraz sroższych ukazach cesarskich;\
 Podkomorzy krążące o wojnie pogłoski\
