@@ -1,3 +1,4 @@
+Mniej silnie, ale szerzej niż we dnie świeciło,\
 Całe zaczerwienione, jak zdrowe oblicze\
 Gospodarza, gdy prace skończywszy rolnicze\
 Na spoczynek powraca. Już krąg promienisty\
