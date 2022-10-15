@@ -1,3 +1,4 @@
+A jeśli Maciej w pomoc da mi swą Rózeczkę,\
 To my we dwóch, Sopliców tych porzniem na sieczkę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Brawo! — rzekł Hrabia — plan twój, gotycko-sarmacki\
