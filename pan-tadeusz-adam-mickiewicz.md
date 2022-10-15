@@ -1,3 +1,4 @@
+Jacek bratu oddaje, głośno czytać każe.\
 List od Fiszera, który był natenczas szefem\
 Sztabu armii polskiej pod Księciem Józefem.\
 Donosi, że w cesarskim tajnym gabinecie\
