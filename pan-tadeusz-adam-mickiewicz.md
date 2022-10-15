@@ -1,3 +1,4 @@
+Rzekł Sędzia.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Ksiądz wpadł w powóz stojący u proga,\
 Tnie biczem konie, łechce lejcami po bokach;\
