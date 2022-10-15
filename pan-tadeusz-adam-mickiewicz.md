@@ -1,3 +1,4 @@
+Ale do rozmawiania z nim nie miał ochoty\
 I widać, że czuł jakieś tajemne kłopoty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przemijały w milczeniu talerze i dania;\
