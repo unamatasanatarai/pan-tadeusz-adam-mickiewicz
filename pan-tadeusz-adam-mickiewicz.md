@@ -1,3 +1,4 @@
+Męstwem swoich szlachciców, pięknością szlachcianek.\
 Niegdyś możny i ludny: bo gdy król Jan Trzeci\
 Obwołał pospolite ruszenie przez wici,\
 Chorąży województwa z samego Dobrzyna\
