@@ -1,3 +1,4 @@
+Sam gawęda, i lubił niezmiernie gaduły.\
 Nie dziw! Ze szlachtą strawił życie na biesiadach,\
 Na polowaniach, zjazdach, sejmikowych radach:\
 Przywykł, żeby mu zawsze coś bębniło w uchu,\
