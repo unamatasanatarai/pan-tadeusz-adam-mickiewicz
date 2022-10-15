@@ -1,3 +1,4 @@
+Aluzyja, że w rodzie bywał neofita».\
 «Fałsz — przerwał Birbasz — Przecież ja z tatarskich hrabiów\
 Pochodzę, a mam krzyże nad herbem Korabiów».\
 «Poraj — krzyknął Mickiewicz — z mitrą w polu złotym,\
