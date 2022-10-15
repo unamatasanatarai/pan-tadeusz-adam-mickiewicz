@@ -1,3 +1,4 @@
+Pytany, wyrzekł zdanie i w niewielu słowach.\
 Myślano, że dzisiejszej podejmie się sprawy\
 I stanie swą osobą na czele wyprawy;\
 Bo bijatykę lubił niezmiernie za młodu\
