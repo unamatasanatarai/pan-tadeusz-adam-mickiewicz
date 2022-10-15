@@ -1,3 +1,4 @@
+Zwierzowi jak należy kroku nie dostali,\
 Choć mieli oszczep w ręku: tego nikt nie chwali\
 Ani gani. Bo zmykać, mając nabój w rurze,\
 Znaczyło po staremu być tchórzem nad tchórze;\
