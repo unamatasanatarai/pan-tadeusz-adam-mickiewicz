@@ -1,3 +1,4 @@
+I Sędziemu pogroził, Wojski głowę zwrócił,\
 Zażył dwakroć tabaki i przetarł powieki.\
 Chociaż Wojski Sędziemu był krewny daleki,\
 Ale w gościnnym jego domu zamieszkały,\
