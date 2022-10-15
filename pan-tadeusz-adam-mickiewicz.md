@@ -1,3 +1,4 @@
+Z mieczem krwawym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Już szlachta odzierżyła pole,\
 Porozpędzanych jegrów ściga, rąbie, kole.\
