@@ -1,3 +1,4 @@
+Cofa się, rzuca rannych; Chrzciciel ich dobija.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stodoła już daleko; bojąc się odwodu\
 Długiego, Ryków skoczył pod parkan ogrodu;\
