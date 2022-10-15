@@ -1,3 +1,4 @@
+Et quibusdam aliis. Jak tam wiesz, tak szczekaj,\
 Nic nie opuszczaj!» «Panie Kluczniku, zaczekaj\
 — Rzekł śmiało, ręce za pas włożywszy Protazy —\
 Gotów jestem wypełniać wszelkie stron rozkazy,\
