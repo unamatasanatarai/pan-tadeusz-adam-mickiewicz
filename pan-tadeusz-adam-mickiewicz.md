@@ -1,3 +1,4 @@
+Kto by uważał z bliska lamus, spichrz i chatę,\
 Ujrzy ściany od ziemi do szczytu pstrokate\
 Niby rojem owadów czarnych: w każdej plamie\
 Siedzi we środku kula jak trzmiel w ziemnej jamie.
