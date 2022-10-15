@@ -1,3 +1,4 @@
+I rzekł: «Mój panie Wojski, czy to chińskie cienie?\
 Czy to Pinety panu dał w służbę swe bisy?\
 Czy dotąd u was w Litwie są takie serwisy\
 I wszyscy takim starym ucztują zwyczajem?\
