@@ -1,3 +1,4 @@
+Dech wstrzymali. Wtem Rejent pobladnął jak chusta,\
 Zbladł i Asesor; widzą... fatalnie się dzieje:\
 Owa żmija im dalej, tym bardziej dłużeje,\
 Już rwie się wpół, już znikła owa szyja pyłu,\
