@@ -1,3 +1,4 @@
+Co we wściekłość najmniejsza wprawiała mnie sprzeczka:\
 Ja wtenczas, zły i pjany, milczał jak owieczka,\
 Jak gdybym Sanktissimum ujrzał!
 
