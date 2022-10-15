@@ -1,3 +1,4 @@
+Oba dobrze poszczuli, oba byli pewni\
 Zwycięstwa swoich chartów: gdy pośród równiny\
 Znalazł się zagon chłopskiej niezżętej jarzyny.\
 Tam wpadł zając; już Kusy, już go Sokół imał,\
