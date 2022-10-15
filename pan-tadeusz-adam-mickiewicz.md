@@ -1,3 +1,4 @@
+Obwinął nim, gwiazd krocie zagarnął jak siecią\
 I ciągnie je za sobą, a sam wyżej głową\
 Mierzy, na północ, prosto w gwiazdę biegunową.
 
