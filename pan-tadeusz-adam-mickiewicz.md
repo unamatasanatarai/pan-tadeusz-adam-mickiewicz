@@ -1,3 +1,4 @@
+Niechajże ją rozstrzygnie pistolet lub szpada.\
 Daję ci broń na wybór, od działa do szpilki;\
 A nie, to was wystrzelam jako w jamie wilki».\
 I to mówiąc wystrzelił, a tak dobrze mierzył,\
