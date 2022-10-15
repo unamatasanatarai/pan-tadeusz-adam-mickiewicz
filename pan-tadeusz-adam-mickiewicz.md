@@ -1,3 +1,4 @@
+Nim mu splątał się język i nogi zachwiały:\
 Ten, choć długo ucztował i usnął głęboko,\
 Dawał przecie znak życia. Przemknął jedno oko\
 I widzi... istne zmory! Dwie okropne twarze\
