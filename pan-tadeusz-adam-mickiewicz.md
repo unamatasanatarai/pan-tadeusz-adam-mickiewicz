@@ -1,3 +1,4 @@
+Musi to być rzecz pewna, gdy z nią są panowie.\
 Biegę do niego zaraz...» «Niech się pierwszy zgłosi —\
 Rzekł Sędzia — niech przyjedzie tu, niech mnie przeprosi;\
 Wszak jestem starszy wiekiem, jestem na urzędzie!\
