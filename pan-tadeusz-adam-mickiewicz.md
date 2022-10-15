@@ -1,3 +1,4 @@
+To mówiąc, tabakierę podawał starcowi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski na ostrym końcu śród myśliwych siedział,\
 Słuchał zmrużywszy oczy, słowa nie powiedział,\
