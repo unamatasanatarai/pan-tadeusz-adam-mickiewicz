@@ -1,3 +1,4 @@
+Kędy jest obraz tylu cudami wsławiony,\
 Bogarodzicy Panny, Królowej Korony\
 Polskiej... zowią ją dotąd i Księżną Litewską —\
 Koronęć jeszcze dotąd piastuje królewską...\
