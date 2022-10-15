@@ -1,3 +1,4 @@
+Znowu wzbudzi się, ryknie i znów wodą chluśnie.\
 Aż się uspokoiło wszystko; tylko drzewa\
 Szumią około domu i szemrze ulewa.
 
