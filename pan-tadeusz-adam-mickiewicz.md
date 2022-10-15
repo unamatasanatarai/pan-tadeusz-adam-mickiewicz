@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Pomyśl o zemście, to wnet szatan broń podsunie.\
 Ledwiem pomyślił: szatan nasyła Moskali.\
 Stałem patrząc; wiesz, jak wasz zamek szturmowali.
