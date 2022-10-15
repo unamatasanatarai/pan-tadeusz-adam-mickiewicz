@@ -1,3 +1,4 @@
+Gospodarz widzi, w jakim stanie jest obora.\
 Dozoru tego nigdy sługom nie poruczy;\
 Bo Sędzia wie, że oko pańskie konia tuczy.
 
