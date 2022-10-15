@@ -1,3 +1,4 @@
+I odwiódłszy na stronę po bratersku radził,\
 By przyznał się do winy i tym grzech swój zgładził.\
 Łowczy udobruchany przyrzekł, że się wstawi\
 Do cesarza i wyrok nieco ułaskawi.\
