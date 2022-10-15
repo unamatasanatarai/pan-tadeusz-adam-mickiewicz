@@ -1,3 +1,4 @@
+Próżno było bronić się, nowy wróg nadchodził:\
 Postrzeżono w olszynie blask, wystrzał rusznicy!\
 Most na rzece zahuczał tętentem konnicy\
 I «Hejże na Soplicę!» tysiąc głosów wrzasło.\
