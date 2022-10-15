@@ -1,3 +1,4 @@
+Prawa i obyczaje, nawet suknie stare.\
 Żałośnie było widzieć wyżółkłych młokosów,\
 Gadających przez nosy, a często bez nosów,\
 Opatrzonych w broszurki i w różne gazety,\
