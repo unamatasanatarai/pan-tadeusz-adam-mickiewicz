@@ -1,3 +1,4 @@
+I ów, taki jak dziś go widzimy, kometa».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Amen — rzekł na to Sędzia — ja wróżbę waszeci\
 Przyjmuję, oby z gwiazdą zjawił się Jan Trzeci!\
