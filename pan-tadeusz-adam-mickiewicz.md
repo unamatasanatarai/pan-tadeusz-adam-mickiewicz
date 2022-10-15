@@ -1,3 +1,4 @@
+Pani Zofii jako dziedziczce należy;\
 Pilnowałem go w zamku jako oka w głowie,\
 Od Moskalów i od was, państwo Soplicowie.\
 Mam także spory worek mych własnych talarów,\
