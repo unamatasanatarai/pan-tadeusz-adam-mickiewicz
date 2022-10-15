@@ -1,3 +1,4 @@
+Przybiegła z najkrzykliwszym bawić się dziecięciem,\
 Siadła przy nim na ziemi, wzięła je na łono;\
 Drugie głaskała ręką i mową pieszczoną;\
 Aż się uspokoiły, objąwszy w rączęta\
