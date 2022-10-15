@@ -1,3 +1,4 @@
+Wara, panie, od szkody; na tutejszej grzędzie\
 Nie dla Waszeci owoc, nic z tego nie będzie».\
 Potem palcem pogroził, kaptura poprawił,\
 I odszedł. Hrabia jeszcze chwilę w miejscu bawił,\
