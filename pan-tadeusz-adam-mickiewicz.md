@@ -1,3 +1,4 @@
+Czyby się nie udało podsunąć mu Zosię?\
 Niebogata: lecz za to urodzeniem równa,\
 Z domu senatorskiego, jest dygnitarzówna.\
 Jeżeliby do skutku przyszło ożenienie,\
