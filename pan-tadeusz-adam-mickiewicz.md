@@ -1,3 +1,4 @@
+Że ów zodyjakowy *Smok* długi i gruby,\
 Który gwiaździste wije po niebie przeguby,\
 Którego mylnie wężem chrzczą astronomowie,\
 Jest nie wężem, lecz rybą: *Lewiatan* się zowie.\
