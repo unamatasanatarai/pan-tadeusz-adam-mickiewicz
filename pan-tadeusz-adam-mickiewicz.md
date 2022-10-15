@@ -1,3 +1,4 @@
+Tam myśl nie śmiała swoich zwrócić lotów,\
 W sferę okropną nawet ptakom grzmotów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;O Matko Polsko! Ty tak świeżo w grobie\
