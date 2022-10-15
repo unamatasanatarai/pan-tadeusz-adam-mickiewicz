@@ -1,3 +1,4 @@
+Kropić, kropić i kwita!» Tu maczugę głasnął,\
 Za nim cały tłum szlachty «Kropić, kropić!» wrzasnął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poparł stronę Chrzciciela, Bartek zwan Brzytewka\
