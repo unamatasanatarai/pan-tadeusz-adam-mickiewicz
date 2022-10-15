@@ -1,3 +1,4 @@
+Chybiałem; chybiał sławny ów strzelec Tułoszczyk,\
 Nawet nie zawsze trafiał pan Rejtan nieboszczyk.\
 O Rejtanie opowiem później. Co się tycze\
 Wypuszczenia z obławy, że oba panicze\
