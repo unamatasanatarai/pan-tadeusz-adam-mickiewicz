@@ -1,3 +1,4 @@
+Obok lamus, spichrz, gumno, obora i stajnie,\
 Wszystko w kupie, jak bywa u szlachty zwyczajnie;\
 Wszystko nadzwyczaj stare, zgniłe. Domu dachy\
 Świeciły się, jak gdyby od zielonej blachy,\
