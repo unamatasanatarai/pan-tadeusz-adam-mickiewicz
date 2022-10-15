@@ -1,3 +1,4 @@
+Co by rzekł wojewoda Niesiołowski stary,\
 Który ma dotąd pierwsze na świecie ogary,\
 I dwiestu strzelców trzyma obyczajem pańskim,\
 I ma sto wozów sieci w zamku Worończańskim,\
