@@ -1,3 +1,4 @@
+Kolbami przewrócono na wznak zwierza zwłoki\
 I znów trzykrotny wiwat uderzył w obłoki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«A co? — krzyknął Asesor, kręcąc strzelby rurą —\
