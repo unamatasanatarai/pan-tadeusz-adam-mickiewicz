@@ -1,3 +1,4 @@
+Długim czarnym swym końcem chwiał się w różne strony;\
 I Klucznik był podobny rysiowi rannemu,\
 Który z drzewa ma skoczyć w oczy myśliwemu,\
 Wydyma się kłębuszkiem, mruczy, krwawe ślepie\
