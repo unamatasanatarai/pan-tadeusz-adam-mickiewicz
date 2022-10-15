@@ -1,3 +1,4 @@
+Owszem, u stołu pierwsi wnieśli jego zdrowie,\
 Nadawali mu wielkich prezentów bez liku,\
 I skórę zabitego dzika. O tym dziku\
 I o strzale, powiem wam jak naoczny świadek:\
