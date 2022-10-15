@@ -1,3 +1,4 @@
+I nowego mazurka: mam nowe mazurki,\
 A wyuczyłem śpiewać fein moje bachurki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wymowa lubionego powszechnie Jankiela\
