@@ -1,3 +1,4 @@
+Kontusz grodeturowy z frędzlą i pas lity,\
 Przy którym karabela z głownią jaszczurową;\
 Na szyi świecił wielką szpilką brylantową;\
 Konfederatka biała, a na niej pęk gruby\
