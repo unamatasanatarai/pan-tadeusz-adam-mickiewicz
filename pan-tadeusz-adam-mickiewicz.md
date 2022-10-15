@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Już wschodził uroczysty dzień *Najświętszej Panny*\
 *Kwietnej*. Pogoda była prześliczna, czas ranny;\
 Niebo czyste, wokoło ziemi obciągnięte,\
