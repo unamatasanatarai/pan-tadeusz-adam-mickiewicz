@@ -1,3 +1,4 @@
+Dziwnie ozdabiał głowę: bo od słońca blasku\
 Świecił się jak korona na świętych obrazku.\
 Twarzy nie było widać; zwrócona na pole\
 Szukała kogoś okiem, daleko, na dole;\
