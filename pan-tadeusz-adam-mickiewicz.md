@@ -1,3 +1,4 @@
+Widziała, jako Dejów, moskiewski jenerał,\
 Wchodząc z pułkiem kozaków, już bramę otwierał,\
 I jak jeden mieszczanin, zwany Czarnobacki,\
 Zabił Dejowa i zniósł cały pułk kozacki.
