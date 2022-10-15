@@ -1,3 +1,4 @@
+Aż do samego środka, do jądra gęstwiny?\
 Rybak ledwie u brzegów nawiedza dno morza;\
 Myśliwiec krąży koło puszcz litewskich łoża,\
 Zna je ledwie po wierzchu, ich postać, ich lice:\
