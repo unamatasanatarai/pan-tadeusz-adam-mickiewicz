@@ -1,3 +1,4 @@
+I z miną rozjaśnioną, jak kwestarz rubacha,\
 Nim zaczął gadać, długo śmiał się:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Cha, cha, cha, cha,\
