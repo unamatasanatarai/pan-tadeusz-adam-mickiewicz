@@ -1,3 +1,4 @@
+Usnął ostatni w Litwie woźny trybunału.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Takie były zabawy, spory w one lata\
 Śród cichej wsi litewskiej, kiedy reszta świata\
