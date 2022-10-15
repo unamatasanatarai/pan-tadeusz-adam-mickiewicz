@@ -1,3 +1,4 @@
+Bo wnet przerwał i w górę podniósł drążki oba.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Znów gra. Już drżą drążki, tak lekkimi ruchy,\
 Jak gdyby zadzwoniło w strunę skrzydło muchy,\
