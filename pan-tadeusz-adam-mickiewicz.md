@@ -1,3 +1,4 @@
+Na której się zrodzili, którą krwawą pracą\
 Zdobyli, z której wszystkich żywią i bogacą.\
 Lecz muszę ciebie ostrzec, że tych ziem nadanie\
 Zmniejszy nasz dochód, w miernym musimy żyć stanie.\
