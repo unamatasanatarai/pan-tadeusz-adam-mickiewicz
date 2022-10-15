@@ -1,3 +1,4 @@
+Ta ją do głowy Zosi przyszpila uczenie,\
 Z prawej strony na lewo: kwiat od bladych włosów\
 Odbijał bardzo pięknie, jak od zboża kłosów!\
 Zdjęto puderman, całe ubranie gotowe.\
