@@ -1,3 +1,4 @@
+One zwykły do gajów wracać o świtaniu;\
 Dziś, okryte tumanem, te mokrzycę chrupią,\
 Te jamki w roli kopiąc, parami się kupią,\
 I na wolnym powietrzu myślą użyć wczasu;\
