@@ -1,3 +1,4 @@
+Usłyszałem wrzask kobiet, spojrzałem — pan nie żył».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Gerwazy umilknął i łzami się zalał,\
 Potem rzekł kończąc: «Moskal już wrota wywalał:\
