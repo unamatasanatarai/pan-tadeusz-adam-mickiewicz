@@ -1,3 +1,4 @@
+Czy uczułeś do owsa dojrzałego skłonność,\
 Wyszedłeś na brzeg puszczy, gdzie się las przerzedził,\
 I tam zaraz leśniczy bytność twą wyśledził,\
 I zaraz obsaczniki, chytre nasłał szpiegi,\
