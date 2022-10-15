@@ -1,3 +1,4 @@
+Że umizgał się tylko na złość Telimenie:\
 Bo głowę odwracając, niby nieumyślnie,\
 Coraz ku Telimenie groźnym okiem błyśnie.
 
