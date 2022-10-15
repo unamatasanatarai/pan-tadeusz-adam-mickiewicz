@@ -1,3 +1,4 @@
+Do mojego kasztanka i gniadosza chwalił:\
 Dziś, zaraz w tym kwestarskim wozie pójdą oba;\
 Dziś proś mnie, o co zechcesz, co ci się podoba,\
 Nie odmówię!... Lecz o tym interesie całym\
