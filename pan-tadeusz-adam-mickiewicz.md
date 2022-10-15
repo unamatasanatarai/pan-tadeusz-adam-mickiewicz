@@ -1,3 +1,4 @@
+A w niedzielę kontusze. Strój także szlachcianek\
 Najuboższych różni się od chłopskich katanek:\
 Zwykle chodzą w drylichach albo perkaliczkach,\
 Bydło pasą nie w łapciach z kory, lecz w trzewiczkach,\
