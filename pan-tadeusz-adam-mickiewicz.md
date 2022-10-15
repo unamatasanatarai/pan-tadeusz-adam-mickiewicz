@@ -1,3 +1,4 @@
+Ledwie że tej przysługi życiem nie przypłacił:\
 Bo przypadło nań z tyłu dwóch silnych Moskali,\
 I czworo rąk zarazem we włos mu wplątali;\
 Upiąwszy się nogami ciągną jako liny\
