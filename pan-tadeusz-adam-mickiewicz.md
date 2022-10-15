@@ -1,3 +1,4 @@
+Trudno dojrzeć szaraka, zwłaszcza śród kamieni.\
 Pokazał mu pan Sędzia; siedział biedny zając,\
 Płaszcząc się pod kamieniem, uszy nadstawiając,\
 Okiem czerwonym spotkał myśliwców wejrzenie\
