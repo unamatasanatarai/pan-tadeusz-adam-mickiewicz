@@ -1,3 +1,4 @@
+Ale aby nawzajem mogli się wygadać,\
 Co każdy miał na sercu; nagany, pochwały\
 Strzelców i obławników, ogary, wystrzały\
 Wywoływano na plac; powstawała wrzawa,\
