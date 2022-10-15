@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Ho! — rzekł Stryj — pewnie jakieś miłośne zatargi!\
 Uważałem, że waszeć wczoraj gryzłeś wargi,\
 Poglądając spode łba na pewną dziewczynkę;\
 Widziałem, że i ona miała kwaśną minkę.\
