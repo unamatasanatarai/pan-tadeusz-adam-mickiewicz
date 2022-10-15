@@ -1,3 +1,4 @@
+Niedaleko od okna był parkan od sadu,\
 Na nim chmielowe liście i kwieciste wieńce\
 Chwiały się; czy je lekkie potrąciły ręce?\
 Czy wiatr ruszył? Tadeusz długo patrzył na nie,\
