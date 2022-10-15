@@ -1,3 +1,4 @@
+Chciałby popatrzyć na nią! Żal mi nieboraka,\
 Mówię Sędziemu: »Sędzio, daj Zosię dla Saka!«\
 On mówi: »Jeszcze mała, czekaj ze trzy lata,\
 Jak sama zechce«. Łotr! łże, już ją komuś swata:\
