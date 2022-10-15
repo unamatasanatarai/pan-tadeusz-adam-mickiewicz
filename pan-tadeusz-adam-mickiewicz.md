@@ -1,3 +1,4 @@
+I aby tę kokietkę tym mocniej zasmucił,\
 Ku Wojszczance afekty serdeczne obrócił.\
 Panna nie nadto młoda, już pono półwieczna,\
 Lecz gospodyni dobra, osoba stateczna\
