@@ -1,3 +1,4 @@
+Leżąc na wznak, cudnemu dziwił się zjawieniu\
 I miał je tuż nad sobą, ledwie nie na twarzy:\
 Nie wiedział, czy to jawa, czyli mu się marzy\
 Jedna z tych miłych, jasnych twarzyczek dziecinnych,\
