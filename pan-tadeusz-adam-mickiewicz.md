@@ -1,3 +1,4 @@
+Wyciągnął ramię.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Ona z rumieńcem dziewiczym,\
 Ale z rozweselonym słuchała obliczem.\
