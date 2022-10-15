@@ -1,3 +1,4 @@
+Chciał go posyłać; byłem okropnie zmartwiony.\
 Potem zgodził się przecie, by w domu pozostał\
 I żeby się ożenił. Jużbyć żony dostał;\
 Partyję upatrzyłem. Nikt z obywateli\
