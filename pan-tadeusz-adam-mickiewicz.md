@@ -1,3 +1,4 @@
+Jeśli...» — Reszty dowodów pana Ekonoma\
 Nie mógł usłyszeć Sędzia; bo pomiędzy dwoma\
 Rozprawami, wszczęło się dziesięć rozgoworów,\
 Anegdot, opowiadań i na koniec sporów.
