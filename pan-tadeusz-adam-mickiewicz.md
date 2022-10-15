@@ -1,3 +1,4 @@
+To się waści nie uda! Lubisz czy nie lubisz,\
 Zapowiadam asanu, że Zosię poślubisz;\
 A nie, to bizun — jutro staniesz na kobiercu!\
 I gada mnie o czuciach! o niezmiennym sercu!\
