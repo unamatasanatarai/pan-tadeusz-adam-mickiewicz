@@ -1,3 +1,4 @@
+Medalów i trzy krzyże — to pamiętać prosim:\
 Ten medal za Oczaków, ten za Izmaiłów,\
 Ten za bitwę pod Nowi, ten za Prejsiż-Iłów ,\
 Tamten za Korsakowa sławną rejteradę\
