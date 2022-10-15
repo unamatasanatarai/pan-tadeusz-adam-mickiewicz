@@ -1,3 +1,4 @@
+Oddal stąd wszystkich, zostań tylko sam z Klucznikiem,\
 Zamknij drzwi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Sędzia spełnił Robaka rozkazy,\
