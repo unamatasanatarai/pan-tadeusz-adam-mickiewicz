@@ -1,3 +1,4 @@
+Jako dobrych sąsiadów, panów dobrodziejów;\
 A mówię tak: jeżeli państwo chcą gwałt zrobić\
 Sędziemu, to bardzo źle. Możecie się pobić,\
 Zabić — a asesory? a sprawnik? a turma?\
