@@ -1,3 +1,4 @@
+Czapka z uszami, sznurkiem u wierzchu związana,\
 Wznosi się na pogodę, spuszcza się przed słotą.\
 Tak ubrany wziął pałkę i ruszył piechotą;\
 Bo woźni przed procesem, jak szpiegi przed bojem,\
