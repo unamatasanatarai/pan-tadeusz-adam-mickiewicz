@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«I to dziw — rzekł Protazy — że o tej to Zosi,\
 O której rękę teraz nasz Tadeusz prosi,\
 Było przed rokiem omen, jakoby znak z nieba!»\
 «Panną Zofiją — przerwał Klucznik — zwać ją trzeba;\
