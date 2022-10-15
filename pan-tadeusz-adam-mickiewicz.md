@@ -1,3 +1,4 @@
+Skoro dano rozkazy, rozstawiono czaty,\
 Każdy strudzony poszedł spać do swej komnaty,\
 Z nocą wszystko ucichło: obóz, dwór i pole;\
 Widać tylko, jak cienie, błądzące patrole,\
