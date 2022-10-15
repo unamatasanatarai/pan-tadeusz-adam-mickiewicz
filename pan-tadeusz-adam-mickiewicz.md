@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z kilku gośćmi poszedł do stodoły,\
 A czuł się pomieszany, zły i niewesoły.\
 Rozbierał myślą wszystkie dzisiejsze wypadki:\
 Spotkanie się, wieczerzę przy boku sąsiadki;\
