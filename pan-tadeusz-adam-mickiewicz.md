@@ -1,3 +1,4 @@
+Biegł przebić. Wtem ksiądz dostał z rękawa krócicę:\
 «Pal, Tadeuszku! — krzyknął — pal jak w jasną świécę!»\
 Tadeusz wnet pochwycił, wymierzył, wypalił,\
 Chybił, ale Majora zgłuszył i osmalił.\
