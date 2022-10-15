@@ -1,3 +1,4 @@
+Ręką jak perły białą, gęsty grad perłowy\
 Krup jęczmiennych. To ziarno godne pańskich stołów,\
 Robi się dla zaprawy litewskich rosołów;\
 Zosia je wykradając z szafy ochmistrzyni\
