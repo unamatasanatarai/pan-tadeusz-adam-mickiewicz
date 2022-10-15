@@ -1,3 +1,4 @@
+Jaszczurem wykładane z kolcami ze złota,\
 I utkaną z jedwabiu smycz, której robota\
 Równie droga jak kamień co się na niej świeci.\
 Chciałem sprzęt ten zostawić w dziedzictwie dla dzieci;\
