@@ -1,3 +1,4 @@
+Szable, pałki. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Aż Maciek, dotychczas ponury,\
 Nieruchomy, wstał z ławy i wolnymi kroki\
