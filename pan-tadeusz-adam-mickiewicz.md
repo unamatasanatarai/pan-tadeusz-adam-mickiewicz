@@ -1,3 +1,4 @@
+Z armatami, a na nich biegła ćma Moskali.\
 Cesarz patrzył i milczał. Co Francuzi strzelą,\
 To Moskale pułkami jak trawa się ścielą:\
 Pułk za pułkiem cwałował i spadał z kulbaki;\
