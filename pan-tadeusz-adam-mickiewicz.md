@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jeden szlachcic na zgodę powszechną nie zważa.\
 Patrz, wytknął głowę oknem z kuchni refektarza;\
 Patrz, jak oczy wytrzeszczył, jak pogląda śmiało,\
 Usta otworzył, jakby chciał zjeść izbę całą;\
