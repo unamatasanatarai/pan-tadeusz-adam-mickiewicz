@@ -1,3 +1,4 @@
+Zastukał do komnaty arendarz zdyszały:\
 List ma ważny, samemu Jackowi pokaże.\
 Jacek bratu oddaje, głośno czytać każe.\
 List od Fiszera, który był natenczas szefem\
