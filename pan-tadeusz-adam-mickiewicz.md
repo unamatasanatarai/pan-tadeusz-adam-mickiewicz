@@ -1,3 +1,4 @@
+Tam i ja; póki ręka, póki plusk plask w ręku.\
 Co dwaj to dwaj! Dalibóg mój Gerwazy! ty miecz,\
 Ja mam Kropidło; dalbóg! ja kropię, a ty siecz:\
 I tak szach mach, plusk i plask; oni niech gawędzą!»
