@@ -1,3 +1,4 @@
+Gawrylicz Kozodusin, wielki łowczy dworu.\
 Pyta się o przyczynę tak złego humoru,\
 Każe wnet urzędnika przyciągnąć za uszy;\
 Staje pobladły, drżący i prawie bez duszy.\
