@@ -1,3 +1,4 @@
+Utopił w Tadeusza wzrok jak bazyliszek.\
 Asesor mniej krzykliwy i mniej był ruchawy\
 Od Rejenta, szczuplejszy i mały z postawy,\
 Lecz straszny na reducie, balu i sejmiku,\
