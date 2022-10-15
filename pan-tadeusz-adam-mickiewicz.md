@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jedyne szczęście: kto w szarej godzinie,\
 Z kilką przyjaciół siadłszy przy kominie,\
 Drzwi od Europy zamykał hałasów,\
