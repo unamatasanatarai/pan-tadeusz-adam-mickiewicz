@@ -1,3 +1,4 @@
+Obok pan Podkomorzy otoczon rodziną;\
 Panny tuż za starszymi, a młodzież na boku;\
 Panny szły przed młodzieżą o jakie pół kroku\
 (Tak każe przyzwoitość). Nikt tam nie rozprawiał\
