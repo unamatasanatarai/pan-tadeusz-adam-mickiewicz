@@ -1,3 +1,4 @@
+»Pukajcie teraz — rzekłem — choć przez całe życie,\
 Lecz póty was nie spuszczę, aż się pogodzicie«.\
 Oni w złość; a tu szlachta kładnie się na ziemi\
 Od śmiechu, a ja z księdzem słowy poważnemi\
