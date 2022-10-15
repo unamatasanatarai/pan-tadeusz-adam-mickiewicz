@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Trzeciej pary daremnie czekają czas długi.\
 Sędzia niecierpliwi się i wysyła sługi;\
 Wracają: powiadają, że trzeci małżonek,\
 Pan Rejent, szczując kota, zgubił swój pierścionek\
