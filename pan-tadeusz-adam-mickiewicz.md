@@ -1,3 +1,4 @@
+Ot magnat! delikacik z marymonckiej mąki!\
 Nie pił; leliśmy w gardło, krzyczał: »Gwałt się dzieje!«\
 Czekajno, niech no ja mu z Konewki naleję».
 
