@@ -1,3 +1,4 @@
+Nagą łodygę szarozielonawej trawy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia wcisnął na oczy kapelusz i wracał\
 Tamtędy, kędy przyszedł; ale drogę skracał,\
