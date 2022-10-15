@@ -1,3 +1,4 @@
+Teraz żegnającego i kędyś w kraj świata\
 Jadącego — że może starzec się poruszy\
 I pokaże mi przecież trochę ludzkiej duszy\
 Jak ślimak rogów!
