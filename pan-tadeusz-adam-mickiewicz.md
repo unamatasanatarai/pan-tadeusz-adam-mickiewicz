@@ -1,3 +1,4 @@
+Nie znać innych prócz kosy i sierpa rynsztunków,\
 I innych gazet, oprócz domowych rachunków!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nad Soplicowem słońce weszło i już padło\
