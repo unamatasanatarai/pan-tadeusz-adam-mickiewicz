@@ -1,3 +1,4 @@
+Skoczył Tadeusz myśląc, że jest pomieszana\
 Lub ma wielką chorobę. Lecz z innej przyczyny\
 Pochodziły te ruchy.
 
