@@ -1,3 +1,4 @@
+Żałośnie! Biegą szczwacze: już leży bez ducha,\
 A charty mu sierść białą targają spod brzucha.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szczwacze pogłaskali psy, a Wojski tymczasem\
