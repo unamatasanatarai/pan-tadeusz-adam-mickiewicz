@@ -1,3 +1,4 @@
+Zaś kwestarz Robak, skoro uciszył gromadę,\
 Widać było, że wcale tryumfu nie szukał,\
 Ani groził kłótnikom więcej, ani fukał;\
 Tylko poprawił kaptur, i ręce za pasem\
