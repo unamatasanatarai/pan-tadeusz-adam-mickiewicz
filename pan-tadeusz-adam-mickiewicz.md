@@ -1,3 +1,4 @@
+Podobną Janusowi, dwulicemu bogu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną nim na skroniach włosy\
 Poprawili, już groźne ucichły odgłosy.\
