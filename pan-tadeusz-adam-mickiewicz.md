@@ -1,3 +1,4 @@
+To przeor; Sanktissimum z ołtarza wynosi,\
 A chłopiec w komży dzwoni i na ustęp prosi.\
 Szlachta wnet szable chowa, żegna się i klęka,\
 A ksiądz tam się obraca, gdzie jeszcze broń szczęka.\
