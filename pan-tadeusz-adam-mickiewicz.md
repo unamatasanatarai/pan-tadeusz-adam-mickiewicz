@@ -1,3 +1,4 @@
+Bo on nas powystrzela; patrz, bierze do celu».\
 Na to rzekł Major: «Ryków! miły przyjacielu!\
 Ty jesteś zuch na szpady: wyjdź ty bracie Ryków.\
 Lub wiesz co, wyszlem kogo z naszych poruczników.\
