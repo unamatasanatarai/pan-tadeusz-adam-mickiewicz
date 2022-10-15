@@ -1,3 +1,4 @@
+Puszczę go w taniec jako niedźwiadka na kiju».\
 Lecz Tadeusz Sędziego wstrzymał: «Panie stryju,\
 Wielmożny Podkomorzy, czyż się państwu godzi\
 Wdawać się z tym fircykiem; czy tu nie ma młodzi?\
