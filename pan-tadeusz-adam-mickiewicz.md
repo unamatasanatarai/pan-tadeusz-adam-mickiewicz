@@ -1,3 +1,4 @@
+Nazywam się Hreczecha, a od króla Lecha,\
 Żaden za zającami nie jeździł Hreczecha».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu śmiech młodzieży mowę Wojskiego zagłuszył.\
