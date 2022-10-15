@@ -1,3 +1,4 @@
+Często siadali w krzesłach w poobiedniej porze.\
 Pan godził spory włościan lub w dobrym humorze\
 Gościom różne ciekawe historyje prawił,\
 Albo ich powieściami i żarty się bawił,\
