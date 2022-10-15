@@ -1,3 +1,4 @@
+Honor każe». Rzekł, ruszył uroczystym krokiem,\
 A Gerwazy szedł z tyłu w milczeniu głębokiem.\
 Przed bramą stanął Hrabia, sam do siebie gadał,\
 Poglądając na zamek prędko na koń wsiadał,\
