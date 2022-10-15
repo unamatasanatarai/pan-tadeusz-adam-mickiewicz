@@ -1,3 +1,4 @@
+Potem wagi złociste zawiesił na niebie:\
 Z nich to ludzie wag i szal wzór wzięli dla siebie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na północ świeci okrąg gwiaździstego *Sita,*\
