@@ -1,3 +1,4 @@
+Rejenta z Asesorem o sławne ich charty.\
 Krótko trwał, lecz zrobili wiele w jedną chwilę;\
 Bo razem wyrzucili słów i obelg tyle,\
 Że wyczerpnęli sporu zwyczajne trzy części,\
