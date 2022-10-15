@@ -1,3 +1,4 @@
+Do tych pagórków leśnych, do tych łąk zielonych,\
 Szeroko nad błękitnym Niemnem rozciągnionych;\
 Do tych pól malowanych zbożem rozmaitem,\
 Wyzłacanych pszenicą, posrebrzanych żytem;\
