@@ -1,3 +1,4 @@
+Wiły się czarne pukle i różowe wstęgi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W szmaragdzie bujnych traw, na krwawnikowym szalu,\
 W sukni długiej, jak gdyby w powłoce koralu,\
