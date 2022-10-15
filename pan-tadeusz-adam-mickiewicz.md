@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski na ostrym końcu śród myśliwych siedział,\
 Słuchał zmrużywszy oczy, słowa nie powiedział,\
 Choć młodzież nieraz jego zasięgała zdania,\
