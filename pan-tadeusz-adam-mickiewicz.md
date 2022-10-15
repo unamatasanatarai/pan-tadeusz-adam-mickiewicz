@@ -1,3 +1,4 @@
+Zginąć albo zemścić się!» A za co? sam nie wie;\
 I ten gniew wielki, jak się zajął w mgnieniu oka,\
 Tak wywietrzał. Znów zdjęła go żałość głęboka,\
 Myślił: «Jeśli prawdziwe było postrzeżenie,\
