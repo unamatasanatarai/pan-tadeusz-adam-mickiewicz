@@ -1,3 +1,4 @@
+A przy stoliku drewnianym pan włodarz\
 Albo ekonom, lub nawet gospodarz,\
 Nie bronił czytać i sam słuchać raczył,\
 I młodszym rzeczy trudniejsze tłumaczył,\
