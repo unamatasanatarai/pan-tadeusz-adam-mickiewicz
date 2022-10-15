@@ -1,3 +1,4 @@
+A nienawidzą rodu Sopliców od wieka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak zginął pan potężny, pobożny i prawy,\
 Który miał w domu krzesła, wstęgi i buławy,\
