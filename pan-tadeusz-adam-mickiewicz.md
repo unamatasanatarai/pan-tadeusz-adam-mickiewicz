@@ -1,3 +1,4 @@
+Patrz, jak oczy wytrzeszczył, jak pogląda śmiało,\
 Usta otworzył, jakby chciał zjeść izbę całą;\
 Łatwo zgadnąć, że szlachcic ten zawołał: »Veto!«\
 Patrzcie, jak za tą nagłą do kłótni podnietą,\
