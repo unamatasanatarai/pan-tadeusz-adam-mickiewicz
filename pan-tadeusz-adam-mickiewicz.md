@@ -1,3 +1,4 @@
+Czyli obydwu razem: różnie sądzą strony,\
 I spór na dalsze czasy trwał nierozstrzygniony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski stary od izby do izby przechodził,\
