@@ -1,3 +1,4 @@
+Chrystus zabrania mścić się nawet i nad wrogiem!\
 Oj Kluczniku! odpowiesz ty ciężko przed Bogiem.\
 Jedna jest restrykcyja: jeśli popełniono\
 Nie z zemsty głupiej, ale pro publico bono».\
