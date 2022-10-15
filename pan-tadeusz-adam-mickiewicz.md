@@ -1,3 +1,4 @@
+Nie daj się magnatowi, to wstyd na szlachcica!«\
 Tak śmiejąc się, czekamy, kto kogo pokona;\
 Wtem Zosieńka, nad ptastwem litością wzruszona,\
 Podbiegła i nakryła rączką te rycerze;\
