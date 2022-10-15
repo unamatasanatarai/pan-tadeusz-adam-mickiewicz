@@ -1,3 +1,4 @@
+Te historie. Prawda, że sejmik ciekawy:\
 Ale my głodni, każ wać przynosić potrawy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na to Wojski, skłaniając aż do ziemi laskę:\
