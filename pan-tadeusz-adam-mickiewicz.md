@@ -1,3 +1,4 @@
+Łgarz jesteś! pfe! Ja z waści, panie Tadeuszu,\
 Zrobię śledztwo, ja waści jeszcze natrę uszu!\
 Dziś dość miałem kłopotów, aż mnie głowa boli;\
 Ten mi jeszcze spokojnie zasnąć nie dozwoli!\
