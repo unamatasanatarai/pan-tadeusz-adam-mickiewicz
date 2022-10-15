@@ -1,3 +1,4 @@
+Z zielonego kamlotu z różową obwódką;\
 Gorset także zielony, różowymi wstęgi\
 Od łona aż do szyi sznurowany w pręgi;\
 Pod nim pierś jako pączek pod listkiem się tuli.\
