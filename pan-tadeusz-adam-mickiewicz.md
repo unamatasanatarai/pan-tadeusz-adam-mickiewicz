@@ -1,3 +1,4 @@
+W pończochach, ze srebrnymi klamrami trzewiki,\
 Peruka z harbajtelem zawiązanym w miechu.\
 Starzy na on ekwipaż parskali ze śmiechu,\
 A chłopi żegnali się, mówiąc: że po świecie\
