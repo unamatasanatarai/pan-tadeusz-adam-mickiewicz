@@ -1,3 +1,4 @@
+I dobra, które na skarb carski zabierano.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czasem do Litwy kwestarz z obcego klasztoru\
 Przyszedł, i kiedy bliżej poznał panów dworu,\
