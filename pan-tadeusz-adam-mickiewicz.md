@@ -1,3 +1,4 @@
+I dziękować, że byłem jej dumania świadkiem.\
 Tyle ją obraziłem! winienem jej tyle!\
 Przerwałem chwilę dumań; winienem ci chwile\
 Natchnienia, chwile błogie! Potępiaj człowieka;\
