@@ -1,3 +1,4 @@
+A niedźwiedź, odstraszony psów i ludzi tłuszczą,\
 Zwrócił się nazad w miejsca mniej pilnie strzeżone\
 Ku polom, skąd już zeszły strzelcy rozstawione,\
 Gdzie tylko pozostali z mnogich łowczych szyków\
