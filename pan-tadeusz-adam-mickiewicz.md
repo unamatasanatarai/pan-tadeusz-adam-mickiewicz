@@ -1,3 +1,4 @@
+Jak na zdobytych wałach ostatni strzał działa,\
 Ustał już wszelki opór w Soplicowskim dworze.\
 Szlachta głodna plądruje, zabiera co może:\
 Kropiciel, stanowisko zająwszy w oborze,\
