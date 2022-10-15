@@ -1,3 +1,4 @@
+(«Mów pan — przerwał Protazy — do zamku naszego»)\
 «On wpadł — rzekł kończąc Hrabia — na czele złodziejów,\
 On, poznałem Rykowa, wiązał mych dżokejów.\
 Skarzę, go, jakom zbójców skarał pod opoką,\
