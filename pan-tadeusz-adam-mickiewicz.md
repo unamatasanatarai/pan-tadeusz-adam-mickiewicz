@@ -1,3 +1,4 @@
+Ustawicznie do bębna tęsknił, siedząc w szkole.\
 Ale stryj nagle pierwsze zamiary odmienił,\
 Kazał, aby przyjechał i aby się żenił\
 I objął gospodarstwo; przyrzekł na początek\
