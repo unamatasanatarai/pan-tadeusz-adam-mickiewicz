@@ -1,3 +1,4 @@
+Nowy gość dostrzeżony niedawno na niebie:\
 Był to kometa pierwszej wielkości i mocy.\
 Zjawił się na zachodzie, leciał ku północy;\
 Krwawym okiem z ukosa na rydwan spoziera,\
