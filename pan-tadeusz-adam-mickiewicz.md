@@ -1,3 +1,4 @@
+Pogięty jako kołpak żydowski podarty.\
 Ze szczytu wytryskują krużganku krawędzie,\
 Oparte na drewnianym licznych kolumn rzędzie.\
 Kolumny, co jest wielkie architektów dziwo,\
