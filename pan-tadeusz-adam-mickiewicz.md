@@ -1,3 +1,4 @@
+Z których by wychowanie poznano stołeczne;\
 To jedno puste miejsce nęci go i mami,\
 Już nie puste, bo on je napełnił myślami.\
 Po tym miejscu biegało domysłów tysiące,\
