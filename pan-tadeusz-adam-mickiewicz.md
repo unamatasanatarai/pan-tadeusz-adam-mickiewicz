@@ -1,3 +1,4 @@
+I wierz mi, że mnie moje kogutki i kurki\
 Więcej bawiły niźli owe Peterburki.\
 Jeśli czasem tęskniłam do zabaw, do ludzi,\
 To z dzieciństwa; wiem teraz że mnie miasto nudzi;\
