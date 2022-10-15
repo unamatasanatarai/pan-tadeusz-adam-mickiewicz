@@ -1,3 +1,4 @@
+Cap!» Tak krzycząc, pan Rejent na stół pochylony,\
 Z palcami swymi zabiegł aż do drugiej strony,\
 I «cap!» Tadeuszowi wrzasnął tuż nad uchem:\
 Tadeusz i sąsiadka, tym głosu wybuchem\
