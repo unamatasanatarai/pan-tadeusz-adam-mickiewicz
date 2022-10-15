@@ -1,3 +1,4 @@
+Psy nurtują po puszczy, jak pod morzem nurki,\
 A strzelcy, obróciwszy do lasu dwururki,\
 Patrzą Wojskiego. Ukląkł, ziemię uchem pyta;\
 Jako w twarzy lekarza wzrok przyjaciół czyta\
