@@ -1,3 +1,4 @@
+Zbałamucił i teraz uciekasz, młokosie,\
 To się waści nie uda! Lubisz czy nie lubisz,\
 Zapowiadam asanu, że Zosię poślubisz;\
 A nie, to bizun — jutro staniesz na kobiercu!\
