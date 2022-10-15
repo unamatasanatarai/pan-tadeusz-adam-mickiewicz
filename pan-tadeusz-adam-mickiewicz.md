@@ -1,3 +1,4 @@
+«I do nas — rzekł Zubkowski — wstąp jeżeli łaska;\
 Znajdzie się tam półsztuczek płótna, masła faska,\
 Baran lub krówka; wspomnij księże na te słowa:\
 Szczęśliwy człowiek, trafił jak ksiądz do Zubkowa».\
