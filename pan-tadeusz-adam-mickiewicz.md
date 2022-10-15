@@ -1,3 +1,4 @@
+jako po zadzwonieniu na pacierz w klasztorze;\
 Ciszę przerywał tylko głos nocnego stróża.\
 Usnęli wszyscy. Sędzia sam oczu nie zmruża;\
 Jako wódz gospodarstwa obmyśla wyprawę\
