@@ -1,3 +1,4 @@
+Rodzaj architektury obcym budowniczym\
 Wcale nieznany; my go od Żydów dziedziczym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Karczma z przodu jak korab, z tyłu jak świątynia:\
