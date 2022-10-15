@@ -1,3 +1,4 @@
+Twarz, ożywiona wiatru świeżymi powiewy,\
 Sporem z Sędzią i nagłym przybyciem młodzieńców,\
 Nabrała mocnych, żywszych niż zwykle rumieńców.
 
