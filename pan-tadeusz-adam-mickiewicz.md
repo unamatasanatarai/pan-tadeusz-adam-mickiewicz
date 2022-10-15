@@ -1,3 +1,4 @@
+U tej znalazł podobne oczy, usta, lica.\
 W wieku może by była największa różnica:\
 Ogrodniczka dziewczynką zdawała się małą,\
 A pani ta niewiastą już w latach dojrzałą;\
