@@ -1,3 +1,4 @@
+I ma sto wozów sieci w zamku Worończańskim,\
 A od tylu lat siedzi jak mnich na swym dworze,\
 Nikt go na polowanie uprosić nie może,\
 Białopiotrowiczowi samemu odmówił!\
