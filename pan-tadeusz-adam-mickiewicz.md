@@ -1,3 +1,4 @@
+I lewą ręką włożył na nos okulary,\
 Prawą, rękojeść Rózgi tuż przy piersiach trzyma,\
 Cofa się, Gifrejtera ruch śledząc oczyma;\
 Sam słania się na nogach, jakoby był pijany.\
