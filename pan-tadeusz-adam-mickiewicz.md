@@ -1,3 +1,4 @@
+Nikt nie gadał, pomimo wezwań gospodarza.\
 Strony biorące udział w wielkiej o psów zwadzie,\
 Myśliły o jutrzejszej walce i zakładzie;\
 Myśl wielka zwykle usta do milczenia zmusza.\
