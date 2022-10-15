@@ -1,3 +1,4 @@
+Z jakim prawem do zamku? Wszak wiesz przyjacielu,\
 On Horeszkom dziesiąta woda na kisielu!\
 I ma mnie lżyć? a ja go zapraszać do zgody!»\
 «Bracie! — rzekł ksiądz — ważne są do tego powody.\
