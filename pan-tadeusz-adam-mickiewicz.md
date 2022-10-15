@@ -1,3 +1,4 @@
+Przeświecało coś na wskroś jakby oczu dwoje.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Samotny Hrabia długo jeszcze stał w ogrodzie.\
 Dusza jego, jak ziemia po słońca zachodzie,\
