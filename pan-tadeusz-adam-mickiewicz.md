@@ -1,3 +1,4 @@
+Obok młodzieniec idzie, leszczynę nagina:\
 Chwyta w lot migające orzechy dziewczyna.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem, usłyszeli odgłos rogów i psów granie:\
