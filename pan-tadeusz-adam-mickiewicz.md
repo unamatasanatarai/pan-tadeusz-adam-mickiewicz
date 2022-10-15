@@ -1,3 +1,4 @@
+Wyzwaliśmy, zapewne, i bić się należy.\
 Ale jechać dziś, skądżeś waszeć tak się zaciął?\
 Przed pojedynkiem zwyczaj jest posłać przyjaciół,\
 Układać się. Wszak Hrabia może nas przeprosić,\
