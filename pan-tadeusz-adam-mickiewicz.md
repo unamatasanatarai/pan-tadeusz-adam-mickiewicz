@@ -1,3 +1,4 @@
+I skrzydła wreszcie na spoczynek zwiną;\
 Gdy wróg ostatni wyda krzyk boleści,\
 Umilknie, światu swobodę obwieści —\
 Wtenczas — dębowym liściem uwieńczeni,\
