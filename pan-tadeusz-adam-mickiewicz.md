@@ -1,3 +1,4 @@
+Potrafili obracać tym żelaznym drągiem:\
 I tak rapier na próbę szedł z rak do rąk ciągiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz jenerał Kniaziewicz, wzrostem najsłuszniejszy\
