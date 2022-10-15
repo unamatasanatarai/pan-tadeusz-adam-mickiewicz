@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Do Tadeusza siedzi Telimena bokiem,\
 Pomięszana, zaledwie śmie nań rzucić okiem;\
 Chciała zasępionego Hrabiego zabawić,\
 Wyzwać w dłuższą rozmowę, w lepszy humor wprawić;\
