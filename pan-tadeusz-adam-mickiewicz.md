@@ -1,3 +1,4 @@
+Od stołecznego wzgórka aż po źródła brzegi\
 Wydeptał drogę, którą wiódł swoje szeregi.\
 Nieszczęściem, Telimena siedziała śród drożki:\
 Mrówki, znęcone blaskiem bieluchnej pończoszki,\
