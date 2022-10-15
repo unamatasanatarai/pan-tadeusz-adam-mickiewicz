@@ -1,3 +1,4 @@
+Jak sadza. Co tu doktor?... Ale to rzecz marna.\
 Raz umieramy: jutro czy dziś oddać duszę —\
 Panie Klucznik, przebaczysz mnie, ja skończyć muszę!
 
