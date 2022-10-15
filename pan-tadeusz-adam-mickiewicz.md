@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Klucznik, trwogę Chrzciciela poznawszy po krzyku,\
 Odwrócił się, i spuścił ostrze płytkiej stali\
 Między głowę Chrzciciela i ręce Moskali.\
