@@ -1,3 +1,4 @@
+Grafiątko! ja cię! Tomasz, karabelę! Ja tu\
 Nauczę ciebie mores, błaźnie, daj go katu!\
 Względy, urzędy nudzą, uszko delikatne!\
 Ja cię tu zaraz po tych zauszniczkach płatnę.\
