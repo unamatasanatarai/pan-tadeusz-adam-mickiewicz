@@ -1,3 +1,4 @@
+Aż do każdego strumienia, kamienia,\
 Jak każdy kącik ziemi był znajomy\
 Aż po granicę — po sąsiadów domy.
 
