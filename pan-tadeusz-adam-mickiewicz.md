@@ -1,3 +1,4 @@
+Ten, panie Podkomorzy, i mocno się czubi.\
 Wy dobrzy do wypitki, dobrzy do wybitki,\
 Ale przestańcie robić nad jegrami zbytki».
 
