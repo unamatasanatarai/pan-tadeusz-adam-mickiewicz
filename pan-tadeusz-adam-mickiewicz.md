@@ -1,3 +1,4 @@
+I tam za nią mignęła Wojskiego prawica.\
 Raz tak był tęgi, że dwie odskoczyły głowy,\
 Jak rozdarte piorunem dwie drzewa połowy;\
 Uderzyły się mocno oboje w uszaki,\
