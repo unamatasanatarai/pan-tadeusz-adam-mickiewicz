@@ -1,3 +1,4 @@
+Tabun zmienia się w okręt i wspaniale płynie\
 Cicho, z wolna po niebios błękitnej równinie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia i Telimena poglądali w górę;\
