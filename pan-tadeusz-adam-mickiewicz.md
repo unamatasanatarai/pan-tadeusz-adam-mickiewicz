@@ -1,3 +1,4 @@
+A z przodu rzeźba sterczy jak cyces na czole.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W środku karczmy jest podział jak w żydowskiej szkole:\
 Jedna część, pełna izbic ciasnych i podłużnych,\
