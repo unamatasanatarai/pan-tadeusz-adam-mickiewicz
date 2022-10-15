@@ -1,3 +1,4 @@
+Tyś zabił w oczach ojca — a jam ci przebaczył!\
 Ty!...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Oby tylko równie Bóg przebaczyć raczył! —\
