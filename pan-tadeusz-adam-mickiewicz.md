@@ -1,3 +1,4 @@
+On niedźwiedzia z uwagą dokoła obchodził,\
 Nareszcie dobył tasak, rozciął pysk na dwoje\
 I w tylcu głowy, mózgu rozkroiwszy słoje,\
 Znalazł kulę, wydobył, suknią ochędożył,\
