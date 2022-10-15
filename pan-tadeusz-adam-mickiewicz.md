@@ -1,3 +1,4 @@
+Przywodzą na myśl długie swej wędrówki lata,\
 Po lądach, morzach, piaskach gorących i mrozie,\
 Pośrodku obcych ludów, gdzie często w obozie\
 Cieszył ich i rozrzewniał ten śpiew narodowy.\
