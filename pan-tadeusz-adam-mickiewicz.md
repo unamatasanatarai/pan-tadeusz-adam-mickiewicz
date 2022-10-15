@@ -1,3 +1,4 @@
+Ziemi pierś, co księżycem świeci posrebrzona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już naprzeciw księżyca gwiazda jedna, druga\
 Błysnęła; już ich tysiąc, już milijon mruga.\
