@@ -1,3 +1,4 @@
+Na kopije błyszczące i deszcze siarczyste;\
 A kiedy się rozsławisz walecznymi czyny,\
 I gdy nieśmiertelnymi przesłonisz wawrzyny\
 Skrwawiony szyszak i hełm twój zwycięstwem hardy:\
