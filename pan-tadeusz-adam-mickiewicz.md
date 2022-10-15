@@ -1,3 +1,4 @@
+Dozoru tego nigdy sługom nie poruczy;\
 Bo Sędzia wie, że oko pańskie konia tuczy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski z Woźnym Protazym ze świecami w sieni\
