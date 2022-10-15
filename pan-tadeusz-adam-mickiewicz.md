@@ -1,3 +1,4 @@
+Dosyć ją wynieść na świat, postawić przed słońcem,\
 Aby widzów zdziwiła jasnych barw tysiącem!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ogrodniczka tymczasem powstała w milczeniu,\
