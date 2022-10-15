@@ -1,3 +1,4 @@
+Gdy Podkomorzy sprawą zajmował uwagę\
 Stron interesowanych, on pociągnął wagę:\
 Zgrzytnęły wyszczerbionym zębem koła rdzawe,\
 Wzdrygnął się Podkomorzy i przerwał rozprawę.\
