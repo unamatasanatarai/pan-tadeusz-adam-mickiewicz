@@ -1,3 +1,4 @@
+Grożąc stopie, co na nią nieostrożnie biegnie:\
 Tak Tadeusz, opiły trucizną zazdrości,\
 Zdawał się obojętny, a pękał ze złości.
 
