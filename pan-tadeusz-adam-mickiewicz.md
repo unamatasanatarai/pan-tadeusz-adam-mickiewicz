@@ -1,3 +1,4 @@
+I ciemno się tłumaczył. Wreszcie, koniec końców,\
 My zjechali, sąsiadów zwołali przez gońców.\
 Nie sami tu panowie Dobrzyńscy jesteście;\
 Z różnych innych zaścianków jest tu nas ze dwieście:\
