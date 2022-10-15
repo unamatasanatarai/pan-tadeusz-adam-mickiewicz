@@ -1,3 +1,4 @@
+Chyba Maciej Dobrzyński! A to? Jenerale,\
 Mój wynalazek, dalbóg mój; ja się nie chwalę:\
 To cięcie znane tylko w Rębajłów zaścianku,\
 Od mojego imienia zwane *cios mopanku*;\
