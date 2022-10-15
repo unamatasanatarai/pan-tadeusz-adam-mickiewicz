@@ -1,3 +1,4 @@
+Jako skrzydła motyle do lotu wydęte,\
 U dłoni skarbowane i wstążką opięte.\
 Szyja także koszulką obciśniona wąską,\
 Kołnierzyk zadzierzgniony różową zawiązką;\
