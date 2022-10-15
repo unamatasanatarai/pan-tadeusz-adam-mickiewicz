@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Jak mamę kocham — rzekła — czy to, panie bracie,\
 Jest w tym sens jaki, czy wy Boga w sercu macie?\
 To myślisz Tadeusza zostać dobrodziejem,\
 Jeśli młodego chłopca zrobisz grykosiejem?\
