@@ -1,3 +1,4 @@
+Bóstwem jesteś czy nimfą, duchem czy widzeniem!\
 Mów: własna li cię wola na ziemię sprowadza,\
 Obca li więzi ciebie na padole władza?\
 Ach, domyślam się, — pewnie wzgardzony miłośnik,\
