@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nieboszczyk pan mój, Stolnik, pierwszy pan w powiecie,\
 Bogacz i familiant, miał jedyne dziecię,\
 Córkę piękną jak anioł; więc się zalecało\
 Stolnikównie i szlachty, i paniąt niemało.\
