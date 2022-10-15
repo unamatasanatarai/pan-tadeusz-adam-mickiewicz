@@ -1,3 +1,4 @@
+Myśliwiec krąży koło puszcz litewskich łoża,\
 Zna je ledwie po wierzchu, ich postać, ich lice:\
 Lecz obce mu ich wnętrzne serca tajemnice;\
 Wieść tylko albo bajka wie, co się w nich dzieje.\
