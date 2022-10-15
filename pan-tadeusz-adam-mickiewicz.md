@@ -1,3 +1,4 @@
+Dawno wszedł dzień, a jeszcze ledwie jest widomy:\
 Mgła wisiała nad ziemią, jak strzecha ze słomy\
 Nad ubogą Litwina chatką; w stronie wschodu,\
 Widać z bielszego nieco na niebie obwodu\
