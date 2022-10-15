@@ -1,3 +1,4 @@
+Odhartowała, kładąc je w piec zamiast rożna;\
 Buńczukiem, łupem z Wiednia, otrzepywa żarna:\
 Słowem, wygnała Marsa Ceres gospodarna\
 I panuje z Pomoną, Florą i Wertumnem\
