@@ -1,3 +1,4 @@
+Dobrze mój Tadeuszu, żeś się dziś nagodził\
 Do domu, właśnie kiedy mamy panien wiele.\
 Stryjaszek myśli wkrótce sprawić ci wesele;\
 Jest z czego wybrać; u nas towarzystwo liczne\
