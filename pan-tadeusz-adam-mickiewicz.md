@@ -1,3 +1,4 @@
+W Marengo, w Ulm, w Austerlitz. Zwycięstwo i Zabor\
 Biegły przed nim i za nim. Sława czynów tylu,\
 Brzemienna imionami rycerzy, od Nilu\
 Szła hucząc ku północy, aż u Niemna brzegów\
