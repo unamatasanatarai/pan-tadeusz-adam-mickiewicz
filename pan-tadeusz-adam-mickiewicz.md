@@ -1,3 +1,4 @@
+Na pagórku niewielkim, we brzozowym gaju,\
 Stał dwór szlachecki, z drzewa, lecz podmurowany;\
 Świeciły się z daleka pobielane ściany,\
 Tym bielsze, że odbite od ciemnej zieleni\
