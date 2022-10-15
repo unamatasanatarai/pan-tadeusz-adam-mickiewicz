@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia od rana pisał, zamknąwszy się w izbie;\
 Woźny od rana czekał pod oknem na przyzbie.\
 Sędzia, skończywszy pozew, Protazego wzywa,\
