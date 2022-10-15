@@ -1,3 +1,4 @@
+Bo wszak nad tym od dawna dzień i noc boleję,\
 Czy po śmierci ten rapier mój nie zerdzewieje!\
 Otóż nie zerdzewieje! Mój jaśnie wielmożny\
 Jenerale, wybacz mi, porzućcie te rożny,\
