@@ -1,3 +1,4 @@
+I przysięgli strzelać się przez niedźwiedzią skórę:\
 To mi to po szlachecku, prawie rura w rurę.\
 Pojedynek ten wiele narobił hałasu;\
 Pieśni o nim śpiewano za owego czasu.\
