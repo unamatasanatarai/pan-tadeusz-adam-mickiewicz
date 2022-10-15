@@ -1,3 +1,4 @@
+Obmyśla ją; i to jest najpierwsza obrada.\
 Potem każdy wolności własnej cząstkę składa\
 Dla dobra powszechnego: to pierwsza ustawa,\
 Z której jako ze źródła płyną wszystkie prawa.\
