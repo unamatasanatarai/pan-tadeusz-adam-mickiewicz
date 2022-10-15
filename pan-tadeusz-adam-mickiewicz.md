@@ -1,3 +1,4 @@
+Wojski miał *muchomora*. Z próżnymi przychodzi\
 Rękami Telimena; z nią panicze młodzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem.\
