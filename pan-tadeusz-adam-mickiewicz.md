@@ -1,3 +1,4 @@
+Już zachwiał się, już czeladź zakasawszy pięście\
 Rzucała się nań zewsząd hurmem: gdy na szczęście\
 Zosia, widząc szturm, skoczy, i litością zdjęta\
 Zasłania starca, na krzyż rozpiąwszy rączęta.\
