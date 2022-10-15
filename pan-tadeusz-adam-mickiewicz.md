@@ -1,3 +1,4 @@
+Że słońce wstało, tędy ma zstąpić na ziemię;\
 Lecz idzie niewesoło i po drodze drzemie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za przykładem niebieskim, wszystko się spóźniło\
