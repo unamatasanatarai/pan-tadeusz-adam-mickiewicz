@@ -1,3 +1,4 @@
+Włóczyć, czy markietankę?» — «To my się pobierzem»\
 Rzekła mu Telimena. «Nie, nigdy! — zawoła\
 Tadeusz.— Ja żenić się nie mam teraz zgoła\
 Zamiaru, ni kochać się. Fraszki! dajmy pokój!\
