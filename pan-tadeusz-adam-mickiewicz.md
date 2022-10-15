@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Zosia tańczy wesoło: lecz choć w pierwszej parze,\
 Ledwie widna z daleka. Na wielkim obszarze\
 Zarosłego dziedzińca, w zielonej sukience,\
 Ustrojona w równianki i w kwieciste wieńce,\
