@@ -1,3 +1,4 @@
+Sprawując ule dla pszczół, lekarstwa dla bydła,\
 Szląc na targ kuropatwy, które łowił w sidła\
 I polując na źwierza.
 
