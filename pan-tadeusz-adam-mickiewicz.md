@@ -1,3 +1,4 @@
+Ukłonił się i usty dźwięcznymi tak brząknął:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Preopinanci moi w swych głosach wymownych\
 Dotknęli wszystkich punktów stanowczych i głownych,\
