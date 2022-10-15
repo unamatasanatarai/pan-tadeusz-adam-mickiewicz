@@ -1,3 +1,4 @@
+Co tu zbroił nieboszczyk pan Jacek Soplica:\
 Ale kiedy o grzechach jego wszyscy wiecie,\
 Czas i zasługi jego ogłosić na świecie.\
 Obecni tu są naszych wojsk jenerałowie,\
