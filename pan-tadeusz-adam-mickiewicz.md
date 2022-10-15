@@ -1,3 +1,4 @@
+Co się tycze procesu, sąd arbitrów będzie...»\
 Bernardyn trzasnął drzwiami. «No, szczęśliwa droga!»\
 Rzekł Sędzia.
 
