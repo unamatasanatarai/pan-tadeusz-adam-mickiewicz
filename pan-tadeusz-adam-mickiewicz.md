@@ -1,3 +1,4 @@
+Daremnie w tył Kropiciel ciska ślepe razy;\
 Chwieje się: a wtem postrzegł, że blisko Gerwazy\
 Walczy; zawołał: «Jezus Maryja! Scyzoryku!»
 
