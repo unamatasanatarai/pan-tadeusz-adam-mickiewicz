@@ -1,3 +1,4 @@
+Rozpuszczając na wiatry warkocz posrebrzony,\
 Teraz jak martwe, z niemej wyrazem żałoby,\
 Stoją na kształt posągów sypilskiej Nijoby.\
 Jedna osina drżąca, wstrząsa liście siwe.
