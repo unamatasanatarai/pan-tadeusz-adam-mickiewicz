@@ -1,3 +1,4 @@
+Sędzia Podkomorzego zdał się radzić okiem;\
 Podkomorzy pochwałą rzeczy nie przerywał,\
 Ale częstym skinieniem głowy potakiwał.\
 Sędzia milczał, on jeszcze skinieniem przyzwalał;\
