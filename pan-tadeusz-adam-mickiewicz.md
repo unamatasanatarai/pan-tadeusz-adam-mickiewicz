@@ -1,3 +1,4 @@
+Przecież nie byłem zdrajcą kraju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Moskwa mnie uważała gwałtem za stronnika.\
 Dano Soplicom znaczną część dóbr nieboszczyka;\
