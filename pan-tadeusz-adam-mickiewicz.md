@@ -1,3 +1,4 @@
+Szlachta w krzyk: »To śmierć pewna! Prawie rura w rurę!«\
 A ja w śmiech. Bo mnie uczył mój przyjaciel Maro,\
 Że skóra zwierza nie jest lada jaką miarą.\
 Wszak wiecie waćpanowie, jak królowa Dydo\
