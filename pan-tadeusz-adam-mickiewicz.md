@@ -1,3 +1,4 @@
+Lecz muszę ciebie ostrzec, że tych ziem nadanie\
 Zmniejszy nasz dochód, w miernym musimy żyć stanie.\
 Ja przywykłem do życia oszczędnego z młodu;\
 Lecz ty Zofio, jesteś z wysokiego rodu,\
