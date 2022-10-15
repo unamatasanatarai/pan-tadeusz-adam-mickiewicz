@@ -1,3 +1,4 @@
+Ale z rozweselonym słuchała obliczem.\
 Jak dziecię lubi widzieć obrazki jaskrawe\
 I w liczmanach błyszczących znajduje zabawę,\
 Nim rozezna ich wartość: tak się słuch jej pieści\
