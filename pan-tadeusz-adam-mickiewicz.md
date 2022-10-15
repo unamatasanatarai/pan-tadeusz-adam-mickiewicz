@@ -1,3 +1,4 @@
+Jak biały ptak zleciała z parkanu na błonie,\
 I wionęła ogrodem, przez płotki, przez kwiaty,\
 I po desce opartej o ścianę komnaty...\
 Nim spostrzegł się, wleciała przez okno, świecąca,\
