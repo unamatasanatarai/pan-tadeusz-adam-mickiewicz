@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Któż ostatni, nie dbając na groźby i razy,\
 Ustąpił z placu bitwy? Brzechalski Protazy.\
 On, za krzesłem Sędziego stojąc niewzruszenie,\
