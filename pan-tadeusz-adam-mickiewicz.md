@@ -1,3 +1,4 @@
+Jak łódź z okrętem w burzy, rozłączyć się muszą!\
 Zaiste! nic tak uczuć w sercu nie rozpala,\
 Jako kiedy się serce od serca oddala.\
 Czas jest to wiatr, on tylko małą świecę zdmuchnie,\
