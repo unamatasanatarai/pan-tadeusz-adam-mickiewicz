@@ -1,3 +1,4 @@
+I wnet zaczęli wchodzić parami lokaje\
 Roznoszący potrawy: barszcz królewskim zwany,\
 I rosół staropolski sztucznie gotowany,\
 Do którego pan Wojski z dziwnymi sekrety\
