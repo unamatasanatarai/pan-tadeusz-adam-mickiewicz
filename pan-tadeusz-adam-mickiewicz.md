@@ -1,3 +1,4 @@
+W której jest trochę szczęścia dla Polaka:\
 Kraj lat dziecinnych! On zawsze zostanie\
 Święty i czysty jak pierwsze kochanie,\
 Niezaburzony błędów przypomnieniem,\
