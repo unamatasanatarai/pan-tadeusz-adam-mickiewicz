@@ -1,3 +1,4 @@
+Śpieszy, łączy się z szlachtą i staje na czele.\
 Bieży, broń wzniósłszy, szlachta rusza jego śladem:\
 Jegry przypuściwszy ich, sypnęli kul gradem:\
 Legł Isajewicz, Wilbik, Brzytewka raniony;\
