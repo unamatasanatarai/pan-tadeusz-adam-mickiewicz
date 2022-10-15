@@ -1,3 +1,4 @@
+A koło mnie srebrzył się tu mech siwobrody,\
 Zlany granatem czarnej, zgniecionej jagody,\
 A tam się czerwieniły wrzosiste pagórki,\
 Strojne w brusznice jakby w koralów paciórki.\
