@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Wszak sam wiesz, Gerwazeńku, jak Stolnik zapraszał\
 Często mnie na biesiady, zdrowie moje wnaszał,\
 Krzyczał nieraz, do góry podniósłszy szklanicę,\
