@@ -1,3 +1,4 @@
+Złotą na dzień galowy, a czarną w żałobie.\
 Sam Woźny umiał pas ten odwiązywać, składać;\
 Właśnie tym się zatrudniał i kończył tak gadać:
 
