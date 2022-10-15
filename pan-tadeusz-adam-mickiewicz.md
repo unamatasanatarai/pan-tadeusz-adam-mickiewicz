@@ -1,3 +1,4 @@
+Rzekł ekonom — rad będzie księdzu pan chorąży;\
 Wszakże na Litwie stare powiada przysłowie:\
 Szczęśliwy człowiek, jako kwestarz w Niehrymowie!»\
 «I do nas — rzekł Zubkowski — wstąp jeżeli łaska;\
