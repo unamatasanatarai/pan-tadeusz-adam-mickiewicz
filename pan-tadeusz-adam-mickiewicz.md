@@ -1,3 +1,4 @@
+Ciąć oburącz, to przetniesz od głowy do brzucha».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jenerał wziął Scyzoryk; lecz że bardzo długi,\
 Nie mógł nosić, w furgonie schowały go sługi.\
