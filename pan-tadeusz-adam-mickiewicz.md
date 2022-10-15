@@ -1,3 +1,4 @@
+Klucznik widzi Horeszki, swoje dawne pany;\
 Ci niosą karabele, drudzy buzdygany,\
 Każdy groźnie spoziera i pokręca wąsa,\
 Składa się karabelą, buzdyganem wstrząsa;\
