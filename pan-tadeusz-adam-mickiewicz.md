@@ -1,3 +1,4 @@
+Przez które Bóg (jak mówią) przesiał ziarnka żyta,\
 Kiedy je z nieba zrzucał dla Adama ojca\
 Wygnanego za grzechy z rozkoszy ogrojca.
 
