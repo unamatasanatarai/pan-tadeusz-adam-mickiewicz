@@ -1,3 +1,4 @@
+Daj mi, stryjaszku, tylko twe błogosławieństwo,\
 Wszystko przygotowałem, jadę zaraz w Księstwo».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, wąs kręcąc, z gniewem na chłopca spozierał:\
