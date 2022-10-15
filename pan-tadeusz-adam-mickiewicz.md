@@ -1,3 +1,4 @@
+Świt bez rumieńca, wiodąc dzień bez światła w oku.\
 Dawno wszedł dzień, a jeszcze ledwie jest widomy:\
 Mgła wisiała nad ziemią, jak strzecha ze słomy\
 Nad ubogą Litwina chatką; w stronie wschodu,\
