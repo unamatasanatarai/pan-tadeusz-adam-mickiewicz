@@ -1,3 +1,4 @@
+Ciszę przerywał tylko głos nocnego stróża.\
 Usnęli wszyscy. Sędzia sam oczu nie zmruża;\
 Jako wódz gospodarstwa obmyśla wyprawę\
 W pole i w domu przyszłą urządza zabawę.\
