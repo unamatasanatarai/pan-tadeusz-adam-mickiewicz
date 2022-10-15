@@ -1,3 +1,4 @@
+Których cień spadał niegdyś na koronne głowy\
 Groźnego Witenesa, wielkiego Mindowy,\
 I Giedymina, kiedy na Ponarskiej Górze,\
 Przy ognisku myśliwskim, na niedźwiedziej skórze\
