@@ -1,3 +1,4 @@
+Poprawiała, to lekkim dotknięciem się ręki\
 Muskała włosów pukle i wstąg jasnych pęki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ta przerwa rozmów trwała już minut ze cztery.\
