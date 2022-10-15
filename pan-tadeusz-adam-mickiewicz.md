@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Filut — zawołał Chrzciciel — oj, i ja go kropnę\
 Za swoje. Mój syn, było to dziecko roztropne,\
 Teraz tak zgłupiał, że go nazywają Sakiem;\
 A z przyczyny Sędziego został głupcem takim.\
