@@ -1,3 +1,4 @@
+Jest z czego wybrać; u nas towarzystwo liczne\
 Od dni kilku zbiera się na sądy graniczne,\
 Dla skończenia dawnego z panem Hrabią sporu.\
 I pan Hrabia ma jutro sam zjechać do dworu;\
