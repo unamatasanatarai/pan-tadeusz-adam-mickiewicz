@@ -1,3 +1,4 @@
+Wlazł na nie i zarazem jakby go wiatr zdmuchnął,\
 Zniknął z oczu. Słyszano, jak w kapustę buchnął;\
 Widziano, po konopiach ciemnych jego biała\
 Konfederatka niby gołąb przeleciała.\
