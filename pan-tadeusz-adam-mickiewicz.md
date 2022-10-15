@@ -1,3 +1,4 @@
+A on znowu fajt w lewo, jak wytnie dwa susy,\
 Psy za nim fajt na lewo: on w las, a mój Kusy\
 Cap!» Tak krzycząc, pan Rejent na stół pochylony,\
 Z palcami swymi zabiegł aż do drugiej strony,\
