@@ -1,3 +1,4 @@
+Chybkim był zostawiony nóżkami drobnemi\
 Od kogoś, co zaledwie dotykał się ziemi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podróżny długo w oknie stał patrząc, dumając,\
