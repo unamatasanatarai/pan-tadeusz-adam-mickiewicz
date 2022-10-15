@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Jaśnie wielmożny koronny hetmanie,\
 Czy jenerale, mniejsza o tytułowanie,\
 Jam jest Rębajło, staję na twe zawołanie\
