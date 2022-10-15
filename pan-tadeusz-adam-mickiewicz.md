@@ -1,3 +1,4 @@
+Ilekroć zaś wspomnicie o dzisiejszym trafie,\
 Wspomnijcie też starego Wojskiego przestrogę:\
 Nigdy jeden drugiemu nie zachodzić w drogę,\
 Nigdy we dwóch nie strzelać do jednej źwierzyny».
