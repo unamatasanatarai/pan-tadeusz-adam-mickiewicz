@@ -1,3 +1,4 @@
+Dążyły przecież wszystkie do jednego celu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Na wieś! — zawołał Sędzia — hej! konno, setnika!\
 Jutro na brzask obława, lecz na ochotnika;\
