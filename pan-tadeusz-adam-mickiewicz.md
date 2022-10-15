@@ -1,3 +1,4 @@
+Ile świec w oknach, jaka brzmi w salach muzyka!\
 I ten zamek na łysą głowę mu nie runie?...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pomyśl o zemście, to wnet szatan broń podsunie.\
