@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Tadeusz, choć młodzik, ale prawem gościa\
 Wysoko siadł przy damach obok jegomościa;\
 Między nim i stryjaszkiem jedno pozostało\
