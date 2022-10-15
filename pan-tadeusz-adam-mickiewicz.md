@@ -1,3 +1,4 @@
+Jedni dotychczas sprzymierzeńcy pewni!\
 Bo któż tam mieszkał? Matka, bracia, krewni,\
 Sąsiedzi dobrzy!... Kogo z nich ubyło,\
 Jakże tam o nim czule się mówiło!\
