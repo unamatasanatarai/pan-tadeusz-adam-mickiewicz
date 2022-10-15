@@ -1,3 +1,4 @@
+Chciałem wam komedyję niby to wyprawić,\
 Wznowić koncept, który ja lat temu czterdzieście\
 Wymyśliłem — przedziwny! Wy młodzi jesteście,\
 Nie pamiętacie o nim; lecz za moich czasów,\
