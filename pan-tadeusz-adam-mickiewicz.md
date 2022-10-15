@@ -1,3 +1,4 @@
+Dla mieszczan, mnóstwem głosów szepce mu do ucha.
 
 Tam derkacz wrzasnął z łąki, szukać go daremnie,\
 Bo on szybuje w trawie jako szczupak w Niemnie;\
