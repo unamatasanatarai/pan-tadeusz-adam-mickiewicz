@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Mój Hrabio — przerwał Sędzia — po co chcesz koniecznie\
 Wyjeżdżać? Wierz mi, w twoich dobrach siedź bezpiecznie\
 Szlachtę biedną rząd mógłby odrzeć i przechłostać,\
