@@ -1,3 +1,4 @@
+Gościom różne ciekawe historyje prawił,\
 Albo ich powieściami i żarty się bawił,\
 A młodzież na dziedzińcu biła się w palcaty,\
 Lub ujeżdżała pańskie tureckie bachmaty».
