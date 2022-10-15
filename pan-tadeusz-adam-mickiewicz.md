@@ -1,3 +1,4 @@
+Na natrętność; pytany o zdrowie — poziewa.\
 Ma za złe (tak się zmienił jednego wieczora),\
 Że Telimena zbytnie do zalotów skora;\
 Gorszy się, że jej suknia tak wcięta głęboko,\
