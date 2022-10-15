@@ -1,3 +1,4 @@
+Wyskoczył Hrabia zbrojny i zerwał układy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Soplico! — wołał — z przeproszeniem pana,\
 Pan wyzwałeś Majora! Ja do Kapitana\
