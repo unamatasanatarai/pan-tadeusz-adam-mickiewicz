@@ -1,3 +1,4 @@
+Suwając się przez rowy i skacząc przez płoty,\
 Bez celu i bez drogi; aż niemało czasu\
 Nabłąkawszy się, w końcu wszedł w głębinę lasu\
 I trafił, czy umyślnie, czyli też przypadkiem,\
