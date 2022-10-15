@@ -1,3 +1,4 @@
+Bo Sędzia nigdy nie chciał, według nowej mody,\
 Odsyłać koni gości Żydom do gospody.\
 Słudzy nie wyszli witać; ale nie myśl wcale,\
 Aby w domu Sędziego służono niedbale:\
