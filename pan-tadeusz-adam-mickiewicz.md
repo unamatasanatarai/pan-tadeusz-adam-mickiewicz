@@ -1,3 +1,4 @@
+Odkryte; włosy na nich krótkie, jak len białe;\
 Szyje nagie do ramion; a pomiędzy nimi\
 Dziewczyna głową wyższa, z włosami dłuższymi.\
 Tuż za dziećmi paw siedział i piór swych obręcze\
