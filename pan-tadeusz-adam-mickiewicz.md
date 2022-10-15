@@ -1,3 +1,4 @@
+Tam, bezprzykładną w dziejach polowania sztuką,\
 Uszczułem sześć zajęcy pojedynczą suką.\
 Polowaliśmy wtenczas na Kupiskim błoniu;\
 Książę Radziwiłł nie mógł dosiedzieć na koniu:\
