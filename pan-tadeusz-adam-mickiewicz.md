@@ -1,3 +1,4 @@
+Rzekł, na Telimenę spojrzał, ale ona\
 Nic nie odpowiadała, strasznie zadziwiona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Mój Hrabio — przerwał Sędzia — po co chcesz koniecznie\
