@@ -1,3 +1,4 @@
+Dziś jeszcze, nim spać pójdzie. Nie śmie do drzwi stukać;\
 Sędzia drzwi na klucz zamknął, z kimś tajnie rozmawia;\
 Tadeusz końca czeka, a ucha nadstawia.
 
