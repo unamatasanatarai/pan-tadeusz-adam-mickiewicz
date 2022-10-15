@@ -1,3 +1,4 @@
+Jaka burza te ptaki tak wcześnie wygania?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Aż oto nowe stada: jakby gilów, siewek\
 I szpaków, stada jasnych kit i chorągiewek\
