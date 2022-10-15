@@ -1,3 +1,4 @@
+Kiedy Sędzia początek powieści posłyszał\
 I tak nią był zajęty, że z zadartą głową,\
 I z kartą podniesioną, do bicia gotową,\
 Siedział cicho i tylko bernardyna trwożył.\
