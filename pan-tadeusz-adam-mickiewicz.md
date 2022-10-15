@@ -1,3 +1,4 @@
+W środku szarzał się kamień; strumień spod kamienia\
 Szumiał, tryskał i zaraz, jakby szukał cienia,\
 Chował się między gęste i wysokie zioła,\
 Które wodą pojone bujały dokoła;\
