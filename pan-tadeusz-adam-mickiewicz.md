@@ -1,3 +1,4 @@
+Od łona aż do szyi sznurowany w pręgi;\
 Pod nim pierś jako pączek pod listkiem się tuli.\
 Od ramion świecą białe rękawy koszuli,\
 Jako skrzydła motyle do lotu wydęte,\
