@@ -1,3 +1,4 @@
+Leciały jak przed wozem bogini rozkoszy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia przez okno z krzykiem do alkowy wpadła,\
 I na kolanach ciotki zadyszana siadła;\
