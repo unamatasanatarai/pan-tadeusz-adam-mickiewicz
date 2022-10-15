@@ -1,3 +1,4 @@
+Ścigałem ich na sejmach, zajazdach, jarmarkach.\
 Dwóch zarąbałem w kłótni, dwóch na pojedynku;\
 Jednego podpaliłem w drewnianym budynku,\
 Kiedyśmy zajeżdżali z Rymszą Korelicze:\
