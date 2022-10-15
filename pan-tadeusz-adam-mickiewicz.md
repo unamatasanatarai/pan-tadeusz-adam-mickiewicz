@@ -1,3 +1,4 @@
+I pokaże mi przecież trochę ludzkiej duszy\
 Jak ślimak rogów!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ach, kto choć na dnie serca ma dla przyjaciela\
