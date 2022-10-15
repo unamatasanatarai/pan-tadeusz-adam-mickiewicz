@@ -1,3 +1,4 @@
+Nawet wtenczas, gdy milczał lub z placką za muchą\
 Skradał się, lub zamknąwszy oczy siadał marzyć;\
 W dzień szukał rozmów, w nocy musiano mu gwarzyć\
 Pacierze różańcowe albo gadać bajki.\
