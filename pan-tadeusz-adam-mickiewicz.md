@@ -1,3 +1,4 @@
+Udrapowany płaszczem, siadłbym na ruinach,\
 A ty byś mi o krwawych rozpowiadał czynach.\
 Szkoda, że masz niewielki dar opowiadania!\
 Nieraz takie słyszałem i czytam podania;\
