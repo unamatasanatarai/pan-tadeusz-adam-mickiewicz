@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Dobrze zrobił Protazy, że w drogę pośpieszył,\
 Bo niedługo by swoim pozwem się nacieszył:\
 W Soplicowie zmieniano kampanii plany.\
 Do Sędziego wpadł nagle Robak zadumany,\
