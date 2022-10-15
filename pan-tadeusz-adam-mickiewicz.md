@@ -1,3 +1,4 @@
+Jedne po drugich, biorąc konopie na świadki:\
 Jako raz zapozwany szlachcic z Telsz, Dzindolet,\
 Rozkazał mu, oparłszy o piersi pistolet,\
 Wleźć pod stół i ów pozew psim głosem odszczekać,\
