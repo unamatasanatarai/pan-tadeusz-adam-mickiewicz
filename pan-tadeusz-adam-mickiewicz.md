@@ -1,3 +1,4 @@
+Tylko je egzekwować! Tak dawniej bywało:\
 Trybunał pisał dekret; szlachta wypełniała,\
 A szczególniej Dobrzyńscy, i stąd wasza chwała\
 Urosła w Litwie! Wszakże to Dobrzyńscy sami\
