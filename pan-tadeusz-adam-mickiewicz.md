@@ -1,3 +1,4 @@
+On, odetchnąwszy nieco, rzekł: «Niedźwiedź, mospanie!»\
 Resztę wszyscy odgadli: że źwierz z *matecznika*\
 Wyszedł, że w zaniemeńską puszczę się przemyka,\
 Że go trzeba wnet ścigać, wszyscy wraz uznali,\
