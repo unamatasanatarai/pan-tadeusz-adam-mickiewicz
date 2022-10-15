@@ -1,3 +1,4 @@
+Mimowolnie; poglądał z trwogą na jej postać:\
 Stała blada, bez ruchu, bez tchu i bez życia;\
 Aż wyciągając rękę jak miecz do przebicia,\
 Z palcem zmierzonym prosto w Tadeusza oczy:\
