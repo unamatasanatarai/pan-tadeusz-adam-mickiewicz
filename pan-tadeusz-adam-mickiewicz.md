@@ -1,3 +1,4 @@
+Musieli po komnatach odmieniać swą odzież,\
 Nie chcąc wniść do dam w kurtkach. Pierwsza wpadła młodzież,\
 Pan Tadeusz i Hrabia, co żywo przebrani.
 
