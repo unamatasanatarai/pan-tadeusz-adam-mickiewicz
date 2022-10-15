@@ -1,3 +1,4 @@
+Rozsądź nas, kto zna lepiej zwierzynę i łowy!«\
 Policmajster powinność służby swej rozumiał:\
 Bardzo się nad zuchwalstwem czynownika zdumiał\
 I odwiódłszy na stronę po bratersku radził,\
