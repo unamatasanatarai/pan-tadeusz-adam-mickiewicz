@@ -1,3 +1,4 @@
+Kto widział zajazd robić z chłopstwem i z lokajstwem?\
 Mój panie, na zajazdach nie znacie się wcale!\
 Wąsalów, co innego: zdadzą się wąsale;\
 Nie we włości ich szukać, ale po zaściankach,\
