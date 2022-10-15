@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Mój Tadeuszku — rzekł stryj — czy waszeć kąpany\
 W gorącej wodzie, czy też kręcisz jak lis szczwany,\
 Co indziej kitą wije, a sam indziej bieży?\
 Wyzwaliśmy, zapewne, i bić się należy.\
