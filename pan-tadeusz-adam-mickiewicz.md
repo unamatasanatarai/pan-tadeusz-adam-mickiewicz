@@ -1,3 +1,4 @@
+Całą zimę nieborak tułał się po lasach,\
 Teraz dopiero wyszedł. W tych wojennych czasach\
 Mógłby się na co przydać, jest rycerskim człekiem,\
 Szkoda tylko, że trochę przyciśniony wiekiem.\
