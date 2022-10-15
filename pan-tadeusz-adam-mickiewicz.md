@@ -1,3 +1,4 @@
+Co nam do Lachów? Niechaj Moskwa dla Moskala,\
 Polska dla Lacha; ale cóż? car nie pozwala!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia mu na to rzecze: «Panie Kapitanie,\
