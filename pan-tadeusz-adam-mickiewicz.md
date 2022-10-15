@@ -1,3 +1,4 @@
+Wyszukują ołowiu. Reszta spracowana\
 Szła spać wcześnie, ażeby przebudzić się z rana.
 
 
