@@ -1,3 +1,4 @@
+Więc z wolna głowę ku niej zza drzewa wychylił —\
 Gdy nagle Telimena zrywa się z siedzenia,\
 Rzuca się w prawo, w lewo, skacze skróś strumienia,\
 Rozkrzyżowana, z włosem rozpuszczonym, blada,\
