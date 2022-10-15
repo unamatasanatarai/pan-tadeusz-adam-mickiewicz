@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Rzekł, nasuwał kapelusz, odwracał się bokiem,\
 Chcąc iść; lecz go wstrzymała Telimena okiem\
 I twarzą, jak Meduzy głową. Musiał zostać\
