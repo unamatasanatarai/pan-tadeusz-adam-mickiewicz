@@ -1,3 +1,4 @@
+Mocą, czystością, dziwną harmoniją pieni.\
 Starzec cały kunszt, którym niegdyś w lasach słynął,\
 Jeszcze raz przed uszami myśliwców rozwinął;\
 Napełnił wnet, ożywił knieje i dąbrowy,\
