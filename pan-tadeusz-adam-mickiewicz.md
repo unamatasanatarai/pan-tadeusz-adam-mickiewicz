@@ -1,3 +1,4 @@
+Jest bigos, bo się z jarzyn dobrych sztucznie składa.\
 Bierze się doń siekana, kwaszona kapusta,\
 Która, wedle przysłowia, sama idzie w usta;\
 Zamknięta w kotle, łonem wilgotnym okrywa\
