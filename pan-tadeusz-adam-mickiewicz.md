@@ -1,3 +1,4 @@
+Miał pełno interesów: to listy odbierał,\
 Których nigdy przy obcych ludziach nie otwierał,\
 To wysyłał posłańców, ale gdzie i po co\
 Nie powiadał; częstokroć wymykał się nocą\
