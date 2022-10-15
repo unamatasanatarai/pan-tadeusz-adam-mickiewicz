@@ -1,3 +1,4 @@
+Czy to prawda, że Francuz gości teraz w mieście,\
 Że chce kościół rozwalać i skarbiec zabierze:\
 Bo to wszystko w Litewskim stoi Kuryjerze?»\
 «Nieprawda — rzekł bernardyn — nie! Pan Najjaśniejszy,\
