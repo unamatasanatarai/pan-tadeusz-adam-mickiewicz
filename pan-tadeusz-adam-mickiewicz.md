@@ -1,3 +1,4 @@
+Jeżeli kłamię: spytaj, a oficerowie\
 Wszyscy poświadczą, cała armija to powie:\
 Że w tej drugiej armiji, w korpusie dziewiątym,\
 W drugiej pieszej dywizji, w pułku pięćdziesiątym\
