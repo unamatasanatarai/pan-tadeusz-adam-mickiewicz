@@ -1,3 +1,4 @@
+I w brodzie ślad niedawny lancy lub postrzału;\
 Ran tych nie dostał pewnie przy czytaniu mszału.\
 Ale nie tylko groźne wejrzenie i blizny,\
 Lecz sam ruch i głos jego miał coś żołnierszczyzny.
