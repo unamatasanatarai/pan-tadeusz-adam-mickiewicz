@@ -1,3 +1,4 @@
+Więc ja to sobie w nocy rozbieram z uwagą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie dniało, już z jednej strony taradejką\
 Jedzie Doweyko, z drugiej na koniu Domeyko.\
