@@ -1,3 +1,4 @@
+Lub zostań, wydam światu twoje bezeceństwa;\
 Twe sztuki już nie zwiodą innych, jak mnie zwiodły!\
 Precz! gardzę tobą! jesteś kłamca, człowiek podły!»
 
