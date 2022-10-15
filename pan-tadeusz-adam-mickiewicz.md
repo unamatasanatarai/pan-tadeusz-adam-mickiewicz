@@ -1,3 +1,4 @@
+Zaraz, dzisiaj, stryjaszku, a jutro najdaléj:\
 Wszak pamiętacie, żeśmy Hrabiego wyzwali.\
 Bić się z nim to rzecz moja, posłałem wyzwanie,\
 W Litwie jest zakazane pojedynkowanie,\
