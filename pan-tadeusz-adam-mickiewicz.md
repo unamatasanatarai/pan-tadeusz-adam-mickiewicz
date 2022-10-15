@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Samotny Hrabia długo jeszcze stał w ogrodzie.\
 Dusza jego, jak ziemia po słońca zachodzie,\
 Ostygała powoli, barwy brała ciemne;\
