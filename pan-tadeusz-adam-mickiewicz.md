@@ -1,3 +1,4 @@
+Widzi rzecz dziwną! Sędzia i Robak na ziemi\
 Klęczeli, objąwszy się i łzami rzewnemi\
 Płakali; Robak ręce Sędziego całował,\
 Sędzia księdza za szyję płacząc obejmował.\
