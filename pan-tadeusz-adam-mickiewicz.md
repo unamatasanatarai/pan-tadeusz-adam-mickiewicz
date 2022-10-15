@@ -1,3 +1,4 @@
+Prosto w tłum; tłum tancerzy nie śmie dostać w kroku,\
 Ustępują mu z drogi, — i zmieniwszy szyki,\
 Puszczają się znów za nim. —
 
