@@ -1,3 +1,4 @@
+Ale mi dał zbyt piękny przykład ten młodzieniec,\
 Sam dobrowolnie ślubny swój zrywając wieniec,\
 I biegąc serca swego doświadczać w przeszkodach\
 Zmiennych losów i w krwawych wojennych przygodach.\
