@@ -1,3 +1,4 @@
+*Zwalcz dziś Marsa Hymenem; srogiej niezgód hydrze*\
 *Niech dłoń twoja syczące z czoła żmije wydrze!* —\
 Tadeusz i Zofia ustawnie klaskali,\
 Niby chwaląc, w istocie nie chcąc słuchać daléj.\
