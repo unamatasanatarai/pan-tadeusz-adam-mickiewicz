@@ -1,3 +1,4 @@
+(Tej części mowy Sędzia słuchał z niepojętem\
 Pomieszaniem, żałością i widocznym wstrętem;\
 Jakby lękał się reszty mowy, głowę skłonił,\
 I ręką potakując, mocno się zapłonił.)
