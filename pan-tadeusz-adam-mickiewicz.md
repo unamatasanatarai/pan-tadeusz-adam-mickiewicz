@@ -1,3 +1,4 @@
+I śmiechem; «Precz — wołano — precz Prusaki tchórze!\
 Kto tchórz, niech w bernardyńskim chowa się kapturze!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem znowu głowę z wolna podniósł Maciej stary,\
