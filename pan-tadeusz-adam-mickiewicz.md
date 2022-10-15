@@ -1,3 +1,4 @@
+Czas i zasługi jego ogłosić na świecie.\
 Obecni tu są naszych wojsk jenerałowie,\
 Od których usłyszałem wszystko, co wam mówię.\
 Ten Jacek nie był umarł (jak głoszono) w Rzymie,\
