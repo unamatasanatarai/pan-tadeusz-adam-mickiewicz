@@ -1,3 +1,4 @@
+Oknami wzajem sobie grożące jak wrogi.\
 Stara należy z prawa do zamku dziedzica;\
 Nową, na złość zamkowi, postawił Soplica.\
 W tamtej, jak w swym dziedzictwie, rej wodził Gerwazy,\
