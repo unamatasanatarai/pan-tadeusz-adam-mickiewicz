@@ -1,3 +1,4 @@
+Upada, lecz nie ginie, bo w rowu ciemnotę\
 Unosi na swych falach księżyca pozłotę;\
 Woda warstami spada, a na każdej warście\
 Połyskają się blasku miesięcznego garście,\
