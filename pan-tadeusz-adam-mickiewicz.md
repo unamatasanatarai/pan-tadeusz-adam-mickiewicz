@@ -1,3 +1,4 @@
+Nie wita się i miejsca za stołem nie bierze:\
 Bo Wojski występuje w nowym charakterze\
 Marszałka dworu. Laskę ma na znak urzędu\
 I tą laską z kolei jako mistrz obrzędu,\
