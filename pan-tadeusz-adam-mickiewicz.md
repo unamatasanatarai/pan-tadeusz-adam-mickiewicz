@@ -1,3 +1,4 @@
+Wróbel mniejszy niż puszczyk, a na swoich wiorach\
 Śmielszy jest aniżeli puszczyk w cudzych dworach:\
 Co Klucznik to nie puszczyk; kto w cudze poddasze\
 Nocą włazi, ten puszczyk, i ja go wystraszę».\
