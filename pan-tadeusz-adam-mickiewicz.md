@@ -1,3 +1,4 @@
+I «cap!» Tadeuszowi wrzasnął tuż nad uchem:\
 Tadeusz i sąsiadka, tym głosu wybuchem\
 Znienacka przestraszeni właśnie w pół rozmowy,\
 Odstrychnęli od siebie mimowolnie głowy,\
