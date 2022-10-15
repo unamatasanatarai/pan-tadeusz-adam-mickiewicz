@@ -1,3 +1,4 @@
+Zawsze dumał, a strzelcy zawsze nieruchomie\
 Za nim stali. Aż w cichym i samotnym domie\
 Wszczął się naprzód szmer, potem gwar i krzyk wesoły\
 Jak w ulu pustym, kiedy weń wlatują pszczoły.\
