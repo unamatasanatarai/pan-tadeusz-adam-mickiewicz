@@ -1,3 +1,4 @@
+Nie zdołałby z innymi razem emigrować;\
 Mówiłeś, że wiesz domek, gdzie się masz przechować:\
 Powiedz gdzie? Śpieszmy, czeka zaprzężona bryka.\
 Czy nie najlepiej w puszczę, do chaty leśnika?»
