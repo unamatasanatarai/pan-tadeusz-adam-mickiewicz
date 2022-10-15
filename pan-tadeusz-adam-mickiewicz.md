@@ -1,3 +1,4 @@
+I pomiędzy jarzębin rozsunione grona\
 Kraśniejsze od jarzębin zajaśniały lica:\
 To jagód lub orzechów zbieraczka, dziewica.\
 W krobeczce z prostej kory podaje zebrane\
