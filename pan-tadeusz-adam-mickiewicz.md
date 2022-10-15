@@ -1,3 +1,4 @@
+Starożytny był zwyczaj, iż dziedzice nowi\
 Na pierwszej uczcie sami służyli ludowi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem goście, potraw czekający w sali,\
