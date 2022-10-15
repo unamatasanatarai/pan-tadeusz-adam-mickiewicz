@@ -1,3 +1,4 @@
+Lecz strzelać się nie z dalszej ani z bliższej mety,\
 Jak przez skórę niedźwiedzią. Ja rękami memi\
 Jako sekundant skórę rozciągnę na ziemi,\
 I ja sam was ustawię: Waść po jednej stronie\
