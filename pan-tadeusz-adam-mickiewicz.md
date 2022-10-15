@@ -1,3 +1,4 @@
+Ziem przejeżdżał z Wołynia do swoich dóbr polskich,\
 Czy też, gdy dobrze pomnę, na sejm do Warszawy.\
 Po drodze zwiedzał szlachtę, już to dla zabawy,\
 Już dla popularności; wstąpił więc do pana\
