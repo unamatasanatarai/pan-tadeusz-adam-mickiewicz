@@ -1,3 +1,4 @@
+Musicie więc do Księstwa uciekać Panowie,\
 A mianowicie Maciej, co się Chrzciciel zowie,\
 Tadeusz, Konew, Brzytew, niech unoszą głowy\
 Za Niemen, gdzie ich czeka zastęp narodowy.\
