@@ -1,3 +1,4 @@
+My na naukę młodzież do stolicy dajem;\
 I nie przeczym, że nasi synowie i wnuki\
 Mają od starych więcej książkowej nauki;\
 Ale co dzień postrzegam, jak młodź cierpi na tem,\
