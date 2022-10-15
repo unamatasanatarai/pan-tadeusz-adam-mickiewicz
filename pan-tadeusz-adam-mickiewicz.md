@@ -1,3 +1,4 @@
+Łaskę byś zrobił!... Widać, za pokutę grzechu\
 Trzeba było...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tu znowu brakło mu oddechu.\
