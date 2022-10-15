@@ -1,3 +1,4 @@
+Obmoczyłem mój rapier Scyzorykiem zwany\
 (Zapewne pan o moim słyszał Scyzoryku,\
 Sławnym na każdym sejmie, targu i sejmiku).\
 Przysiągłem wyszczerbić go na Sopliców karkach,\
