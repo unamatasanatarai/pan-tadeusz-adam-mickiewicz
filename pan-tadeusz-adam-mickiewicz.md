@@ -1,3 +1,4 @@
+Tadeusz zatem przywiózł w strony swe rodzinne\
 Duszę czystą, myśl żywą i serce niewinne,\
 Ale razem niemałą chętkę do swawoli.\
 Z góry już robił projekt, że sobie pozwoli\
