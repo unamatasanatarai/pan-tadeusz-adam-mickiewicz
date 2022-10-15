@@ -1,3 +1,4 @@
+Odziane zamiast kolców ziarenkami kminu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście pijący wino zaczęli gałązki\
 Pnie i korzenie zrywać i gryźć dla zakąski.\
