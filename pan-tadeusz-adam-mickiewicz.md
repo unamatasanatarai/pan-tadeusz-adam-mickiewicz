@@ -1,3 +1,4 @@
+Uszlachcić i ogłosić, że im herb nasz dajem.\
 Pani udzieli jednym wioskom Półkozica,\
 Drugim niech swą Leliwę nada pan Soplica.\
 Natenczas i Rębajło uzna chłopa równym,\
