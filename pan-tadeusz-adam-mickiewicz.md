@@ -1,3 +1,4 @@
+Że one tym są muchom, czym dla roju matki,\
 Że z ich wybiciem zginą owadów ostatki.\
 Prawda, że ochmistrzyni ani pleban wioski,\
 Nie uwierzyli nigdy w te Wojskiego wnioski\
