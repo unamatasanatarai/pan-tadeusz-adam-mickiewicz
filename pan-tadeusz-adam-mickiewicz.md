@@ -1,3 +1,4 @@
+W tej chwili, o tych rzeczach mówić? Bóg wybaczy!\
 Musicie wiedzieć, w jakim żalu i rozpaczy\
 Popełniłem...
 
