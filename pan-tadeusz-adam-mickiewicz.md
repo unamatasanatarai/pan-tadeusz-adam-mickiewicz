@@ -1,3 +1,4 @@
+To nie był ochmistrzyni pokój? Fortepiano?\
 Na nim nuty i książki; wszystko porzucano\
 Niedbale i bezładnie: nieporządek miły!\
 Niestare były rączki, co je tak rzuciły.\
