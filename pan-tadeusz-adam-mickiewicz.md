@@ -1,3 +1,4 @@
+O swych królach murzyńskich i o swym tygrysie.\
 Markotno to się stało panu Rejtanowi.\
 Był człek żywy, uderzył po szabli i mówi:\
 »Mości książę! kto patrzy śmiele, walczy śmiele,\
