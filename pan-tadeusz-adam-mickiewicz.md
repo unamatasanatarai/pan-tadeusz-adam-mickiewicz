@@ -1,3 +1,4 @@
+Sierżant wpadłszy bagnetem przebił Podhajskiego,\
 Dwóch drugich szlachty zranił, do trzeciego strzela:\
 Uciekają. Było to przy kłodzie Chrzciciela.\
 Ten już miał ręce wolne, gotowe ku walce;\
