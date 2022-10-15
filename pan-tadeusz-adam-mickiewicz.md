@@ -1,3 +1,4 @@
+Pełen biszkoktów, mówiąc: «Zakąście wasz miodek.\
 A ja wam też opowiem historią ciekawą\
 Sporu, który miał bitwą zakończyć się krwawą,\
 Gdy polujący w głębi nalibockich lasów,\
