@@ -1,3 +1,4 @@
+Na wydaniu: to zawsze kompromis gotowy.\
 Najdłuższy proces zwykle bywa z duchowieństwem\
 Katolickim albo też z bliskim pokrewieństwem:\
 Bo wtenczas sprawy skończyć nie można małżeństwem.\
