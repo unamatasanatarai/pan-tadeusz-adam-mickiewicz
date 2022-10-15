@@ -1,3 +1,4 @@
+Bohater pierwszy w świecie, a wojsk ma bez liku!\
 He, cóż myślisz Macieju, nasz ojcze Króliku?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Skończył. Czekają wszyscy Macieja wyroku.\
