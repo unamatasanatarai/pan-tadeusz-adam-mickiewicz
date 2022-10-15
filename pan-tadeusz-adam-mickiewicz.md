@@ -1,3 +1,4 @@
+Dziś nie ma przyjaciela, oprócz mnie, Klucznika,\
 I ot tego wiernego mego Scyzoryka!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«I Kropidła — rzekł Chrzciciel — Gdzie ty Gerwazeńku,\
