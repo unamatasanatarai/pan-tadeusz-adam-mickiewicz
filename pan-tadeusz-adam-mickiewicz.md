@@ -1,3 +1,4 @@
+Szanowano go przecież, bo pan z prapradziadów,\
 Bogacz, dobry dla chłopów, ludzki dla sąsiadów,\
 Nawet dla Żydów.
 
