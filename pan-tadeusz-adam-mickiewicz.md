@@ -1,3 +1,4 @@
+Wyraz zdrajca brzmiał w uszach, odbijał się echem\
 W domu, w polu. Ten wyraz od rana do zmroku\
 Wił się przede mną, jako plama w chorym oku.\
 Przecież nie byłem zdrajcą kraju.
