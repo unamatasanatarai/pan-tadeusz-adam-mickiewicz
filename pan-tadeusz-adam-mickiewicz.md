@@ -1,3 +1,4 @@
+Bardzo, choć tylko parę razy ją widziałem;\
 A mówią, że stryj dla mnie za żonę przeznacza\
 Podkomorzankę, piękną i córkę bogacza.\
 Teraz nie mógłbym z panną Różą się ożenić,\
