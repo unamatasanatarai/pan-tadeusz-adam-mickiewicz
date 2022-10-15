@@ -1,3 +1,4 @@
+Nie we włości ich szukać, ale po zaściankach,\
 W Dobrzynie, w Rzezikowie, w Ciętyczach, w Rąbankach,\
 Szlachta odwieczna, w której krew rycerska płynie,\
 Wszyscy przychylni panów Horeszków rodzinie,\
