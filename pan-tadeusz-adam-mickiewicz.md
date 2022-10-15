@@ -1,3 +1,4 @@
+Odjeżdżając: a co waść powiesz, gdybym swatał\
 Sam waści Zosię? He? Cóż, nie skoczysz z radości?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz rzekł po chwili «Dobroć jegomości\
