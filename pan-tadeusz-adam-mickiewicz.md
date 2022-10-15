@@ -1,3 +1,4 @@
+A dalej, jakby starce na dzieci i wnuki\
 Patrzą, siedząc w milczeniu, tu sędziwe buki,\
 Tam matrony topole i mchami brodaty\
 Dąb, włożywszy pięć wieków na swój kark garbaty,\
