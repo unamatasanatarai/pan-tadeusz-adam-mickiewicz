@@ -1,3 +1,4 @@
+Lecz stary czy nie dojrzał, czy zbyt się zapalił:\
 Bo nim szyję wytknęli, rąbnął po kaszkietach,\
 Zdarł je; Rózga spadając brzękła po bagnetach.\
 Moskale cofają się, Maciek ich wygania\
