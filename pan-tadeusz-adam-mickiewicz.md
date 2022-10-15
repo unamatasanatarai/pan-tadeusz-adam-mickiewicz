@@ -1,3 +1,4 @@
+To o wyręby, to o granice zatargi.\
 Jednych gniew, drugich tylko podburzała zawiść\
 Bogactw Sędziego — wszystkich zgodziła nienawiść.\
 Cisną się do Klucznika, podnoszą do góry\
