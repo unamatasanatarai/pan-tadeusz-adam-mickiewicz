@@ -1,3 +1,4 @@
+Kot, wykradłszy się z łozy, prześmignął po łące\
 I wskoczył w sad pomiędzy jarzyny wschodzące;\
 Tam siedzi: wystraszyć go łacno z rozsadniku\
 I uszczuć, postawiwszy charty na przesmyku.\
