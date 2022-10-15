@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jak on nad Dobrzyńskimi, dom jego nad siołem\
 Panował, stojąc między karczmą i kościołem.\
 Widać rzadko zwiedzany, mieszka w nim hołota:\
 Bo brama sterczy bez wrót, ogrody bez płota,\
