@@ -1,3 +1,4 @@
+Oj weźcież ich na munsztuk, bo też szlachta bryka!\
 Winszuję ci Majorze, żeś złowił Hrabika:\
 To tłuścioszek, to bogacz, panicz z antenatów;\
 Nie wypuszczaj go z klatki bez trzysta dukatów.\
