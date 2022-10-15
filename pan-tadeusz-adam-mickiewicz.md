@@ -1,3 +1,4 @@
+Stąd droga do afektów i stąd się kojarzy\
 Wspaniały domów sojusz. Tak myślili starzy.\
 A zatem...» Tu Pan Sędzia nagłym zwrotem głowy\
 Skinął na Tadeusza, rzucił wzrok surowy:\
