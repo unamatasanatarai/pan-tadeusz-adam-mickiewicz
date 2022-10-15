@@ -1,3 +1,4 @@
+Przed czasy mieszkał w morzach, ale po potopie\
 Zdechł z niedostatku wody; więc na niebios stropie,\
 Tak dla osobliwości jako dla pamiątki,\
 Anieli zawiesili jego martwe szczątki.\
