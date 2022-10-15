@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Z nich dwa strugi, jak ręce związane pospołu,\
 Ściskają się. Strug dalej upada do dołu;\
 Upada, lecz nie ginie, bo w rowu ciemnotę\
 Unosi na swych falach księżyca pozłotę;\
