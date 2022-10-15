@@ -1,3 +1,4 @@
+I z wolą starszych». Potem, spuściwszy oczęta,\
 Dodała: «Przed odjazdem, jeśli pan pamięta,\
 Kiedy umarł ksiądz Robak w ową burzę nocną,\
 Widziałam, że pan jadąc żałował nas mocno;\
