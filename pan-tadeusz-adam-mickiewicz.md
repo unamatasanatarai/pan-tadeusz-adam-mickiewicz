@@ -1,3 +1,4 @@
+Tak padł Gifrejter, fechmistrz najpierwszy z Moskalów,\
 Kawaler trzech krzyżyków i czterech medalów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem koło kłodek lewe szlachty skrzydło\
