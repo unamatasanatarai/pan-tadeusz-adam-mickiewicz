@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Majorze — szepnął Ryków — wyjdź na pojedynek,\
 I pomścij się za jego raniejszy uczynek.\
 Jeśli tego szlachcica kto inny zabije,\
 To Major widzi, Major hańby swej nie zmyje.\
