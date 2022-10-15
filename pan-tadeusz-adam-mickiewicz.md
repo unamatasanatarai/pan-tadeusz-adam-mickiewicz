@@ -1,3 +1,4 @@
+Bądź zdrowa, wspomnij o mnie i racz czasem zmówić\
 Pacierz za mnie! Zofijo!...» Więcej nie mógł mówić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Hrabia, z Telimeną wszedłszy niespodzianie,\
