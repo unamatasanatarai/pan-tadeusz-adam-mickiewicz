@@ -1,3 +1,4 @@
+Bo znałem większych dawniej niźli wy myśliwych,\
 A sądziłem ich nieraz sądem polubownym.\
 Któż był w lasach litewskich Rejtanowi równym?\
 Czy obławę zaciągnąć, czy spotkać się z zwierzem,\
