@@ -1,3 +1,4 @@
+Myślił o drugim wielkim tej wyprawy celu.\
 Jako człek doświadczony i biegły w prawnictwie,\
 Chce Hrabiego osadzić na nowym dziedzictwie\
 Legalnie i formalnie: więc za Woźnym biega,\
