@@ -1,3 +1,4 @@
+Strojnym blachą złocistą i piórem koguta;\
 Przy nim dziewczę w zielonej sukience jak ruta\
 Pozioma, wznosi oczki błękitne jak bratki\
 Ku oczom chłopca; dalej panny rwały kwiatki\
