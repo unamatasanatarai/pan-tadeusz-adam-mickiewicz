@@ -1,3 +1,4 @@
+I krewnego swych panów ukłonem zaszczycił,\
 Chyląc łysinę wielką, świecącą z daleka,\
 I naciętą od licznych kordów jak nasieka;\
 Gładził ją ręką, podszedł, i jeszcze raz nisko\
