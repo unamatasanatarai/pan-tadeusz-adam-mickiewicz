@@ -1,3 +1,4 @@
+Dziś nam szlachectwa przeczą, każą nam drabować\
 Papiery, i szlachectwa papierem próbować».\
 «Jeszcze Waszeci mniejsza — zawołał Juraha —\
 Waszeć z pradziadów chłopów uszlachcony szlacha;\
