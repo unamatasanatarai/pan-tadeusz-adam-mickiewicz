@@ -1,3 +1,4 @@
+Idąc kłaniał się starcom, damom i młodzieży;\
 Obok stał kwestarz; Sędzia tuż przy bernardynie.\
 Bernardyn zmówił krótki pacierz po łacinie;\
 Podano w kolej wódkę: za czym wszyscy siedli,\
