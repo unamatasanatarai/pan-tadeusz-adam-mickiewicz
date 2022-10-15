@@ -1,3 +1,4 @@
+Sam słania się na nogach, jakoby był pijany.\
 Gifrejter bieży prędzej i pewny wygranej;\
 Żeby uchodzącego tym łacniej dosiągnął,\
 Powstał i całą prawą rękę wzdłuż wyciągnął,\
