@@ -1,3 +1,4 @@
+Abyś został. Wnet skończę. Ledwie mam dość mocy\
 Zakończyć — Panie Klucznik, ja umrę tej nocy!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Co bracie? — krzyknął Sędzia — widziałem, wszak rana\
