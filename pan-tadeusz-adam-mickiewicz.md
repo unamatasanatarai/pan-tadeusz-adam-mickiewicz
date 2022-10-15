@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Przyzba tykała kuchni, której okna stały\
 Otworem i dym jako z pożaru buchały;\
 Aż z kłębów dymu, niby biała gołębica,\
 Mignęła świecąca się kuchmistrza szlafmyca:\
