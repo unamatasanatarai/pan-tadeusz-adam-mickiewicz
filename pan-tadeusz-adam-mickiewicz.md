@@ -1,3 +1,4 @@
+«Kat by dał — krzyknął Wilbik — gwałtem od nas biorą».\
 «Oj, dobrodzieju — chłopek ozwał się z pokorą,\
 Pokłoniwszy się księdzu i skrobiąc się w głowę —\
 Już to szlachcie, to jeszcze bieda przez połowę;\
