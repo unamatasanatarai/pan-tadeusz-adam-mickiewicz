@@ -1,3 +1,4 @@
+Tymczasem Buchman wołał: «Zgoda będzie zgubą!»\
 Kropiciel krzyczał: «Bez was obejdziem się sami;\
 Niech żyje nasz marszałek, Maciek nad Maćkami!\
 Hej do laski!» Dobrzyńscy krzyczą: «Zapraszamy!»\
