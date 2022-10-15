@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Hrabia podczas Sędziego sporów z Telimeną\
 Stał za drzewami, mocno zdziwiony tą sceną.\
 Dobył z kieszeni papier i ołówek, sprzęty,\
 Które zawsze miał z sobą, i na pień wygięty,\
