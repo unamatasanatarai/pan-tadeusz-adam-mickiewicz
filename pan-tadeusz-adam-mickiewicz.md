@@ -1,3 +1,4 @@
+Ma więc prawo rozrządzać... aśćka pomyśl o tem,\
 Żeby się to zrobiło najmniejszym kłopotem.\
 Trzeba ich z sobą poznać. Prawda, bardzo młodzi,\
 Szczególnie Zosia mała, lecz to nic nie szkodzi.\
