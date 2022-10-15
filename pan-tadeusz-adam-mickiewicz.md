@@ -1,3 +1,4 @@
+Nie ma rady: śmieli się i musieli zgodzić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spór ich potem w dozgonną przyjaźń się zamienił,\
 I Doweyko się z siostrą Domeyki ożenił;\
