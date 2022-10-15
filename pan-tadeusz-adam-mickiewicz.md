@@ -1,3 +1,4 @@
+Ja Ryków, car tak każe, a ja was żałuję.\
 Co nam do Lachów? Niechaj Moskwa dla Moskala,\
 Polska dla Lacha; ale cóż? car nie pozwala!»
 
