@@ -1,3 +1,4 @@
+Pamiętacie, jak Wołka wzięliśmy w niewolę,\
 Jak chcieliśmy go wieszać na belce w stodole,\
 Iż był tyran dla chłopstwa a sługa Moskali;\
 Ale się chłopi głupi nad nim zlitowali!\
