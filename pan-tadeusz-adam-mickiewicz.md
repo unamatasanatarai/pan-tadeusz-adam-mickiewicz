@@ -1,3 +1,4 @@
+Choć nie miał co otwierać, bo zamku podwoje\
 Stały otworem. Przecież, wynalazł drzwi dwoje;\
 Sam je własnym nakładem naprawił i wstawił,\
 I drzwi tych odmykaniem codziennie się bawił.\
