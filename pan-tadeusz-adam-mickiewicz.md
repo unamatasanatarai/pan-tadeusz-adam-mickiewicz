@@ -1,3 +1,4 @@
+Krzyczą: »Wiwat Soplica, pfe Horeszki tchórze!«\
 A gdy spadał, wołali: »Popraw się Soplica,\
 Nie daj się magnatowi, to wstyd na szlachcica!«\
 Tak śmiejąc się, czekamy, kto kogo pokona;\
