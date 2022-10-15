@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Tu znowu brakło mu oddechu.\
 «Bóg widzi — rzecze Klucznik — szczerze trafić chciałem!\
 Ileż ty krwi wylałeś twoim jednym strzałem,\
 Ileż klęsk spadło na nas i na twą rodzinę,\
