@@ -1,3 +1,4 @@
+Musicie wiedzieć, w jakim żalu i rozpaczy\
 Popełniłem...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Było to właśnie wkrótce po jej zaręczynach.\
