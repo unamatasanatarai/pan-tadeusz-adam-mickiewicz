@@ -1,3 +1,4 @@
+Więc było po uroku! po czarach! po dziwie!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak chłopiec, kiedy ujrzy cykoryi kwiaty,\
 Wabiące dłoń miękkimi, lekkimi bławaty,\
