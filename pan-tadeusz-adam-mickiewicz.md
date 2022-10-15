@@ -1,3 +1,4 @@
+Bo z pierwszej lękliwości całkiem już ochłonął,\
 I patrzył wzrokiem śmiałym, w którym ogień płonął.\
 Również patrzyła ona: i cztery źrenice\
 Gorzały przeciw sobie jak roratne świéce.
