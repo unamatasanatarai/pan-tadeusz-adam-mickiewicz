@@ -1,3 +1,4 @@
+Na koniec owe chwilą przedtem strojne drzewa,\
 Teraz, jakby odarte od wichrów i szronu,\
 Stoją nagie: były to laski cynamonu,\
 Lub udające sosnę gałązki wawrzynu,\
