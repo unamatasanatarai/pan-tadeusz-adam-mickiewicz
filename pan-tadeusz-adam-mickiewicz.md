@@ -1,3 +1,4 @@
+Za bydłem cztery ciężko pakowane wozy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wszyscy odgadli, że to wjazd księdza kwestarza.\
 Więc pan Sędzia, powinność znając gospodarza,\
