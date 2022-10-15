@@ -1,3 +1,4 @@
+Jak księżyc wielkie, jako gwiazda migające:\
 Tak po nieźmiernym niebie szło samotne słońce.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś pospólstwo litewskie z całej okolicy\
