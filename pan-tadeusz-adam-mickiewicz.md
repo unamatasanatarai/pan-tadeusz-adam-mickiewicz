@@ -1,3 +1,4 @@
+Cofali się ku drzwiczkom; już dochodzą progów:\
 Gerwazy stanął, jeszcze raz spojrzał na wrogów.\
 Dumał chwilę, niepewny, czy cofać się zbrojnie,\
 Czyli z nowym orężem szukać szczęścia w wojnie:\
