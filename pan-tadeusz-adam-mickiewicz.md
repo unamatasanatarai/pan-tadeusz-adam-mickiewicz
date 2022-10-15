@@ -1,3 +1,4 @@
+Byłem w Piotrkowie, w Dubnie, to za trybunałem\
 Jadąc jako palestrant, to własne swe sprawy\
 Forytując, jeździłem nawet do Warszawy.\
 Człek niemało skorzystał! Chciałbym i synowca\
