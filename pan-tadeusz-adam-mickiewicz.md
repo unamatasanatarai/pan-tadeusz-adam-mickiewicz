@@ -1,3 +1,4 @@
+Że skóra zwierza nie jest lada jaką miarą.\
 Wszak wiecie waćpanowie, jak królowa Dydo\
 Przypłynęła do Libów i tam z wielką biédą\
 Wytargowała sobie taki ziemi kawał,\
