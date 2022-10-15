@@ -1,3 +1,4 @@
+Ci proszą, aby Zosia wzniosła nieco czoło\
 I oczy pokazała; ci, ażeby wkoło\
 Raczyła się obrócić; dziewczyna wstydliwa\
 Obraca się, lecz oczy rękami zakrywa.\
