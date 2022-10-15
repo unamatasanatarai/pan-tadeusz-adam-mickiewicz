@@ -1,3 +1,4 @@
+Nic nas nie nagli, zwłaszcza że wczora wieczorem\
 Dano mi rozkaz zostać w Litwie instruktorem\
 W pułku tutejszym, nim się z mych ran nie wyleczę.\
 I cóż kochana Zosiu?»
