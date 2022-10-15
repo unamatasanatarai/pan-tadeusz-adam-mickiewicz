@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Był to Rejent, sam siebie Rejentem ogłosił,\
 Nikt go nie poznał. Dotąd polskie suknie nosił,\
 Lecz teraz Telimena, przyszła żona, zmusza\
 Warunkiem intercyzy, wyrzec się kontusza;\
