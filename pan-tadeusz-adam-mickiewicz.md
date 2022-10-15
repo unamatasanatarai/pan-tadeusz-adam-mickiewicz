@@ -1,3 +1,4 @@
+Ty, którego pamiętam, gdy zdrowy, rumiany,\
 Piękny szlachcic, gdy tobie pochlebiały pany,\
 Gdy za tobą, kobiety szalały! Wąsalu!\
 Nie tak dawno! takeś zestarzał się z żalu!\
