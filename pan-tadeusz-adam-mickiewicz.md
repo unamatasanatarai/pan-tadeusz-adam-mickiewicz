@@ -1,3 +1,4 @@
+O cztery grzędy od niej, i kłaniał się nisko.\
 Już głowę odwróciła i wzniosła ramiona,\
 I zrywała się lecieć jak kraska spłoszona,\
 I już lekkie jej stopy wionęły nad liściem,\
