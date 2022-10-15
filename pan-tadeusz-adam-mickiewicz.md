@@ -1,3 +1,4 @@
+Kaktusy, aloesy, mahonie, sandały,\
 Cytryny, bluszcz, orzechy włoskie, nawet figi,\
 Wysławiając ich kształty, kwiaty i łodygi:\
 Tadeusz nie przestawał dąsać się i zżymać,\
