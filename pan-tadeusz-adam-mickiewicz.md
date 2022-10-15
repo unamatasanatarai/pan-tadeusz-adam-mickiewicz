@@ -1,3 +1,4 @@
+Klucznik mówił, że tylko znał jednego człeka,\
 Co tak celnie jak Robak mógł strzelić z daleka;\
 Ja zaś znałem drugiego: równie trafnym strzałem\
 Ocalił on dwóch panów; sam ja to widziałem,\
