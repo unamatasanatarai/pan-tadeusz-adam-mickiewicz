@@ -1,3 +1,4 @@
+Blask bije, jakby złoto kapało z rumaka,\
 Bo tabenki są gęsto złotem nakrapiane,\
 I szerokie strzemiona srebrne pozłacane;\
 Na rzemieniach munsztuka i na uździenicy\
