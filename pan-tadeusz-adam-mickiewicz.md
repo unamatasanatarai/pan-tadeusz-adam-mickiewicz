@@ -1,3 +1,4 @@
+Potem będziem wybornej twej słuchać kapeli».\
 Dał znak.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Skrzypak u sukni zakasał rękawek,\
