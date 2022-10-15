@@ -1,3 +1,4 @@
+To mi to po szlachecku, prawie rura w rurę.\
 Pojedynek ten wiele narobił hałasu;\
 Pieśni o nim śpiewano za owego czasu.\
 Ja byłem sekundantem; jak się wszystko działo,\
