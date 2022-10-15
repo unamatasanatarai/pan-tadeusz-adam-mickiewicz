@@ -1,3 +1,4 @@
+A nam czy siedzieć cicho? Gdy wielki wielkiego\
 Będzie dusić: my duśmy mniejszych, każdy swego.\
 Z góry i z dołu, wielcy wielkich, małych mali,\
 Jak zaczniem ciąć, tak całe szelmostwo się zwali,\
