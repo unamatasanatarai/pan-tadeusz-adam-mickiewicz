@@ -1,3 +1,4 @@
+Który się skrył przed światem jak łotr, jak zabojca?\
 Bóg widzi, jak pragnąłbym: ale z tej pociechy\
 Zrobię Bogu ofiarę za me dawne grzechy».
 
