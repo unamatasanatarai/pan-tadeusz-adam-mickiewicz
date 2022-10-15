@@ -1,3 +1,4 @@
+Ciekawi skutku narad koło domu krążą;\
 Już izbę napełnili, kupią się do sieni,\
 Inni słuchają, w okna głowami wciśnieni.
 
