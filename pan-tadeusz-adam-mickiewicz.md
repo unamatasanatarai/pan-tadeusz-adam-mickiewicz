@@ -1,3 +1,4 @@
+Ażeby ślub mój zerwać, to jak Bóg na niebie\
 Że z tymi paznokciami przyskoczę do ciebie\
 I...» — «Nie będę — rzekł Hrabia — szczęścia pani kłócił»\
 I oczy pełne smutku i wzgardy odwrócił.\
