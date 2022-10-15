@@ -1,3 +1,4 @@
+Tam gałęziste kłody, tu wpół zgniłe tramy\
 Ogrodzone parkanem traw. W środek tarasu\
 Zajrzeć straszno, tam siedzą gospodarze lasu,\
 Dziki, niedźwiedzie, wilki; u wrót leżą kości\
