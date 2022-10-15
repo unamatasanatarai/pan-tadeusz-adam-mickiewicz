@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena smutnymi rzuciwszy oczyma:\
 «Niestety — rzekła — widzę że cię nic nie wstrzyma!\
 Rycerzu mój, w wojenne kiedy wstąpisz szranki,\
