@@ -1,3 +1,4 @@
+W mym domu wiecznie będzie jego pamięć droga,\
 Co dzień za duszę jego proszę Pana Boga.\
 Jeślim tyle na jego nie korzystał dworze\
 Jak drudzy, i wróciwszy w domu ziemię orzę,\
