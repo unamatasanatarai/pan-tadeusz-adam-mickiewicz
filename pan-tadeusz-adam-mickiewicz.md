@@ -1,3 +1,4 @@
+On to Jacek, zwan Robak, wśród grotów i mieczy\
 Przeniósł od Kniaziewicza listy Ryszpansowi\
 Donoszące, że nasi biorą tył wrogowi.\
 On potem w Hiszpaniji, gdy nasze ułany\
