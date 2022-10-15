@@ -1,3 +1,4 @@
+O jakimś po łopuchach i grzędach stąpaniu,\
 Tadeusz, wyciągnąwszy co najdłużej uszy,\
 Połykał gorzkie słowa i przetrawiał w duszy.\
 Okropną miał biesiadę. Jak w ogrodzie żmija\
