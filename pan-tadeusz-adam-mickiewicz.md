@@ -1,3 +1,4 @@
+Białą twarz, usta kraśne jak wiśnie bliźnięta;\
 U tej znalazł podobne oczy, usta, lica.\
 W wieku może by była największa różnica:\
 Ogrodniczka dziewczynką zdawała się małą,\
