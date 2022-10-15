@@ -1,3 +1,4 @@
+Rwąc z kopyta jak zając coraz daléj, daléj;\
 Aż mi ducha nie stało, dobiec ni nadziei,\
 Aż spojrzę w prawo: sadzi, a tu rzadko w kniei,\
 Jak też wziąłem na oko: postójże, marucha,\
