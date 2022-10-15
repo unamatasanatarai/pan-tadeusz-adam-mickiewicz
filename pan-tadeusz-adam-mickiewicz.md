@@ -1,3 +1,4 @@
+Nie cieszą się jak zwykle z końca zimy długiéj,\
 Nie śpiewają piosenek: pracują leniwo,\
 Jakby nie pamiętali na zasiew i żniwo.\
 Co krok wstrzymują woły i podjezdki w bronie\
