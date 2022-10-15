@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«I miał rozum! — zawołał Tadeusz z zapałem. —\
 To państwa niebo włoskie, jak o nim słyszałem,\
 Błękitne, czyste: wszak to jak zamarzła woda;\
