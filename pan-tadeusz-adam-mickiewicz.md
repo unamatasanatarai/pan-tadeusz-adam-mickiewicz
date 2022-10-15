@@ -1,3 +1,4 @@
+I razem w pastkę wróblą. Tadeusz i Hrabia,\
 Obadwa radzi z siebie, obadwa szczęśliwi,\
 Obaj pełni nadziei, więc niegadatliwi.\
 Hrabia na kwiatek dumne opuszczał wejrzenie,\
