@@ -1,3 +1,4 @@
+Więc Sędzia jego puchar i swój kielich nalał,\
 I dalej mówił: «Grzeczność nie jest rzeczą małą:\
 Kiedy się człowiek uczy ważyć, jak przystało,\
 Drugich wiek, urodzenie, cnoty, obyczaje,\
