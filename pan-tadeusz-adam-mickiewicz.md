@@ -1,3 +1,4 @@
+A powiewna od wiatru jak lekka zasłona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nad gęstwą różnofarbnych kłosów i badylów\
 Wisiała jak baldachim jasna mgła motylów,\
