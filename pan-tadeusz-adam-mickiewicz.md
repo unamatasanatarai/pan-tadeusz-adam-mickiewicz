@@ -1,3 +1,4 @@
+I znowu zapytała o radę zwierciadła;\
 Po chwili wzrok spuściła, westchnęła i siadła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia pan! zmienni w gustach są ludzie majętni!\
