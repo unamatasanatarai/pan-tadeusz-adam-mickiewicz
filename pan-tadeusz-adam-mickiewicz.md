@@ -1,3 +1,4 @@
+Cieszył się, że tak piękny pies nie ma narowu,\
 Żałował, że go tylko widział idąc z lasu,\
 I że przymiotów jego poznać nie miał czasu.
 
