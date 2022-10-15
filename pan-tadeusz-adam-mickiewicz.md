@@ -1,3 +1,4 @@
+Pchnął okienicę, że aż trzasła zawiasami\
 I rozwarłszy się w obie uderzyła ściany;\
 Wyskoczył, patrzył wkoło zdumiony, zmieszany,\
 Nic nie widział, nie dostrzegł niczyjego śladu.\
