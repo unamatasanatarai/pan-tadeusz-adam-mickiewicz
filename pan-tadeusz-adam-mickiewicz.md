@@ -1,3 +1,4 @@
+Tak Syn Macieja zawżdy zwał się Bartłomiejem,\
 A znowu Bartłomieja syn zwał się Maciejem:\
 Kobiety wszystkie chrzczono Kachny lub Maryny.\
 By rozeznać się wpośród takiej mieszaniny,\
