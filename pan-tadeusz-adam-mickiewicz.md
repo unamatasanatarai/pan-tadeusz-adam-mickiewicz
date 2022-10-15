@@ -1,3 +1,4 @@
+Widny z dala, tam Brzytwa wił się śród Moskali:\
 Ten ich w pół ciała rzeza, tamten w głowy wali.\
 Jako machina, którą niemieccy majstrowie\
 Wymyślili i która młockarnią się zowie,\
