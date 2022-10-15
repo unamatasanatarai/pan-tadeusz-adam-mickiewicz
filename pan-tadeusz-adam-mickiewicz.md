@@ -1,3 +1,4 @@
+Ogrodzone parkanem traw. W środek tarasu\
 Zajrzeć straszno, tam siedzą gospodarze lasu,\
 Dziki, niedźwiedzie, wilki; u wrót leżą kości\
 Na pół zgryzione jakichś nieostrożnych gości.\
