@@ -1,3 +1,4 @@
+Koszyk mały z rokity, denkiem wywrócony,\
 Pogubiwszy owoce na liściach zawisał,\
 I wśród fali zielonej jeszcze się kołysał.
 
