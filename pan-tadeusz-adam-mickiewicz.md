@@ -1,3 +1,4 @@
+Gładkie i czyste jako dziewicze jagody;\
 Lewy, ciemniejszy nieco, jako twarz młodziana\
 Smagława i już męskim puchem osypana.\
 Prawy złocistym piaskiem połyskał się wkoło,\
