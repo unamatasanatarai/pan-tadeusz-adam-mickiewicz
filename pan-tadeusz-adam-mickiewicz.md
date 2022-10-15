@@ -1,3 +1,4 @@
+Jestem, jeżeli kłamię; chcę być sukinsynem,\
 Jeżeli kłamię: spytaj, a oficerowie\
 Wszyscy poświadczą, cała armija to powie:\
 Że w tej drugiej armiji, w korpusie dziewiątym,\
