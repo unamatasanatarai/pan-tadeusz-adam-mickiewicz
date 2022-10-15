@@ -1,3 +1,4 @@
+Stroją na nowo struny i próbując, brzęczą;\
 Jankiel z przymrużonymi na poły oczyma\
 Milczy i nieruchome drążki w palcach trzyma.
 
