@@ -1,3 +1,4 @@
+Że trafny strzał dowodzi tylko śmiałe oko,\
 Biała broń śmiałą rękę; i zaczął szeroko\
 Znowu gadać o swojej Libiji i spisie,\
 O swych królach murzyńskich i o swym tygrysie.\
