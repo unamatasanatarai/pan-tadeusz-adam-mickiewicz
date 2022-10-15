@@ -1,3 +1,4 @@
+Hrabio, i w ładownicy masz twój sprzęt podróżny\
 Do malarstwa!» W istocie, był to Hrabia młody;\
 Niedawny żołnierz: lecz że wielkie miał dochody\
 I swoim kosztem cały pułk jazdy wystawił,\
