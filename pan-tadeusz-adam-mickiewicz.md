@@ -1,3 +1,4 @@
+Bo Hrabia, na strzeleckiej komnaty wspomnienie,\
 Mimowolnie wzrok podniósł: a te łby jelenie,\
 Te gałęziste rogi, jakby las wawrzynów\
 Zasiany ręką ojców na wieńce dla synów,\
