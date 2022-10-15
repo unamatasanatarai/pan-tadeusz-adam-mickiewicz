@@ -1,3 +1,4 @@
+Sam je własnym nakładem naprawił i wstawił,\
 I drzwi tych odmykaniem codziennie się bawił.\
 W jednej z izb pustych, obrał mieszkanie dla siebie;\
 Mogąc żyć u Hrabiego na łaskawym chlebie,\
