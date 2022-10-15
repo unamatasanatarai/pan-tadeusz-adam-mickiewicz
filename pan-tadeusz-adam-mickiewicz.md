@@ -1,3 +1,4 @@
+Sługi, które pan Hrabia tym kształtem odzieje,\
 Nazywają się w jego pałacu dżokeje.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Cwałująca czereda zleciała na błonia,\
