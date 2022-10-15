@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na to zadrżał Asesor, puścił z rąk kieliszek,\
 Utopił w Tadeusza wzrok jak bazyliszek.\
 Asesor mniej krzykliwy i mniej był ruchawy\
