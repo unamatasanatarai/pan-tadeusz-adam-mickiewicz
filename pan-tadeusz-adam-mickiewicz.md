@@ -1,3 +1,4 @@
+Mówiłem z Telimeną, już nam nie przeszkadza,\
 Zosia także się z wolą opiekunów zgadza.\
 Jeśli dziś ślubem pary nie możem uwieńczyć,\
 Toć by ich, panie bracie, przynajmniej zaręczyć\
