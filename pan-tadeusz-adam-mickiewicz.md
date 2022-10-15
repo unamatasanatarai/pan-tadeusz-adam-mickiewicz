@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nowa karczma nie była ciekawa z pozoru.\
 Stara wedle dawnego zbudowana wzoru,\
 Który był wymyślony od tyryjskich cieśli,\
