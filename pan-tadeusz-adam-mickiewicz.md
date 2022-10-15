@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Ach! wy nie pamiętacie tego Państwo młodzi!\
 Jak wśród naszej burzliwej szlachty samowładnej,\
 Zbrojnej, nie trzeba było policyi żadnej:\
 Dopóki wiara kwitła, szanowano prawa,\
