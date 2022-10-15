@@ -1,3 +1,4 @@
+Ten na głazie, ta w trawie; grupa malownicza!\
 Głowy charakterowe! z kontrastem oblicza!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podchodził, wstrzymywał się, lornetkę przecierał,\
