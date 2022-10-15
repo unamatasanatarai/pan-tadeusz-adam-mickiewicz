@@ -1,3 +1,4 @@
+Pewnie łeb Protazemu rozbiłby na ćwierci;\
 Szczęściem, schylił się Woźny i wydarł się śmierci.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Porwali się z miejsc wszyscy; chwilę była głucha\
