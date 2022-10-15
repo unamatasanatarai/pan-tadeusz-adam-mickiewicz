@@ -1,3 +1,4 @@
+Tak zręcznie lawirując, stanął przy ogrodzie;\
 Schylił się, bieży, rzekłbyś iż derkacza tropi:\
 Aż nagle skoczył przez płot i wpadł do konopi.
 
