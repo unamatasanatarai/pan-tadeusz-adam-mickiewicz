@@ -1,3 +1,4 @@
+Ryczał: «Zdrada!» — Wnet cała zbudzona gromada\
 Chórem odpowiedziała: «Zdrada! gwałtu! zdrada!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Krzyk dochodzi echami zwierciadlanej sali,\
