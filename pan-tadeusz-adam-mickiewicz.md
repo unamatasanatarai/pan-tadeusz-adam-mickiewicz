@@ -1,3 +1,4 @@
+Latem świat petersburski zwykł mieszkać na daczy,\
 To jest w pałacach wiejskich (dacza wioskę znaczy).\
 Mieszkałam w pałacyku, tuż nad Newą rzeką,\
 Niezbyt blisko od miasta i niezbyt daleko,\
