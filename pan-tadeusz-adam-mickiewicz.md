@@ -1,3 +1,4 @@
+I nie będziemy nigdy o to robić śledztwa;\
 I zboża mamy dosyć, psy nas nie ogłodzą,\
 Że po jarzynach albo po życie pochodzą:\
 Na morgach chłopskich bronię robić polowanie».
