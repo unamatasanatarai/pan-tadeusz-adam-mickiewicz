@@ -1,3 +1,4 @@
+To tłuścioszek, to bogacz, panicz z antenatów;\
 Nie wypuszczaj go z klatki bez trzysta dukatów.\
 A jak weźmiesz, na klasztor daj jakie trzy grosze,\
 I dla mnie! bo ja zawżdy za twą duszę proszę.\
