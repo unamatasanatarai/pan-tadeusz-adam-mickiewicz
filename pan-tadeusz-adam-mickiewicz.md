@@ -1,3 +1,4 @@
+«Tu — rzekł — dawni panowie dworem otoczeni,\
 Często siadali w krzesłach w poobiedniej porze.\
 Pan godził spory włościan lub w dobrym humorze\
 Gościom różne ciekawe historyje prawił,\
