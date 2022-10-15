@@ -1,3 +1,4 @@
+Nie, czuł, że nie mógł dłużej zostać w Soplicowie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak zadumany ledwie zrobił kroków parę,\
 Gdy mu coś drogę zaszło; spojrzał: widzi marę,\
