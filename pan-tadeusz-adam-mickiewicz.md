@@ -1,3 +1,4 @@
+Zwłaszcza, że jako słyszę, i jaśnie wielmożna\
 Pani moja Zofija na wszystko się zgadza;\
 Jej rozkazać, mnie słuchać: jużci przy niej władza.\
 Tylko ostrzegam, byśmy wolności nie dali\
