@@ -1,3 +1,4 @@
+Zosię, wychowanicę stryja, podobałem\
 Bardzo, choć tylko parę razy ją widziałem;\
 A mówią, że stryj dla mnie za żonę przeznacza\
 Podkomorzankę, piękną i córkę bogacza.\
