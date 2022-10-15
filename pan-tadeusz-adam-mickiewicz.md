@@ -1,3 +1,4 @@
+Trwałe, chociaż wpół zgniłe i stawione krzywo,\
 Jako w wieży pizańskiej, nie podług modelów\
 Greckich, bo są bez podstaw i bez kapitelów.\
 Nad kolumnami biegą wpółokrągłe łuki,\
