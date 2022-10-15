@@ -1,3 +1,4 @@
+Trwa rada długa, tłumna, strasznie zamieszana;\
 Aż nie mogąc zdań zgodzić, na koniec stanowi\
 Przełożyć całą sprawę ojcu Maciejowi.
 
