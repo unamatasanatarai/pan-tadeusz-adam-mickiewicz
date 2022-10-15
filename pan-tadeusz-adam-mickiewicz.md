@@ -1,3 +1,4 @@
+Dalej maków białawe górują badyle;\
 Na nich, myślisz, iż rojem usiadły motyle\
 Trzepiotąc skrzydełkami, na których się mieni\
 Z rozmaitością tęczy blask drogich kamieni:\
