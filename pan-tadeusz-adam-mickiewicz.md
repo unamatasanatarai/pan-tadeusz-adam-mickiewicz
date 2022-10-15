@@ -1,3 +1,4 @@
+I chłodnik zabielany milcząc żwawo jedli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po chłodniku szły raki, kurczęta, szparagi,\
 W towarzystwie kielichów węgrzyna, malagi.\
