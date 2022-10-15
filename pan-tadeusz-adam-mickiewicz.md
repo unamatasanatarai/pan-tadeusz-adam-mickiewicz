@@ -1,3 +1,4 @@
+Gdyby mi Zosia była dzisiaj zaręczona,\
 Gdybym wiedział że to jest moja przyszła żona.\
 Przecież powiem otwarcie: dziś, te zaręczyny\
 Do skutku przyjść nie mogą; są różne przyczyny...\
