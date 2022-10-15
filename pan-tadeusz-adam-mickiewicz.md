@@ -1,3 +1,4 @@
+Tępy nie był, lecz mało w naukach postąpił,\
 Choć stryj na wychowanie niczego nie skąpił;\
 On wolał z flinty strzelać albo szablą robić.\
 Wiedział, że go myślano do wojska sposobić,\
