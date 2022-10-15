@@ -1,3 +1,4 @@
+Owoż, rząd na kontrakcie oparłszy społecznym,\
 Podział władzy już tylko jest skutkiem koniecznym».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Otóż są i kontrakty! Kijowskie czy mińskie? —\
