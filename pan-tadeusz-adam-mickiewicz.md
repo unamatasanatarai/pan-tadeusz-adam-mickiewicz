@@ -1,3 +1,4 @@
+W inne strony wyjechać, mieszkać na uboczu\
 Lub, co lepsza, wynieść się całkiem z okolicy,\
 Na przykład zrobić małą podróż do stolicy,\
 Młodego chłopca na świat wielki wyprowadzić,\
