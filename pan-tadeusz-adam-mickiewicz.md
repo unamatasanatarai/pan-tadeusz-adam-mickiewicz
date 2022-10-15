@@ -1,3 +1,4 @@
+Lubiłam z nudy ptastwo paść i dzieci niańczyć.\
 Ale poczekaj ciociu, niech no się pobawię\
 Trochę z ludźmi, obaczysz, jak się ja poprawię».
 
