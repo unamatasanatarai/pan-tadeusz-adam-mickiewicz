@@ -1,3 +1,4 @@
+Ci niosą karabele, drudzy buzdygany,\
 Każdy groźnie spoziera i pokręca wąsa,\
 Składa się karabelą, buzdyganem wstrząsa;\
 Za nimi jeden cichy, posępny cień mignął,\
