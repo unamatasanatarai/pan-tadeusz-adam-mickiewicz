@@ -1,3 +1,4 @@
+Już aż po szybach dworu zaczynają dzwonić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, który został w domu, kobiet, bronić\
 Z rozkazu stryja, słysząc że coraz to gorzéj\
