@@ -1,3 +1,4 @@
+Ani ich zastanowił ów sekret ciekawy;\
 Wszystko prędko z żołnierskim jedli apetytem,\
 Kieliszki napełniając węgrzynem obfitym.
 
