@@ -1,3 +1,4 @@
+Zły, opryskliwy, znaleźć nie mogłem pociechy\
 W niczym na świecie — i tak z grzechów w nowe grzechy,\
 Zacząłem pić.
 
