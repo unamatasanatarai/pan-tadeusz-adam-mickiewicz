@@ -1,3 +1,4 @@
+(Sławny tam mieszka ślusarz Polak, który robił\
 Polskie strzelby, ale je po angielsku zdobił)».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jak to — parsknął Asesor — do kroćset niedźwiedzi!\
