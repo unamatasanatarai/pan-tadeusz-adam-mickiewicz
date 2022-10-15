@@ -1,3 +1,4 @@
+Potem w Litwie zostawił: cóż w tym za przyczyna?\
 Oto w domu ojczyźnie potrzebniejszy będzie.\
 Słyszałeś pewnie, o czym już gadają wszędzie,\
 O czym ja wiadomostki przynosiłem nieraz:\
