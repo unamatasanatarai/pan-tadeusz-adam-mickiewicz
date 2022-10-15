@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Na to Wojski, skłaniając aż do ziemi laskę:\
 «Jaśnie wielmożny panie, zróbże mi tę łaskę,\
 Zaraz dokończę scenę ostatnią sejmików.\
 Oto nowy marszałek na ręku stronników\
