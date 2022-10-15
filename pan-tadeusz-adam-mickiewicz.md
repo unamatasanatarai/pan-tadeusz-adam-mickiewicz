@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tak myśląc, po alkowie śmiało i wesoło\
 Przeszła się kilka razy. Znów spuściła czoło.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Warto by też pomyślić o Hrabiego losie...\
