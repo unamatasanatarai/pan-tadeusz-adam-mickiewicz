@@ -1,3 +1,4 @@
+Żaden bernardyn głodny nie wyszedł z Pucewicz».\
 Tak cała szlachta prośbą i obietnicami\
 Przeprowadzała księdza; on już był za drzwiami.
 
