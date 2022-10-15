@@ -1,3 +1,4 @@
+Aż znikła gdzieś daleko, gdzieś na niebios progu!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski obiedwie ręce odjąwszy od rogu\
 Rozkrzyżował; róg opadł, na pasie rzemiennym\
