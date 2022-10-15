@@ -1,3 +1,4 @@
+I dobywszy zza pasa swe żelazne klucze,\
 Okręcił wkoło głowy, puścił z całej mocy.\
 Pęk żelaza wyleciał jako kamień z procy,\
 Pewnie łeb Protazemu rozbiłby na ćwierci;\
