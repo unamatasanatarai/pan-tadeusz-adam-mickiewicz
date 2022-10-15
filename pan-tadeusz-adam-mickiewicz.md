@@ -1,3 +1,4 @@
+Ozwała się z dzwonkami, z zelami, z bębenki:\
 Brzmi Polonez Trzeciego Maja! — Skoczne dźwięki\
 Radością oddychają, radością słuch poją;\
 Dziewki chcą tańczyć, chłopcy w miejscu nie dostoją —\
