@@ -1,3 +1,4 @@
+Do Sędziego wpadł nagle Robak zadumany,\
 I rzekł: «Sędzio, to bieda nam z tą panią ciotką,\
 Z tą panią Telimeną, kokietką i trzpiotką!\
 Kiedy Zosia została dzieckiem w biednym stanie,\
