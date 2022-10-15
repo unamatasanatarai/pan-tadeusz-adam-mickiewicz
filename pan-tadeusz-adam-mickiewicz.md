@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nim Wojski zaczął mówić, Gerwazy spór zgodził.\
 On niedźwiedzia z uwagą dokoła obchodził,\
 Nareszcie dobył tasak, rozciął pysk na dwoje\
 I w tylcu głowy, mózgu rozkroiwszy słoje,\
