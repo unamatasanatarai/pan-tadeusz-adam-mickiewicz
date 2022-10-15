@@ -1,3 +1,4 @@
+Ale treści ich miejski nie pojmie żołądek.\
 Aby cenić litewskie pieśni i potrawy,\
 Trzeba mieć zdrowie, na wsi żyć, wracać z obławy.
 
