@@ -1,3 +1,4 @@
+Mlecznym gościńcem pędząc cwał w niebieskie progi,\
 Aż go Michał zbił z wozu, a wóz zrzucił z drogi.\
 Teraz, popsuty, między gwiazdami się wala;\
 Naprawiać go Archanioł Michał nie pozwala.
