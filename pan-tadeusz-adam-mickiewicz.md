@@ -1,3 +1,4 @@
+Wychodziła gromada, niosąca krobeczki,\
 Koszyki uwiązane końcami chusteczki,\
 Pełne grzybów; a panny w jednym ręku niosły,\
 Jako wachlarz zwiniony, *borowik* rozrosły,\
