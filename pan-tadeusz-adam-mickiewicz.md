@@ -1,3 +1,4 @@
+«Nic to — zawołał Hrabia — będzie tu nas więcéj,\
 Poddaj się Sędzio, to są moi sprzymierzeńcy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem Asesor nadbiegał, krzycząc: «Areszt kładę\
