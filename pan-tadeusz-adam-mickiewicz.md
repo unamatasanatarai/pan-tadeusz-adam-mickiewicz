@@ -1,3 +1,4 @@
+Ten, że często na strugach do Królewca chadzał,\
 Nazwany był Prusakiem od swych spółrodaków:\
 Przez żart, bo nienawidził okropnie Prusaków,\
 Choć lubił o nich gadać. Człek podeszły w lata,\
