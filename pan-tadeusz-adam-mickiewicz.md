@@ -1,3 +1,4 @@
+Że twoja skłonność była prawdziwym kochaniem,\
 Że to nie był żart tylko, nie rozpusta płocha,\
 Lecz miłość; niech wiem, że mnie mój Tadeusz kocha!\
 Niech słowo »kocham« jeszcze raz z ust twych usłyszę,\
