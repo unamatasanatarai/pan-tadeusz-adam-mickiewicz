@@ -1,3 +1,4 @@
+A ja wam też opowiem historią ciekawą\
 Sporu, który miał bitwą zakończyć się krwawą,\
 Gdy polujący w głębi nalibockich lasów,\
 Rejtan wypłatał sztukę książęciu Denassów.\
