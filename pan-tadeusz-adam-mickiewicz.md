@@ -1,3 +1,4 @@
+To my we dwóch, Sopliców tych porzniem na sieczkę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Brawo! — rzekł Hrabia — plan twój, gotycko-sarmacki\
 Podoba się mi lepiej niż spór adwokacki.\
