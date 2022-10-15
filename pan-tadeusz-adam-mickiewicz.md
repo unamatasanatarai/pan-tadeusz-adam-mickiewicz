@@ -1,3 +1,4 @@
+W niej, jak w arce Noego, z wszelkich zwierząt rodu\
 Jedna przynajmniej para chowa się dla płodu.\
 W samym środku (jak słychać) mają swoje dwory\
 Dawny Tur, Żubr i Niedźwiedź, puszcz imperatory;\
