@@ -1,3 +1,4 @@
+I pierścieniasty pancerz służą za drabinę,\
 W którą chłopiec zarzuca źrebcom dzięcielinę.\
 W kuchni kilka rapierów kucharka bezbożna\
 Odhartowała, kładąc je w piec zamiast rożna;\
