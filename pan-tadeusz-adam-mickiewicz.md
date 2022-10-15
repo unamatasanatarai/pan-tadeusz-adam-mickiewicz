@@ -1,3 +1,4 @@
+Pomarańcze, cyprysy, oliwki, migdały,\
 Kaktusy, aloesy, mahonie, sandały,\
 Cytryny, bluszcz, orzechy włoskie, nawet figi,\
 Wysławiając ich kształty, kwiaty i łodygi:\
