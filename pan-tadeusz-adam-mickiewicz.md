@@ -1,3 +1,4 @@
+Zdawał się obojętny, a pękał ze złości.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W najweselszym zebraniu, niech się kilku gniewa,\
 Zaraz się ich ponurość na resztę rozlewa:\
