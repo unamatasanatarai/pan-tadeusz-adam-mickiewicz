@@ -1,3 +1,4 @@
+Zgadywała, nie wiem jak, co się we mnie działo,\
 Patrzyła błagająca, lice jej bledniało;\
 A był to taki piękny gołąbek łagodny\
 I wzrok miała uprzejmy taki! tak pogodny!\
