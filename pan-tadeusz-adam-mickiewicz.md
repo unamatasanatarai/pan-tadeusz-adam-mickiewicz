@@ -1,3 +1,4 @@
+Wreszcie podniósłszy trzonek z powagą do góry,\
 Jak laskę marszałkowską, nakazał milczenie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Uciszcie się! — powtarzał — miejcie też baczenie,\
