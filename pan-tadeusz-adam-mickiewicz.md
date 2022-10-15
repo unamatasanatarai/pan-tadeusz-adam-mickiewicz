@@ -1,3 +1,4 @@
+Tadeusz krzyknął: «Zdrowie spółobywateli,\
 Wolnych, równych — Polaków!» — «Wnoszę ludu zdrowie!»\
 Rzekł Dąbrowski; lud krzyknął «Niech żyją wodzowie!\
 Wiwat wojsko, wiwat lud, wiwat wszystkie stany!»\
