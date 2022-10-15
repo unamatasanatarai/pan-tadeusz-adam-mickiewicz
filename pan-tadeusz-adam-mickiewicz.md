@@ -1,3 +1,4 @@
+Często na awanpostach nasz z Francuzem gada,\
 Pije wódkę; jak krzykną ura! — kanonada.\
 Ruskie przysłowie: z kim się biję, tego lubię;\
 Gładź drużkę jak po duszy, a bij jak po szubie.\
