@@ -1,3 +1,4 @@
+Pono nim słońce wnidzie, rosa oczy wyje».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Mospanie — rzekł bernardyn — babska rzecz narzekać,\
 A żydowska rzecz ręce założywszy czekać,\
