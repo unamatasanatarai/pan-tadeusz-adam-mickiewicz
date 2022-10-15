@@ -1,3 +1,4 @@
+Albo na siewki idąc, przy koniu się kryje,\
 Strzelbę złoży na siodle lub pod końską szyję,\
 Niby to bronę włóczy, niby jedzie miedzą,\
 A coraz się przybliża, kędy ptaki siedzą:\
