@@ -1,3 +1,4 @@
+Nieuczciwie, żeniąc się z jedną, kochać drugą.\
 Czas może mnie uleczy; wyjadę — na długo».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tadeuszku — stryj przerwał — to mi dziwny sposób\
