@@ -1,3 +1,4 @@
+Stron interesowanych, on pociągnął wagę:\
 Zgrzytnęły wyszczerbionym zębem koła rdzawe,\
 Wzdrygnął się Podkomorzy i przerwał rozprawę.\
 «Bracie — rzekł — odłóż nieco twą pilną robotę»\
