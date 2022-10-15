@@ -1,3 +1,4 @@
+Zatem umilkli wszyscy, kiedy jął rozprawiać:\
 «Proszę o głos!» powtórzył, po dwakroć odchrząknął,\
 Ukłonił się i usty dźwięcznymi tak brząknął:
 
