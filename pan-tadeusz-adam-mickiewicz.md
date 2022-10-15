@@ -1,3 +1,4 @@
+Bili się na zajezdzie myskim z Moskalami,\
 Których przywiódł jenerał ruski Wojniłowicz\
 I łotr, przyjaciel jego, pan Wołk z Łogomowicz.\
 Pamiętacie, jak Wołka wzięliśmy w niewolę,\
