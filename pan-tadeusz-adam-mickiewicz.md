@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Muzykę znał, sam słynął muzycznym talentem;\
 Z cymbałami, narodu swego instrumentem,\
 Chadzał niegdyś po dworach i graniem zdumiewał,\
 I pieśniami, bo biegle i uczenie śpiewał.\
