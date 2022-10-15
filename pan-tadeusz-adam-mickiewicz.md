@@ -1,3 +1,4 @@
+Nie dziw! Ze szlachtą strawił życie na biesiadach,\
 Na polowaniach, zjazdach, sejmikowych radach:\
 Przywykł, żeby mu zawsze coś bębniło w uchu,\
 Nawet wtenczas, gdy milczał lub z placką za muchą\
