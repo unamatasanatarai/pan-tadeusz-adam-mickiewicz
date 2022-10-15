@@ -1,3 +1,4 @@
+I cóż brat myśli o tym?» — «Jużci, w młode lata —\
 Rzekł Sędzia — nieźle chłopcu trochę się przewietrzyć,\
 Obejrzeć się na świecie, między ludźmi przetrzéć;\
 Ja za młodu niemało świata objechałem:\
