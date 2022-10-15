@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A na to rzekł Asesor, wesół z podarunku:\
 «Ja niegdyś darowane od księcia Sanguszki\
 Stawiłem w zakład moje prześliczne obróżki\
 Jaszczurem wykładane z kolcami ze złota,\
