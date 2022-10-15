@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż dziwnego — rzekł Hrabia — koszt wielki, a nuda\
 Jeszcze większa; chcę skończyć, lecz szlachcic maruda\
 Upiera się; przewidział, że mię znudzić może:\
