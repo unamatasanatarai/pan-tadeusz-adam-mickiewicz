@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Przemijały w milczeniu talerze i dania;\
 Przerwał nareszcie nudny tok obiadowania\
 Gość niespodziany, szybko wpadając, gajowy;\
 Nie zważał nawet, że czas właśnie obiadowy,\
