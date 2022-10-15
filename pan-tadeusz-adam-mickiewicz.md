@@ -1,3 +1,4 @@
+Ciebie lud zowie dotąd rokiem urodzaju,\
 A żołnierz rokiem wojny; dotąd lubią starzy\
 O tobie bajać, dotąd pieśń o tobie marzy.\
 Z dawna byłeś niebieskim oznajmiony cudem\
