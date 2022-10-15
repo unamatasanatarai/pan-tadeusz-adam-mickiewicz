@@ -1,3 +1,4 @@
+*Surojadki* srebrzyste, żółte i czerwone,\
 Niby czareczki różnym winem napełnione;\
 *Koźlak*, jak przewrócone kubka dno wypukłe,\
 *Lejki*, jako szampańskie kieliszki wysmukłe,\
