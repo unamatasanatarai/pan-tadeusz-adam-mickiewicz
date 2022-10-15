@@ -1,3 +1,4 @@
+Szlachta odpowiedziała. «Wiwant Kropiciele!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale w kątach szmer powstał, choć w środku tłumiony;\
 Widać, że się rozdziela rada na dwie strony.\
