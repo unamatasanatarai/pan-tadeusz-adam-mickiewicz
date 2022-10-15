@@ -1,3 +1,4 @@
+Na samym końcu dzieje tego dnia powiadał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Dobrze mój Tadeuszu, (bo tak nazywano\
 Młodzieńca, który nosił Kościuszkowskie miano\
