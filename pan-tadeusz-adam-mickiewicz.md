@@ -1,3 +1,4 @@
+Okna bez szyb, lecz latem nic to nie zawadzi;\
 Bliskość piwnic wygodna służącej czeladzi.\
 Tak mówiąc na Sędziego mrugał; widać z miny,\
 Że miał i taił inne, ważniejsze przyczyny.
