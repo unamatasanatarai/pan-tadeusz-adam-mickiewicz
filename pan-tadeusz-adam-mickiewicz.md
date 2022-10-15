@@ -1,3 +1,4 @@
+Przypłynęła do Libów i tam z wielką biédą\
 Wytargowała sobie taki ziemi kawał,\
 Który by się wołową skórą nakryć dawał:\
 Na tym kawałku ziemi stanęła Kartago!\
