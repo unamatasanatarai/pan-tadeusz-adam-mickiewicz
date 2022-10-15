@@ -1,3 +1,4 @@
+Napis: *Sagalas London à Bałabanówka...*\
 (Sławny tam mieszka ślusarz Polak, który robił\
 Polskie strzelby, ale je po angielsku zdobił)».
 
