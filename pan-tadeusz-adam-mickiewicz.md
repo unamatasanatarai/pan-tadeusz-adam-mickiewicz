@@ -1,3 +1,4 @@
+Źwierza na wóz złożyli, sami na koń siedli,\
 Radzi wszyscy, rozmowni, oprócz Asesora\
 I Rejenta; ci byli gniewliwsi niż wczora,\
 Kłócąc się o zalety, ten swej Sanguszkówki,\
