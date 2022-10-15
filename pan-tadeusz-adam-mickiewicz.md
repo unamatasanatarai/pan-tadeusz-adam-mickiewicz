@@ -1,3 +1,4 @@
+«Dąbrowski?» — zawołali. «Tak, tak, on, jenerał.\
 Byłem w obozie, gdy on Gdańsk Niemcom odbierał;\
 Miał coś pisać; bojąc się, ażeby nie zasnął,\
 Zażył, kichnął, dwakroć mię po ramieniu klasnął:\
