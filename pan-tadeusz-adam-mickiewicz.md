@@ -1,3 +1,4 @@
+Panie Prusak! że waszeć Sędziowską handlujesz\
 Parą wicin mizernych: to już zań gardłujesz?\
 Zapomniałeś mopanku, że ojciec waszecin\
 Spławiał do Prus dwadzieścia Horeszkowskich wicin?\
