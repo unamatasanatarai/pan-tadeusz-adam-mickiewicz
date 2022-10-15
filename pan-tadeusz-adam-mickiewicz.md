@@ -1,3 +1,4 @@
+Jak głaz lecący z góry zatrzymany w drodze.\
 Oczy roztwierał, usta szeroko rozszerzał,\
 Grożąc białymi zęby, a wąsy najeżał;\
 Rapier z rąk upuszczony przy ziemi zatrzymał\
