@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy pogładził czoło i brwi zmrużył;\
 Strzelcy zaczęli szemrać, każdy coś powiadał:\
 Tamten jak źwierza znalazł, ten jak ranę zadał,\
