@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Wojski, rzuciwszy łopatkę,\
 Znudzony ciszą, idzie pomiędzy czeladkę;\
 Woli w kuchennej słuchać ochmistrzyni krzyków,\
