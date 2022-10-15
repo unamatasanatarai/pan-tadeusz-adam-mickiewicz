@@ -1,3 +1,4 @@
+Siedzi we środku kula jak trzmiel w ziemnej jamie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;U drzwi domostwa wszystkie klamki, ćwieki, haki\
 Albo ucięte, albo noszą szabel znaki:\
