@@ -1,3 +1,4 @@
+Przypomina z pozoru ów gmach Salomona,\
 Który pierwsi ćwiczeni w budowań rzemieśle\
 Hiramscy na Syjonie wystawili cieśle.\
 Żydzi go naśladują dotąd we swych szkołach,\
