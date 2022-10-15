@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Dano trzecią potrawę. Wtem pan Podkomorzy,\
 Wlawszy kropelkę wina w szklankę panny Róży,\
 A młodszej przysunąwszy z talerzem ogórki,\
 Rzekł: «Muszę ja wam służyć, moje panny córki,\
