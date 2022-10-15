@@ -1,3 +1,4 @@
+Tadeusz wnet pochwycił, wymierzył, wypalił,\
 Chybił, ale Majora zgłuszył i osmalił.\
 Porywa się z gitarą Ryków: «Bunt! bunt!» woła,\
 Wpada na Tadeusza; lecz Wojski zza stoła\
