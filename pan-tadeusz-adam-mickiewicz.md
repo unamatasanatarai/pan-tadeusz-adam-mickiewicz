@@ -1,3 +1,4 @@
+Tadeusz przyglądał się nieznanej osobie.\
 Przypomniał, że za pierwszym na miejsce wejrzeniem\
 Odgadnął zaraz, czyim miało być siedzeniem.\
 Rumienił się, serce mu biło nadzwyczajnie:\
