@@ -1,3 +1,4 @@
+Nie wiadomo. Klucznikiem siebie tytułował,\
 Iż ten urząd na zamku przed laty piastował.\
 I dotąd nosił wielki pęk kluczy za pasem,\
 Uwiązany na taśmie ze srebrnym kutasem,\
