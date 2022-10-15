@@ -1,3 +1,4 @@
+Wstrzymując napastników oczyma i ławą,\
 Aż razem z Hrabią wpadli w głąb ciemnej framugi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Łapaj!» krzykniono znowu. Tryumf był nie długi:\
