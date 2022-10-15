@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Bo fałsz, żebym był w jakiej z Moskalami zmowie...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Patrzyłem. Różne myśli snuły się po głowie.\
