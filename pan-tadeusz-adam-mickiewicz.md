@@ -1,3 +1,4 @@
+Była wolność z porządkiem i z dostatkiem sława!\
 W innych krajach, jak słyszę, trzyma urząd drabów,\
 Policyjantów różnych, żandarmów, konstabów:\
 Ale jeśli miecz tylko bezpieczeństwa strzeże,\
