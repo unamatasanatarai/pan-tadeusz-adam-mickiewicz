@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Tak, tak, mój Protazeńku» rzekł Klucznik Gerwazy.\
 «Tak, tak, mój Gerwazeńku» rzekł Woźny Protazy.\
 «Tak to, tak!» powtórzyli zgodnie kilka razy,\
 Kiwając w takt głowami; wreszcie Woźny rzecze:\
