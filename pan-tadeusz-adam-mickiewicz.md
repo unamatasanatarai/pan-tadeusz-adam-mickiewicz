@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tak zadumany ledwie zrobił kroków parę,\
 Gdy mu coś drogę zaszło; spojrzał: widzi marę,\
 Całą w bieliźnie, długą, wysmukłą i cienką.\
