@@ -1,3 +1,4 @@
+Zmieniły ją, zaledwo była do poznania.\
 W oczach świeciły jeszcze niezagasłe gniewy;\
 Twarz, ożywiona wiatru świeżymi powiewy,\
 Sporem z Sędzią i nagłym przybyciem młodzieńców,\
