@@ -1,3 +1,4 @@
+Rzekł Tadeusz — który by teraz, w moim wieku,\
 Zdrów, żył na wsi, kochał się: kiedy tyle młodzi,\
 Tylu żonatych od żon, od dzieci uchodzi\
 Za granicę, pod znaki narodowe bieży?\
