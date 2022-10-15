@@ -1,3 +1,4 @@
+I na drewnianej nodze skacze ze szpitala,\
 Tak prędko, że go ledwie może złowić młodzież.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Protazy śpieszył włożyć swą woźnieńską odzież.\
