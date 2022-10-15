@@ -1,3 +1,4 @@
+O różnych taratatki kształtach i czamary.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przemyślny Robak, widząc, że się tak rozpryska\
 Rozmowa, jął ją znowu zbierać do ogniska,\
