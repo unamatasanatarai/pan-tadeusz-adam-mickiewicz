@@ -1,3 +1,4 @@
+I dyktuje mu, co chce, a Woźny ogłasza.\
 Woźny jest posłem prawa, a posłów nie karzą,\
 Nie wiem tedy, za co mnie trzymacie pod strażą.\
 Wnet akt spiszę, niech mi kto latarkę przyniesie,\
