@@ -1,3 +1,4 @@
+Zazdrośnicy już z pierwszej pary go odbili;\
 I szczęśliwy Dąbrowski niedługo się cieszył,\
 Ustąpił ją drugiemu; a już trzeci spieszył;\
 I ten zaraz odbity, odszedł bez nadziei.\
