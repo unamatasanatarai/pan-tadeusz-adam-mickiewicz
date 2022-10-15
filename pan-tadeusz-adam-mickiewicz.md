@@ -1,3 +1,4 @@
+Nie daje czasu szukać mody i gawędki.\
 Teraz grzmi oręż, a nam starym serca rosną,\
 Że znowu o Polakach tak na świecie głośno;\
 Jest sława, a więc będzie i Rzeczpospolita!\
