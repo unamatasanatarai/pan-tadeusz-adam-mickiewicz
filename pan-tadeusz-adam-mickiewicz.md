@@ -1,3 +1,4 @@
+Głupim naśladownictwem weszły do zwyczaju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc Matyjasz Dobrzyński, który stał na czele\
 Całej rodziny, zwan był *Kurkiem na kościele*;\
