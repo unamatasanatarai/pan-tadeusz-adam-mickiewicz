@@ -1,3 +1,4 @@
+Zbrojnych, wolnych i polskim językiem mówiących.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wyszła msza. Nie obejmie świątynia maleńka\
 Całego zgromadzenia: lud na trawie klęka;\
