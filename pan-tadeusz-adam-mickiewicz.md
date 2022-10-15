@@ -1,3 +1,4 @@
+I by nie zasnąć, kamień w drugiej nodze trzyma.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zbudził Hrabiego szelest na plecach i skroni;\
 Był to bernardyn, kwestarz Robak, a miał w dłoni\
