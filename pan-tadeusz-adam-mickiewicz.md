@@ -1,3 +1,4 @@
+Odmówił więc folwarku i nie przyjął płacy;\
 Sam wróciwszy do domu, żył z własnej rąk pracy,\
 Sprawując ule dla pszczół, lekarstwa dla bydła,\
 Szląc na targ kuropatwy, które łowił w sidła\
