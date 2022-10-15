@@ -1,3 +1,4 @@
+Oczyszczając sukienkę, aż do nóg się zniżył,\
 Usta trafem ku skroniom Telimeny zbliżył —\
 W tak przyjaznej postawie, choć nic nie mówili\
 O rannych kłótniach swoich, przecież się zgodzili;\
