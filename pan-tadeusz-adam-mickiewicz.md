@@ -1,3 +1,4 @@
+Chmurki wróżą pogodę: lekkie i świecące,\
 Tam jako trzody owiec na murawie śpiące,\
 Ówdzie nieco drobniejsze, jak stada cyranek;\
 Na zachód obłok na kształt rąbkowych firanek,\
