@@ -1,3 +1,4 @@
+Spraw także politycznych był Robak świadomszy,\
 Niźli żywotów świętych; a jeżdżąc po kweście,\
 Często zastanawiał się w powiatowym mieście.\
 Miał pełno interesów: to listy odbierał,\
