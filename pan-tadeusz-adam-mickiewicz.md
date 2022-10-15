@@ -1,3 +1,4 @@
+Przez ogród zdaje mi się jest do dworu prościéj».\
 Dziewczyna rzekła: «Tędy droga jegomości;\
 Tylko grząd psuć nie trzeba. Tam, między murawą\
 Ścieżka». — «W lewo — zapytał Hrabia — czy na prawo?»\
