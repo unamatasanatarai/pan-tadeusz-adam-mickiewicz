@@ -1,3 +1,4 @@
+Od Dobrzyńskich do szlachty: niby to ich godził;\
 Jeden wciąż wołał «Golić» a drugi «Zalewać!»\
 Maciek milczał; lecz widno, że się zaczął gniewać./
 
