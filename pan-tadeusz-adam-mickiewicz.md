@@ -1,3 +1,4 @@
+W pułku tutejszym, nim się z mych ran nie wyleczę.\
 I cóż kochana Zosiu?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na to Zosia rzecze,\
