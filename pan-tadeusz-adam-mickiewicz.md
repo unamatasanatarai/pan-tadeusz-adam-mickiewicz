@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Ucichli wszyscy jak rażeni gromem;\
 Ale razem straszliwy powstał krzyk za domem:\
 «Wiwat Hrabia!» On wjeżdżał na folwark Maciejów,\
 Sam zbrojny, za nim zbrojnych dziesięciu dżokejów.\
