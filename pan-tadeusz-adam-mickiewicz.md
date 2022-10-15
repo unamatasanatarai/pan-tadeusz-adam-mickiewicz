@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Warto by też pomyślić o Hrabiego losie...\
 Czyby się nie udało podsunąć mu Zosię?\
 Niebogata: lecz za to urodzeniem równa,\
 Z domu senatorskiego, jest dygnitarzówna.\
