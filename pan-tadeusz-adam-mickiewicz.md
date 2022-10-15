@@ -1,3 +1,4 @@
+Nie z zemsty głupiej, ale pro publico bono».\
 Klucznik głową i ręką kiwał wyciągnioną,\
 I mrugając powtarzał: «Pro publico bono!»
 
