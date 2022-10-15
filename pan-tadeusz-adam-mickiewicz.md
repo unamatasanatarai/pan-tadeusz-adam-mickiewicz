@@ -1,3 +1,4 @@
+Wstydząc się za frak, jakby za niecny uczynek;\
 Aż spotkał oczy Maćka i zadrżał z bojaźni.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Maciej dotąd z Rejentem żył w wielkiej przyjaźni;\
