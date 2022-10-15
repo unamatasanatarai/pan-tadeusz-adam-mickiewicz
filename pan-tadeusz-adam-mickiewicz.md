@@ -1,3 +1,4 @@
+To i ja, choć ksiądz, habit czasami podkaszę\
 I potańczę mazurka! Ale wiesz, Majorze,\
 My tu pijem, a jegry tam zmarzną na dworze?\
 Hulać to hulać! Sędzio, daj beczkę siwuchy:\
