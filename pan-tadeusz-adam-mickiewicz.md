@@ -1,3 +1,4 @@
+Ujrzał i małą rączkę, niby wachlarz z boku\
 Nadstawioną ku słońcu dla ochrony wzroku;\
 Palce drobne, zwrócone na światło różowe,\
 Czerwieniły się na wskroś jakby rubinowe.\
