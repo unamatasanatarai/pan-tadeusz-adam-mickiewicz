@@ -1,3 +1,4 @@
+Ach, bracia! wszak to dawniej szlachcic na zagrodzie...\
 («Tak, tak — krzyknęli wszyscy — równy wojewodzie!»)\
 Dziś nam szlachectwa przeczą, każą nam drabować\
 Papiery, i szlachectwa papierem próbować».\
