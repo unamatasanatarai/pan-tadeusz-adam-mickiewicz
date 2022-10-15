@@ -1,3 +1,4 @@
+Świecą gęsto jak gwiazdy, widać z liczby pługów\
 Orzących wcześnie łany ogromne ugoru,\
 Czarnoziemne, zapewne należne do dworu,\
 Uprawne dobrze na kształt ogrodowych grządek:\
