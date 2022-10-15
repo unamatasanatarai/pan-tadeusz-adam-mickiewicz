@@ -1,3 +1,4 @@
+Lecz myślą goni źwierzów dwóch; szuka sposobu,\
 Jak by razem obsaczyć i ułowić obu:\
 Hrabię i Tadeusza. Hrabia panicz młody,\
 Wielkiego domu dziedzic, powabnej urody,\
