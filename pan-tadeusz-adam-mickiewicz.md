@@ -1,3 +1,4 @@
+Przypadkiem oczy podniósł, i tuż na parkanie\
 Stała młoda dziewczyna... Białe jej ubranie\
 Wysmukłą postać tylko aż do piersi kryje,\
 Odsłaniając ramiona i łabędzią szyję.\
