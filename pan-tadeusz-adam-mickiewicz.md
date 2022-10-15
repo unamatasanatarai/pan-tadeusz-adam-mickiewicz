@@ -1,3 +1,4 @@
+I nie widziałem, co się działo wokoło mnie.\
 Szczęściem, na odsiecz przyszedł nam Parafianowicz,\
 Przywiódłszy Mickiewiczów dwiestu z Horbatowicz,\
 Którzy są szlachta liczna i dzielna, człek w człeka,\
