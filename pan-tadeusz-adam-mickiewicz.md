@@ -1,3 +1,4 @@
+W niebytność państwa znowu do zamku szturmował,\
 I kredens doń (jak mówi) zaintromitował.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem;\
