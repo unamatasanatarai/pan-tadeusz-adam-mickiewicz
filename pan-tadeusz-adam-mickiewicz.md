@@ -1,3 +1,4 @@
+Zesłali mi na pomoc księdza bernardyna.\
 On nas wszystkich zawstydził; oj, dzielny księżyna!\
 Gdym drżał, gdym się do cyngla dotknąć nie ośmielił,\
 On mi z rąk flintę wyrwał, wycelił, wystrzelił:\
