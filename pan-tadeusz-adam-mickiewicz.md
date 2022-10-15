@@ -1,3 +1,4 @@
+I na południu, w owej pięknej włoskiej ziemi;\
 Któreż równać się może z drzewami naszemi?\
 Czy aloes z długimi jak konduktor pałki?\
 Czy cytryna, karlica z złocistymi gałki,\
