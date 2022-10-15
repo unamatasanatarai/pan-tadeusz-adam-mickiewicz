@@ -1,3 +1,4 @@
+Potem prymasa, potem Królowej Jejmości,\
 Potem szlachty i całej Rzeczypospolitej,\
 A na koniec po piątej szklanicy wypitej,\
 Wnoszono: »Kochajmy się«. Wiwat bez przestanku,\
