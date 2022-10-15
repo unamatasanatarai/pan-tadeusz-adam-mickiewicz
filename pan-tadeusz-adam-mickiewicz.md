@@ -1,3 +1,4 @@
+Który był wymyślony od tyryjskich cieśli,\
 A potem go Żydowie po świecie roznieśli:\
 Rodzaj architektury obcym budowniczym\
 Wcale nieznany; my go od Żydów dziedziczym.
