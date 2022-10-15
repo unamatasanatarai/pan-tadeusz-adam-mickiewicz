@@ -1,3 +1,4 @@
+Skoro przyjdzie, wnet wszystkich uciszy i zgodzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ach! wy nie pamiętacie tego Państwo młodzi!\
 Jak wśród naszej burzliwej szlachty samowładnej,\
