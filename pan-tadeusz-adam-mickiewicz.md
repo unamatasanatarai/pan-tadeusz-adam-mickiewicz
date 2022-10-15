@@ -1,3 +1,4 @@
+W plebanii u księdza jest kilka armatek;\
 Przypominam, iż Jankiel mówił, iż u siebie\
 Ma groty do lanc, że je mogę wziąć w potrzebie;\
 Te groty przywiózł w pakach gotowych z Królewca\
