@@ -1,3 +1,4 @@
+Uszu i ręce do nich jak trąbki przyprawił;\
 Słuchał, aż mu wiatr przyniósł, wiejący od puszczy,\
 Odgłosy trąb i wrzaski polującej tłuszczy.
 
