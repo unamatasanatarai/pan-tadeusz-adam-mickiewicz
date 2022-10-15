@@ -1,3 +1,4 @@
+Pani moja Zofija na wszystko się zgadza;\
 Jej rozkazać, mnie słuchać: jużci przy niej władza.\
 Tylko ostrzegam, byśmy wolności nie dali\
 Pustej i słownej tylko, jako za Moskali,\
