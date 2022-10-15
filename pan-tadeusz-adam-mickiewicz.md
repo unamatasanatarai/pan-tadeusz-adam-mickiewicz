@@ -1,3 +1,4 @@
+Zląkł się i uciekł w głębszym schować się ukryciu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bitwa! gdzie? w której stronie? pytają młodzieńce,\
 Chwytają broń; kobiety wznoszą w niebo ręce;\
