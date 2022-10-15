@@ -1,3 +1,4 @@
+W duszy mojej!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem już szeptała o tym okolica,\
 Jaki taki gadał mi: »Ej, panie Soplica,\
