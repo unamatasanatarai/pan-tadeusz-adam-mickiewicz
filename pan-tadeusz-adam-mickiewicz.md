@@ -1,3 +1,4 @@
+Kościuszkę, naczelnika naszego narodu:\
 Wielki człowiek! A chodził w krakowskiej sukmanie,\
 To jest czamarce». «W jakiej czamarce, mospanie? —\
 Odparł Wilbik. — To przecież zwano taratatką».\
