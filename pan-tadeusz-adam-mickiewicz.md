@@ -1,3 +1,4 @@
+Hrabia też i Tadeusz jadą nieweseli,\
 Wstydząc się, że chybili i że się cofnęli:\
 Bo na Litwie, kto źwierza wypuści z obławy,\
 Długo musi pracować, nim poprawi sławy.
