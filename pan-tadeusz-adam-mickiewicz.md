@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Przecież nieraz nowina niby kamień z nieba\
 Spadała w Litwę. Nieraz dziad żebrzący chleba,\
 Bez ręki lub bez nogi, przyjąwszy jałmużnę,\
 Stanął i oczy wkoło obracał ostróżne.\
