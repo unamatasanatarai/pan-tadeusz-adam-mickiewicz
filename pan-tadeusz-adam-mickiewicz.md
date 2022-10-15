@@ -1,3 +1,4 @@
+I każdy ksiądz toż samo gada na ambonie.\
 Nauka dawną była, szło o jej pełnienie!\
 Lecz wtenczas panowało takie oślepienie,\
 Że nie wierzono rzeczom najdawniejszym w świecie,\
