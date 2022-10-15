@@ -1,3 +1,4 @@
+Daremnie pytaniami Klucznika dręczono;\
 Nic nie wyrzekł, prócz tych słów: pro publico bono.\
 Wojski był w tajemnicy, lecz słowem ujęty\
 Honorowym, staruszek milczał jak zaklęty.
