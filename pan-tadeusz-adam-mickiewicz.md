@@ -1,3 +1,4 @@
+Spojrzał krzywo, nie mówiąc ani słowa, splunął,\
 Krzesło nogą odepchnął i z pokoju runął,\
 Trzasnąwszy drzwi za sobą. Szczęściem, że tej sceny\
 Nikt z gości nie uważał oprócz Telimeny.
