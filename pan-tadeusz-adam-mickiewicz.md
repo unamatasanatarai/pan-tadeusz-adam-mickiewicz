@@ -1,3 +1,4 @@
+Wszakże, były przykłady: pamiętam procesy,\
 W których się działy gorsze niż u nas ekscesy,\
 A intercyza cały zakończyła kłopot:\
 Tak z Borzdobohatymi pogodził się Łopot,\
