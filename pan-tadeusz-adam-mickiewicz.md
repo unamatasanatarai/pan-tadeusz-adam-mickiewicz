@@ -1,3 +1,4 @@
+Zadziwił się pan Hrabia na widok tak nowy.\
 Wieża zdała się dwakroć wyższa, bo stercząca\
 Nad mgłą ranną; dach z blachy złocił się od słońca,\
 Pod nim błyszczała w kratach reszta szyb wybitych,\
