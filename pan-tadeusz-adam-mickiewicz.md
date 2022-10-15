@@ -1,3 +1,4 @@
+«Układy? — krzyknął Sędzia z niezwykłym zapałem —\
 Z układów kwita, już je skończyłem, zerwałem».\
 «A to co? — przerwał Robak — gdzie rozum, gdzie głowa?\
 Co tu mi wasze bajesz, jaka burda nowa?»\
