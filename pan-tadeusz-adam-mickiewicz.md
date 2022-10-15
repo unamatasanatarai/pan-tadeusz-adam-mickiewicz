@@ -1,3 +1,4 @@
+Bo na dziedzińcu zamku już stali parami\
 Oficery z damami, wiara z wieśniaczkami.\
 «Poloneza!» krzyknęli wszyscy w jedno słowo.\
 Oficerowie wiodą muzykę wojskową;\
