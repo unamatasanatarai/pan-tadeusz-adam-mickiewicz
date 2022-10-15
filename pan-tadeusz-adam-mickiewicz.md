@@ -1,3 +1,4 @@
+Tę kibić i tę główkę widział na parkanie,\
 Ten wdzięczny głos zbudził go dziś na polowanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Aż Wojski Tadeusza wyrwał z zamięszania;\
