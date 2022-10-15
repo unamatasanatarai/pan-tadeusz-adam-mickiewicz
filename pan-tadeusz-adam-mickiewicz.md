@@ -1,3 +1,4 @@
+Mówiła o sposobach nowych gospodarskich,\
 O nowych coraz sroższych ukazach cesarskich;\
 Podkomorzy krążące o wojnie pogłoski\
 Oceniał i wyciągał polityczne wnioski.\
