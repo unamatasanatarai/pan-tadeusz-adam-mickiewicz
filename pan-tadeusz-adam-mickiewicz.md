@@ -1,3 +1,4 @@
+Był człek żywy, uderzył po szabli i mówi:\
 »Mości książę! kto patrzy śmiele, walczy śmiele,\
 Warte dziki tygrysów, a spis karabele«.\
 I zaczynali z Niemcem dyskurs nazbyt żwawy.\
