@@ -1,3 +1,4 @@
+Lecz go szybkimi kroki ścigają natręty,\
 I zewsząd obwijają tanecznymi skręty;\
 Więc gniewa się, prawicę na rękojeść składa,\
 Jakby rzekł: «Nie dbam o was, zazdrośnikom biada!»\
