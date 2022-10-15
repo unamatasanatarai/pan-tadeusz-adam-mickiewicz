@@ -1,3 +1,4 @@
+Nikt tam podobną fraszką nie śmiał rady mieszać».\
 «To nie fraszka — zawołał Klucznik — łotrów wieszać!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szmer wzmagał się. Wtem Jankiel posłuchania prosił,\
