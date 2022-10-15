@@ -1,3 +1,4 @@
+Pierwszą nagrodę słusznie zyskał sługa boży;\
 Lecz niełacno rozsądzić, kto jest po nim drugi,\
 Bo wszyscy zdają mi się mieć równe zasługi,\
 Wszyscy równi zręcznością, biegłością i męstwem.\
