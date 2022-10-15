@@ -1,3 +1,4 @@
+Za każdą głowę tysiąc rubelków gotówką:\
 Tysiąc rubelków Sędzio, to ostatnie słówko».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia chciał targować się; lecz Major nie słuchał,\
