@@ -1,3 +1,4 @@
+Chce szablami uderzyć na nieprzyjaciela,\
 Ale starsi wstrzymują; kule gęsto świszczą,\
 Rażą, spędzają, wkrótce dziedziniec oczyszczą,\
 Już aż po szybach dworu zaczynają dzwonić.
