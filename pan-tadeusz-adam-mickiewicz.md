@@ -1,3 +1,4 @@
+Ani z napisów, ale z hartu nabył sławy,\
 Że nawet o nim jaśnie wielmożny pan wiedział.\
 Gdyby on gadać umiał, może by powiedział\
 Cokolwiek na pochwałę i tej starej ręki,\
