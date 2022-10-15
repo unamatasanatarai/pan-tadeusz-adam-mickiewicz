@@ -1,3 +1,4 @@
+O polityce także wnioskował rozsądnie,\
 Pięknie pisać i gładko umiał się wysławiać.\
 Zatem umilkli wszyscy, kiedy jął rozprawiać:\
 «Proszę o głos!» powtórzył, po dwakroć odchrząknął,\
