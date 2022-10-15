@@ -1,3 +1,4 @@
+Ale przed rodzicami taiła głęboko.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Było to za Kościuszki czasów; pan popierał\
 Prawo trzeciego maja i już szlachtę zbierał,\
