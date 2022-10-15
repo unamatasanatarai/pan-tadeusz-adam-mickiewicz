@@ -1,3 +1,4 @@
+Chciał ją Tadeuszkowi swojemu wyswatać\
 I tak dwa poróżnione domy znowu zbratać,\
 I dziedziczce bez wstydu ustąpić grabieży...»\
 «Lecz cóż to? — krzyknął Sędzia — co do mnie należy?\
