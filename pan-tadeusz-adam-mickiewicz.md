@@ -1,3 +1,4 @@
+Dotykać rękę, takim morderstwem skrwawioną\
 Z prywatnej zemsty, nie zaś pro publico bono!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Jacek z poduszek na łoże upadłszy,\
