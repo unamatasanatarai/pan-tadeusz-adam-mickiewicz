@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Sędzia zatrzymał w izbie Tadeusza\
 I rzekł do księdza: «Czas już, żebym ci powiedział\
 To, o czymem z pewnością wczoraj się dowiedział:\
