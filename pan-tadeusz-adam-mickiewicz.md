@@ -1,3 +1,4 @@
+Częścią zdobył swą mową krzykliwą i cienką.\
 «I ja chcę bić się — wołał tłukąc się w pierś ręką —\
 Choć kropidła nie noszę, drągiem od wiciny\
 Sprawiłem raz Prusakom czterem dobre chrzciny,\
