@@ -1,3 +1,4 @@
+Maciej głowy nie ruszył ani podniósł wzroku,\
 Tylko ręką kilkakroć uderzył po boku,\
 Jak gdyby szabli szukał (od zaboru kraju\
 Szabli nie nosił; przecież z dawnego zwyczaju,\
