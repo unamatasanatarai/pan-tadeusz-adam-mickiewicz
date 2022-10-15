@@ -1,3 +1,4 @@
+Obróciwszy się do mnie, rzekł: »Za mną Gerwazy!«\
 Wtem strzelono spod bramy... Stolnik się zająknął,\
 Zaczerwienił się, zbladnął, chciał mówić, krwią chrząknął:\
 Postrzegłem wtenczas kulę, wpadła w piersi same.\
