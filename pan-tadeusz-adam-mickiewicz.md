@@ -1,3 +1,4 @@
+Wysterka z ziemi na kształt ogromnego zrębu;\
 Na nim oparte, jak ścian i kolumn obłamy,\
 Tam gałęziste kłody, tu wpół zgniłe tramy\
 Ogrodzone parkanem traw. W środek tarasu\
