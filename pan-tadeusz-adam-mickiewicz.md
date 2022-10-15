@@ -1,3 +1,4 @@
+Jak gdyby tajemnicę całą z rąk wytrząsnął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ten ciemny gest pojęli słuchacze i stali,\
 Patrząc z dziwem na siebie, wzajem się badali\
