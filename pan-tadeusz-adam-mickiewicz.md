@@ -1,3 +1,4 @@
+A w ręku widzi tylko badacz zbyt ciekawy\
 Nagą łodygę szarozielonawej trawy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia wcisnął na oczy kapelusz i wracał\
