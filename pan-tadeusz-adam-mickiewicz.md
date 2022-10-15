@@ -1,3 +1,4 @@
+Mawiali, poglądając na Dymuliera,\
 Że dla Polski polskiego trzeba bohatera,\
 Nie Francuza ani też Włocha, ale Piasta,\
 Jana albo Józefa, lub Maćka — i basta.\
