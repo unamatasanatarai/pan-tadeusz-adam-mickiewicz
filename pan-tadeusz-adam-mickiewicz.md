@@ -1,3 +1,4 @@
+I żale we swą spowiedź, często rzecz przecinał,\
 Jak gdyby już ją kończył, i znowu zaczynał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Klucznik, dzieje Horeszków znający dokładnie,\
