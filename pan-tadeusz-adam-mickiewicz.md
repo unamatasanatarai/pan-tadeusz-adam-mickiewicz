@@ -1,3 +1,4 @@
+(I zaśmiał się na całe gardło, patrząc w okno)\
 Wszakże ten sam Dobrzyński, co siedzi w surducie,\
 — Hej zdjąć mu surdut! — w roku przeszłym na reducie\
 Zaczął ze mną tę kłótnię; kto zaczął? on, nie ja.\
