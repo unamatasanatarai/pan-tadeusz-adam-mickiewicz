@@ -1,3 +1,4 @@
+Który w rocie uchodził za pierwszego strzelca.\
 «Gonto — rzekł Major — widzisz ty tego wisielca?\
 Jeśli mu wsadzisz kulę, tam pod piątym żebrem,\
 To dostaniesz ode mnie cztery ruble srebrem».\
