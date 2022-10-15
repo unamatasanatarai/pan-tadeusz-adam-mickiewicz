@@ -1,3 +1,4 @@
+Który dziś żółty, dawniej zapewne był złoty,\
 Wkoło szyte jedwabiem herbowe klejnoty,\
 Półkozice: i stąd też cała okolica\
 Półkozicem przezwała starego szlachcica.\
