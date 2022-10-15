@@ -1,3 +1,4 @@
+Lecz Hrabia, sąsiad bliski, gdy wyszedł z opieki,\
 Panicz bogaty, krewny Horeszków daleki,\
 Przyjechawszy z wojażu upodobał mury,\
 Tłumacząc, że gotyckiej są architektury;\
