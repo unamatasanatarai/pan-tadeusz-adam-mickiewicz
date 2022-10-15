@@ -1,3 +1,4 @@
+Jak z sita, w gęstych kroplach. Wtem rykły pioruny,\
 Krople zlały się razem: to jak proste struny\
 Długim warkoczem wiążą niebiosa do ziemi,\
 To jak z wiader buchają warstami całemi.\
