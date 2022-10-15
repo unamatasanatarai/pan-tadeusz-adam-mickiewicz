@@ -1,3 +1,4 @@
+Na nim chmielowe liście i kwieciste wieńce\
 Chwiały się; czy je lekkie potrąciły ręce?\
 Czy wiatr ruszył? Tadeusz długo patrzył na nie,\
 Nie śmiał iść w ogród; tylko wsparł się na parkanie,\
