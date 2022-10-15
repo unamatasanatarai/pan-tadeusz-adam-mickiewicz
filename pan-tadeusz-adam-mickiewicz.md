@@ -1,3 +1,4 @@
+Hrabia widział w nich obraz elizejskich cieni,\
 Które, chociaż boleściom, troskom niedostępne,\
 Błąkają się spokojne, ciche, lecz posępne.
 
