@@ -1,3 +1,4 @@
+Że mu się uroiło zostać pańskim zięciem.\
 Do zamku nieproszony coraz częściej jeździł,\
 W końcu u nas jak w swoim domu się zagnieździł.\
 I już miał się oświadczać: lecz pomiarkowano,\
