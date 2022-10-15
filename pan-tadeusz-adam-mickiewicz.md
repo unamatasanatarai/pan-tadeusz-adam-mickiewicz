@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Zaś dla mężczyzn wędliny leżą do wyboru:\
 Półgęski tłuste, kumpie, skrzydliki ozoru,\
 Wszystkie wyborne, wszystkie sposobem domowym\
 Uwędzone w kominie dymem jałowcowym;\
