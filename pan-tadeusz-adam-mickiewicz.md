@@ -1,3 +1,4 @@
+Jeden zwał się Domejko, a drugi Dowejko.\
 Do niedźwiedzicy oba razem wystrzelili:\
 Kto zabił, trudno dociec; strasznie się kłócili\
 I przysięgli strzelać się przez niedźwiedzią skórę:\
