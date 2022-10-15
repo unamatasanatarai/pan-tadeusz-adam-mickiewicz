@@ -1,3 +1,4 @@
+Ostrożnie dziurką klucza zagląda przez zamek:\
 Widzi rzecz dziwną! Sędzia i Robak na ziemi\
 Klęczeli, objąwszy się i łzami rzewnemi\
 Płakali; Robak ręce Sędziego całował,\
