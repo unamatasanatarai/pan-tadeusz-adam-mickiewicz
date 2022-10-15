@@ -1,3 +1,4 @@
+Niedbale i bezładnie: nieporządek miły!\
 Niestare były rączki, co je tak rzuciły.\
 Tuż i sukienka biała, świeżo z kołka zdjęta\
 Do ubrania, na krzesła poręczu rozpięta;\
