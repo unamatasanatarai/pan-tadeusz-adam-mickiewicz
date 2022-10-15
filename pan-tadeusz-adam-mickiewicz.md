@@ -1,3 +1,4 @@
+Ach, ja pamiętam czasy, kiedy do ojczyzny,\
 Pierwszy raz zawitała moda francuszczyzny!\
 Gdy raptem paniczyki młode z cudzych krajów\
 Wtargnęli do nas hordą gorszą od Nogajów,\
