@@ -1,3 +1,4 @@
+Przynosząc z miasta uszy pełne stuku,\
 Przeklęstw i kłamstwa, niewczesnych zamiarów,\
 Zapóźnych żalów, potępieńczych swarów?...
 
