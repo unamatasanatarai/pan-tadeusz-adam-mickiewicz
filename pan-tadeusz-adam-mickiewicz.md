@@ -1,3 +1,4 @@
+I jąkał się jak żaczek przed nauczycielem.\
 Szczęściem, że nauczyciel ładny i niesrogi;\
 Odgadnęła sąsiadka powód jego trwogi,\
 Wszczęła rzecz o mniej trudnych i mądrych przedmiotach,\
