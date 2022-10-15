@@ -1,3 +1,4 @@
+Poprawić się potrzeba było i naprawić\
 Ile możności to...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Córka Stolnika ze swym mężem wojewodą,\
