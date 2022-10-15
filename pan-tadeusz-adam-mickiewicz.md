@@ -1,3 +1,4 @@
+Odpowiedziano: «Pić! pić!»; między szlachty zgrają\
 Stają dwa chóry: ci pić, a ci jeść wołają.\
 Odgłos leci echami; gdzie tylko dochodzi,\
 Wzbudza oskomę w ustach, głód w żołądkach rodzi.\
