@@ -1,3 +1,4 @@
+I z tymi świętościami do pokoju wchodzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Pan odjeżdżasz tak prędko?... Ja panu na drogę\
 Dam podarunek mały i także przestrogę:\
