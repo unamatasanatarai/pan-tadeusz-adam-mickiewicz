@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Z niewymownym przeczuciem cały lud litewski\
 Poglądał każdej nocy na ten cud niebieski,\
 Biorąc złą wróżbę z niego, tudzież z innych znaków:\
 Bo zbyt często słyszano krzyk złowieszczych ptaków,\
