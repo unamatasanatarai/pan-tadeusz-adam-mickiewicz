@@ -1,3 +1,4 @@
+Skrwawioną po rękojeść, i rzekł: «Lachy braty!\
 Oj biada mnie, żem nie miał choć jednej armaty!\
 Dobrze mówił Suworów: »pomnij Ryków kamrat,\
 Żebyś nigdy na Lachów nie chodził bez armat!«\
