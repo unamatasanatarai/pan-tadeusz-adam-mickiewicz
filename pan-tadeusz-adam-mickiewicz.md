@@ -1,3 +1,4 @@
+W kałamaszkach i bryczkach, i piesi, i konni.\
 Stawią wozy, podjezdki do brzezinek wiążą,\
 Ciekawi skutku narad koło domu krążą;\
 Już izbę napełnili, kupią się do sieni,\
