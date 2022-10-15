@@ -1,3 +1,4 @@
+W stronę, gdzie stałeś, i krzyż w powietrzu naznaczył;\
 Mówić nie mógł, lecz dał znak, że zbójcy przebaczył.\
 Ja też pojąłem: ale tak się z gniewu wściekłem,\
 Że o tym krzyżu nigdy i słowa nie rzekłem».
