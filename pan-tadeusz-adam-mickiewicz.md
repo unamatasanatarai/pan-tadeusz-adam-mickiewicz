@@ -1,3 +1,4 @@
+«Tego chciałam! — krzyknęła — ha, języku smoczy!\
 Serce jaszczurcze! To nic, żem tobą zajęta\
 Wzgardziła Asesora, Hrabię i Rejenta,\
 Żeś mnie uwiodł i teraz porzucił sierotę,\
