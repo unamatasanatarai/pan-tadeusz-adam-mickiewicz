@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Podchodził, wstrzymywał się, lornetkę przecierał,\
 Oczy chustką obwiewał i coraz spozierał:\
 «Miałożby to cudowne, śliczne widowisko\
