@@ -1,3 +1,4 @@
+I widziałem tam Żydków od samej granicy;\
 Słychać, że Francuz stoi nad rzeką Łososną,\
 A wojna jeśli będzie, to chyba aż wiosną.\
 Nu, mówię tak: czekajcie; wszak dwór Soplicowa\
