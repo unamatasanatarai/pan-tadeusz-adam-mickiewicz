@@ -1,3 +1,4 @@
+I żeby się ożenił. Jużbyć żony dostał;\
 Partyję upatrzyłem. Nikt z obywateli\
 Nie wyrówna z imienia ani z parenteli\
 Podkomorzemu; jego starsza córka Anna\
