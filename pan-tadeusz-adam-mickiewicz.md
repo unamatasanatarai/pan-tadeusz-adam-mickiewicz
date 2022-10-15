@@ -1,3 +1,4 @@
+Talent śpiewania bardzo na Litwie popłaca,\
 Jedna miłość u ludzi, wsławia i wzbogaca:\
 Jankiel zrobił majątek; syt zysków i chwały,\
 Zawiesił dźwięcznostrunne na ścianie cymbały;\
