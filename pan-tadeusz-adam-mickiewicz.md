@@ -1,3 +1,4 @@
+Wiesz co Major? ot lepiej tę sprawę zagodzić,\
 Pan Sędzia Majorowi musi trud nagrodzić,\
 My powiemy, że my tu przyszli dla wizyty,\
 A tak i kozy całe i wilk będzie syty.\
