@@ -1,3 +1,4 @@
+Że ciocia Telimena jest bogata pani,\
 Że nie są kanonicznie z sobą powiązani\
 Zbyt bliskim pokrewieństwem; i nawet niepewno,\
 Czy ciocia Telimena jest synowca krewną,\
