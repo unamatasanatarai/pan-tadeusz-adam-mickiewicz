@@ -1,3 +1,4 @@
+Ja zaś tej pięknej nimfie oddałem me serce.\
 Niech we krwi wrogów nasze utoną urazy!\
 Nie będziem się zbójczymi rozpierać żelazy;\
 Niech się inaczej spór nasz zalotny roztrzygnie:\
