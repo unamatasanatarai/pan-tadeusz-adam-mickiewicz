@@ -1,3 +1,4 @@
+Zdaniem wszystkich najpierwsze partyje w powiecie,\
 Milczące, zaniedbane od milczącej młodzi.\
 Gościnnego Sędziego również to obchodzi;\
 Wojski zaś, uważając że tak wszyscy milczą,\
