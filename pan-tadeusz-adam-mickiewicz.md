@@ -1,3 +1,4 @@
+Na ławę wskoczył, stanął i nad głowy wznosił\
 Brodę jak wiechę, co mu aż do pasa wisi.\
 Prawą ręką zdjął z wolna z głowy kołpak lisi;\
 Lewą ręką jarmułkę zruszoną poprawił,\
