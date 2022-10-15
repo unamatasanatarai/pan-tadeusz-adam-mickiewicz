@@ -1,3 +1,4 @@
+Gości i czeladź domu na obiad zaprasza:\
 Tak było w dawnych licznych dworach we zwyczaju\
 I zostało się w domu Sędziego. Więc z gaju\
 Wychodziła gromada, niosąca krobeczki,\
