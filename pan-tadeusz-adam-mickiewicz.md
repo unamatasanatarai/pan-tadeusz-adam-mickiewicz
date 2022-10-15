@@ -1,3 +1,4 @@
+Tak Kropiciel ruchomym nakrył szlachtę dachem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym rozbito kłodę, rozcięto powrozy.\
 Szlachta, już wolna, wpada na kwestarskie wozy;\
