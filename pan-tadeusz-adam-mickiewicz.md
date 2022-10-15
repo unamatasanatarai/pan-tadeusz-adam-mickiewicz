@@ -1,3 +1,4 @@
+Wzruszył się i rzuciwszy wzrok ku Telimenie:\
 «Ileż — rzekł — jest piękności choć w tej prostej scenie!\
 Kiedy dusza pasterki z wojownika duszą,\
 Jak łódź z okrętem w burzy, rozłączyć się muszą!\
