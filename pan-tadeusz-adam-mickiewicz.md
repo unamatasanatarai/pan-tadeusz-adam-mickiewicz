@@ -1,3 +1,4 @@
+Moskwa drze koty, to on wojuje nie żartem:\
 Bohater pierwszy w świecie, a wojsk ma bez liku!\
 He, cóż myślisz Macieju, nasz ojcze Króliku?»
 
