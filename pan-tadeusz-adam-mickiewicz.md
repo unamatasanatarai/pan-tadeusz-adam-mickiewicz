@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Spódniczkę miała długą, białą; suknię krótką\
 Z zielonego kamlotu z różową obwódką;\
 Gorset także zielony, różowymi wstęgi\
 Od łona aż do szyi sznurowany w pręgi;\
