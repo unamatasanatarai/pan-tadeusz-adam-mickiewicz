@@ -1,3 +1,4 @@
+Tamtędy, kędy przyszedł; ale drogę skracał,\
 Stąpając po jarzynach, kwiatach i agreście,\
 Aż, przeskoczywszy parkan, odetchnął nareście!\
 Przypomniał, że dziewczynie mówił o śniadaniu;\
