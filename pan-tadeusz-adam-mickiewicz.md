@@ -1,3 +1,4 @@
+Bierze się doń siekana, kwaszona kapusta,\
 Która, wedle przysłowia, sama idzie w usta;\
 Zamknięta w kotle, łonem wilgotnym okrywa\
 Wyszukanego cząstki najlepsze mięsiwa;\
