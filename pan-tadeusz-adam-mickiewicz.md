@@ -1,3 +1,4 @@
+Zostawiła tę w kraju córkę, małą Zosię;\
 Kazałem ją hodować...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bardziej niźli z miłości, może z głupiej pychy,\
