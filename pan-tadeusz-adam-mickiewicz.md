@@ -1,3 +1,4 @@
+Koronnych i litewskich, tak robili starzy;\
 Moja rzecz Scyzorykiem wyrzynać». «Kropidłem\
 Pluskać» dodał Kropiciel. «I wykalać Szydłem»\
 Krzyknął Bartek Szydełko, dobywszy swej szpadki.
