@@ -1,3 +1,4 @@
+Hrabia, choć zagniewany, wstrzymał się w zapędzie,\
 Zaczął cucić, ocierać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tymczasem Gerwazy,\
