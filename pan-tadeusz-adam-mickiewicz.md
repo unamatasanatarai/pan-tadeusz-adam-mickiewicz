@@ -1,3 +1,4 @@
+Trudno było; bo krzeseł dla gości nie stało,\
 Na czterech ławach cztery ich rzędy siedziało:\
 Trzeba było rzęd ruszyć lub ławę przeskoczyć;\
 Zręcznie między dwie ławy umiała się wtłoczyć,\
