@@ -1,3 +1,4 @@
+Wielkiego domu dziedzic, powabnej urody,\
 Już trochę zakochany: cóż? może się zmienić!\
 Potem, czy szczerze kocha? czy się zechce żenić?\
 Z kobietą kilku laty starszą! niebogatą!\
