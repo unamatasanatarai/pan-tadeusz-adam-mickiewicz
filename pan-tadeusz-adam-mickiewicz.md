@@ -1,3 +1,4 @@
+Obnażają się głuszce, cietrzewie i kury.\
 Lecz kur niewiele było: od owej wyprawy,\
 Którą w czasie zajazdu Dobrzyński Sak krwawy\
 Zrobił na kurnik, kędy Zosi gospodarstwo\
