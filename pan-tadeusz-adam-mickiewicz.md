@@ -1,3 +1,4 @@
+Widzieli, jak przez cmentarz szła dziewica moru,\
 Która wznosi się czołem nad najwyższe drzewa,\
 A w lewym ręku chustką skrwawioną powiewa.
 
