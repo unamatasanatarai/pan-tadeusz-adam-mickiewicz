@@ -1,3 +1,4 @@
+Przechodniów odzierają, kościoły rabują!\
 Cesarz idzie do Moskwy... daleka to droga,\
 Jeśli cesarz jegomość wybrał się bez Boga!\
 Słyszałem, że już podpadł pod klątwy biskupie;\
