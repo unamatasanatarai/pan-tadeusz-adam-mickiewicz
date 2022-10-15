@@ -1,3 +1,4 @@
+I wznosząc karabelę, rzekł poważnym tonem:\
 «Kapitanie! nie splamisz czci twojej pardonem.\
 Dałeś próby, rycerzu nieszczęsny, lecz mężny,\
 Twojej odwagi: porzuć opór niedołężny,\
