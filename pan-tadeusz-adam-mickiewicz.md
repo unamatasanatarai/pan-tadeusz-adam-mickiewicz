@@ -1,3 +1,4 @@
+Sapiehę, pancernego znaku porucznika,\
 Co potem był nadwornym marszałkiem królewskim,\
 Na koniec umarł wielkim kanclerzem litewskim,\
 Miawszy lat sto i dziesięć. Ten, za króla Jana\
