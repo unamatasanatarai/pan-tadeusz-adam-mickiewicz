@@ -1,3 +1,4 @@
+«Poraj — krzyknął Mickiewicz — z mitrą w polu złotym,\
 Herb książęcy, Stryjkowski gęsto pisze o tym».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym wielkie powstały w całej karczmie szmery.\
