@@ -1,3 +1,4 @@
+Na pamiętne szelestem krzaki agrestowe,\
 Nie wiedząc, że napastnik już z przeciwnej strony\
 Przybliżył się, czołgając jak wąż przez zagony,\
 Aż wyskoczył z łopuchu. Spojrzała — stał blisko,\
