@@ -1,3 +1,4 @@
+Kwestarz nie był u stołu; miejsce bernardyna,\
 Po prawej stronie męża, ma Podkomorzyna,\
 Sędzia, kiedy już gości jak trzeba ustawił,\
 Żegnając po łacinie, stół pobłogosławił.\
