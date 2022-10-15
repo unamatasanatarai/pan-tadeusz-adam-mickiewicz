@@ -1,3 +1,4 @@
+> Wyprawa Hrabiego na sad — Tajemnicza nimfa gęsi pasie — Podobieństwo grzybobrania do przechadzki cieniów elizejskich — Gatunki grzybów — Telimena w świątyni dumania — Narady tyczące się postanowienia Tadeusza — Hrabia pejzażysta — Tadeusza uwagi malarskie nad drzewami i obłokami — Hrabiego myśl o sztuce — Dzwon — Bilecik — Niedźwiedź, mospanie!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia wracał do siebie; lecz konia wstrzymywał,\
 Głową coraz w tył kręcił, w ogród się wpatrywał.\
