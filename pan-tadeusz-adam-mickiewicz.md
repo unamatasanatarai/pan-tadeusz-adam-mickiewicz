@@ -1,3 +1,4 @@
+Choć stryj na wychowanie niczego nie skąpił;\
 On wolał z flinty strzelać albo szablą robić.\
 Wiedział, że go myślano do wojska sposobić,\
 Że ojciec w testamencie wyrzekł taką wolę;\
