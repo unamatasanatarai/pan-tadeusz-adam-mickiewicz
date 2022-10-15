@@ -1,3 +1,4 @@
+Aż tu widzimy wszystkie landraty, hofraty,\
 Komisarze i wszystkie podobne psubraty\
 Kłaniają się nam nisko; każdy drży, blednieje,\
 Jako owad prusaczy, gdy wrzątkiem kto zleje.\
