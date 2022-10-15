@@ -1,3 +1,4 @@
+Wiesz, w jakim rządzie żyjesz, jesteś dość bogaty,\
 Wykupisz się od więzień połową intraty».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«To niezgodna — rzekł Hrabia — z moim charakterem!\
