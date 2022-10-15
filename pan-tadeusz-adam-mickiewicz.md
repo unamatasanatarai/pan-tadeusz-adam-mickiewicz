@@ -1,3 +1,4 @@
+I widać, że czym innym zajętą miał głowę.\
 Nosił skórzaną plackę: czasem w miejscu stanie,\
 Duma długo i — muchę zabije na ścianie.
 
