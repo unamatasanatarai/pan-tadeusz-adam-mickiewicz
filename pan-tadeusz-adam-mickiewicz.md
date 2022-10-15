@@ -1,3 +1,4 @@
+Każe wlec, w każdej belce wysiekać toporem\
 Półokrągłe otwory, w te otwory wtyka\
 Nogi więźniów i drugą belką je zamyka:\
 Oba drewna, gwoździami przebite po rogach,\
