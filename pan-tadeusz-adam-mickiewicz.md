@@ -1,3 +1,4 @@
+Tam ów bystry swawolnik, spowijany w trawy\
 I liściem podesłany, bez ruchu, bez wrzawy,\
 Niewidzialny i ledwie dosłyszany szepce,\
 Jako dziecię krzykliwe złożone w kolebce,\
