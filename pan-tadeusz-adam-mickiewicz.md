@@ -1,3 +1,4 @@
+Co począć? jeśli Zosia o wszystkim się dowie?\
 Prosić o rękę? a cóż Telimena powie?\
 Nie, czuł, że nie mógł dłużej zostać w Soplicowie.
 
