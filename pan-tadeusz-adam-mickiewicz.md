@@ -1,3 +1,4 @@
+Który gwiaździste wije po niebie przeguby,\
 Którego mylnie wężem chrzczą astronomowie,\
 Jest nie wężem, lecz rybą: *Lewiatan* się zowie.\
 Przed czasy mieszkał w morzach, ale po potopie\
