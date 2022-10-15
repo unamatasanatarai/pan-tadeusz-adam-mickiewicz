@@ -1,3 +1,4 @@
+Jak panów bardzo dobrych i moich dziedziców;\
 Szanuję też Dobrzyńskich, Bartków i Maciejów,\
 Jako dobrych sąsiadów, panów dobrodziejów;\
 A mówię tak: jeżeli państwo chcą gwałt zrobić\
