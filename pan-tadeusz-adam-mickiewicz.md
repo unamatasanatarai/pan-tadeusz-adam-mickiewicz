@@ -1,3 +1,4 @@
+Na koniec westchnął i rzekł sam do siebie z gniewem:\
 «Głupi! cóż ona winna, że się ja pomylił?»\
 Więc z wolna głowę ku niej zza drzewa wychylił —\
 Gdy nagle Telimena zrywa się z siedzenia,\
