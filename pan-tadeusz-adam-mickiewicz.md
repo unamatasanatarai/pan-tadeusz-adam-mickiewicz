@@ -1,3 +1,4 @@
+Rycerzu mój, w wojenne kiedy wstąpisz szranki,\
 Obróć czułe spojrzenie na kolor kochanki\
 (Tu, wstążkę oderwawszy od sukni, zrobiła\
 Kokardę i na piersiach Hrabi przyszpiliła).\
