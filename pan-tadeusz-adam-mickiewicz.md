@@ -1,3 +1,4 @@
+Przyjeżdżasz bardzo późno, prawie po obiedzie».\
 «Jem wcześnie — rzekł Dobrzyński — ja tu nie dla jadła\
 Przybyłem, tylko że mnie ciekawość napadła,\
 Obejrzeć z bliska naszą armią narodową.\
