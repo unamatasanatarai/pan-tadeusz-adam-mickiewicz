@@ -1,3 +1,4 @@
+Przyszedłszy, drągi wparli w wierzch słupa nadgniły,\
 Sami u końców wisząc pchają z całej siły:\
 Jako flisy uwięzłą na rapach wicinę\
 Długimi drągi z brzegu pędzą na głębinę.
