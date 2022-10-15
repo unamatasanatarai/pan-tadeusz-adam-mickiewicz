@@ -1,3 +1,4 @@
+Co żonę przegrał, grając w mariasza z Moskalem,\
 Jak o tym pieśń powiada. Ja mam dosyć na tem,\
 Że mój Scyzoryk jeszcze zabłyśnie przed światem\
 W takim ręku! Niech tylko jenerał pamięta,\
