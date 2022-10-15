@@ -1,3 +1,4 @@
+Kędy zostały trupy, ranni i zwaliska.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W ludziach straty nie było. Ale wszystkie ławy\
 Miały zwichnione nogi; stół także kulawy,\
