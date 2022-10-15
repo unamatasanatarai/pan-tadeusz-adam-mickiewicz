@@ -1,3 +1,4 @@
+Zdawała się go badać ciekawością zdjęta:\
 Bo dom o tysiąc kroków widny jak na dłoni,\
 A Hrabia drogi pyta? Ale Hrabia do niéj\
 Chciał koniecznie coś mówić i szukał powodu\
