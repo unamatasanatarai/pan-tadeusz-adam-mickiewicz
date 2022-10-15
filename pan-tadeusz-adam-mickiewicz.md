@@ -1,3 +1,4 @@
+Biorąc złą wróżbę z niego, tudzież z innych znaków:\
 Bo zbyt często słyszano krzyk złowieszczych ptaków,\
 Które na pustych polach gromadząc się w kupy,\
 Ostrzyły dzioby, jakby czekając na trupy;\
