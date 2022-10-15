@@ -1,3 +1,4 @@
+Wszczęła rzecz o mniej trudnych i mądrych przedmiotach,\
 O wiejskiego pożycia nudach i kłopotach,\
 I jak bawić się trzeba, i jak czas podzielić,\
 By życie uprzyjemnić i wieś rozweselić.\
