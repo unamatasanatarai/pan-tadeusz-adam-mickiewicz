@@ -1,3 +1,4 @@
+Przycisnąwszy do piersi święconą gromnicę,\
 Podniósł w niebo zatlone nadzieją źrenice,\
 I zalał się ostatnich łez rozkosznych zdrojem:\
 «Teraz rzekł, Panie, sługę twego puść z pokojem!»\
