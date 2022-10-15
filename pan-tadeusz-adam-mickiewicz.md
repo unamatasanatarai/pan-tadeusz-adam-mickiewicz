@@ -1,3 +1,4 @@
+I z lekka zarzuciwszy wyloty kontusza,\
 I wąsa pokręcając, podał rękę Zosi\
 I skłoniwszy się grzecznie w pierwszą parę prosi.\
 Za Podkomorzym szereg w pary się gromadzi,\
