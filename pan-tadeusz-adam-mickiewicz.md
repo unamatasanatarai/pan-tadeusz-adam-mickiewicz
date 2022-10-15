@@ -1,3 +1,4 @@
+Czy jedź! tylko stój!» Ale on już szybkim biegiem\
 Wyprzedził ją daleko; już stanął nad brzegiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziwnym zrządzeniem losów, po tym samym brzegu\
