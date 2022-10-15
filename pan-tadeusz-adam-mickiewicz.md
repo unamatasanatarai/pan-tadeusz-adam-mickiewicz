@@ -1,3 +1,4 @@
+Wyprowadzają konie, zajeżdżają bryki,\
 Ledwie dziedziniec taką gromadę ogarnie,\
 Odezwały się trąby, otworzono psiarnie;\
 Zgraja chartów, wypadłszy, wesoło skowycze;\
