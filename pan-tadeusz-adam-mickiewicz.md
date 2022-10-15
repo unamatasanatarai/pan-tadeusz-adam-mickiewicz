@@ -1,3 +1,4 @@
+Tłoczy się do drzwi ciżba, pewnie idą w kuchnię;\
 Dostali szable, pewnie krwawy bój wybuchnie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz tam na korytarzu, Państwo uważacie\
