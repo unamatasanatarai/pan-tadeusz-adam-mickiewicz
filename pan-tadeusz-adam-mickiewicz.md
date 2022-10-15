@@ -1,3 +1,4 @@
+Czuję, że we mnie mężnych krew Horeszków płynie!\
 Wiem, co winienem sławie i mojej rodzinie.\
 Tak, muszę zerwać wszelkie z Soplicą układy,\
 Choćby do pistoletów przyszło lub do szpady!\
