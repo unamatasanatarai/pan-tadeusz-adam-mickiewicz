@@ -1,3 +1,4 @@
+Mgła wisiała nad ziemią, jak strzecha ze słomy\
 Nad ubogą Litwina chatką; w stronie wschodu,\
 Widać z bielszego nieco na niebie obwodu\
 Że słońce wstało, tędy ma zstąpić na ziemię;\
