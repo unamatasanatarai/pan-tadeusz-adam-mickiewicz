@@ -1,3 +1,4 @@
+Kiedy umarł ksiądz Robak w ową burzę nocną,\
 Widziałam, że pan jadąc żałował nas mocno;\
 Pan łzy miał w oczach; te łzy, powiem panu szczerze,\
 Wpadły mnie aż do serca; odtąd panu wierzę\
