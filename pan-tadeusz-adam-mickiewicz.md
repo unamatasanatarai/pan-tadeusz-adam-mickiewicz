@@ -1,3 +1,4 @@
+I kręcił kartkę, której dotąd nie przeczytał.\
 Sędzia Podkomorzemu węgrzyna, szampana\
 Dolewał, służył pilnie, ściskał za kolana,\
 Ale do rozmawiania z nim nie miał ochoty\
