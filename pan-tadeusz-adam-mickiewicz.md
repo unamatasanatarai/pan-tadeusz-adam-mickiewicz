@@ -1,3 +1,4 @@
+Towarzystwa tajemne wiązać i zakładać;\
 Na koniec w Soplicowie, w swym ojczystym gnieździe,\
 Gdy gotował powstanie zginął na zajeździe.\
 Właśnie o jego śmierci nadeszła wiadomość\
