@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Znów gra. Już drżą drążki, tak lekkimi ruchy,\
 Jak gdyby zadzwoniło w strunę skrzydło muchy,\
 Wydając ciche, ledwie słyszalne brzęczenia.\
 Mistrz zawsze patrzył w niebo czekając natchnienia.\
