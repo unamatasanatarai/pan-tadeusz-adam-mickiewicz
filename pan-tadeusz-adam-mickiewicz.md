@@ -1,3 +1,4 @@
+Szlachta z Moskwą okropną walkę zakończyli\
 I chronią się gromadnie w domy i stodoły,\
 Opuszczają plac boju, gdzie wkrótce żywioły\
 Stoczą walkę.
