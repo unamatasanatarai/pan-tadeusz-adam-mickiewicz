@@ -1,3 +1,4 @@
+Pogląda na gościniec, na drogi rozstajne,\
 Kędy działy się jakieś rzeczy nadzwyczajne.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na gościńcu i drogach od samego ranka\
