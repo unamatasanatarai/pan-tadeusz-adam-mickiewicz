@@ -1,3 +1,4 @@
+Najeżone łozami, wierzbami czubate;\
 Oba stawy ubrane w zieloności szatę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z nich dwa strugi, jak ręce związane pospołu,\
