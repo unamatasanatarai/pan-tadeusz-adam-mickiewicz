@@ -1,3 +1,4 @@
+Takie rzeczy, mopanku, robią się w Krakowie\
 Lub w Warszawie, nie u nas, w zaścianku, w Dobrzynie;\
 Aktów konfederackich nie piszą w kominie\
 Kredą, nie na wicinie, lecz na pergaminie.\
