@@ -1,3 +1,4 @@
+Wierni go towarzysze płaszczami okryli;\
 Mierzy, nie w żebro, ale w głowę Tadeusza:\
 Strzelił i trafił... blisko, w środek kapelusza.\
 Okręcił się Tadeusz: aż Kropiciel wpada\
