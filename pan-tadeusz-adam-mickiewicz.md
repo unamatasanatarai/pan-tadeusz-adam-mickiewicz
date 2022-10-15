@@ -1,3 +1,4 @@
+Na miejsce naznaczone zapewne się stawi,\
 Rozprawim się; a jeśli Bóg pobłogosławi,\
 Ukarzę go, a potem za Łososny brzegi\
 Przepłynę, gdzie mnie bratnie czekają szeregi.\
