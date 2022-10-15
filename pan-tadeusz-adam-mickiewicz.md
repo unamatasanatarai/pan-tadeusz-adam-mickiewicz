@@ -1,3 +1,4 @@
+Spadając to na barki, to znowu na oczy;\
 W ręku ogromna laska: tak pan Sędzia kroczy.\
 Schyliwszy się i ręce obmywszy w strumieniu,\
 Usiadł przed Telimeną na wielkim kamieniu,\
