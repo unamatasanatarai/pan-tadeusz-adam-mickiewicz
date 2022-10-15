@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Nadaremnie oczyma szukam bernardyna;\
 Chciałbym mu opowiedzieć wypadek ciekawy,\
 Podobny do zdarzenia dzisiejszej obławy.\
