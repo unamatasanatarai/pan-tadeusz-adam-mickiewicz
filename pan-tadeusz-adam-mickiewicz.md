@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Wojny!» krzyknęli. — «Jakiej?» spytał. — Zawołali:\
 «Wojny z Moskalem! Bić się! Hejże na Moskali!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Prusak wciąż wołał, a głos coraz wyżej wznosił;\
