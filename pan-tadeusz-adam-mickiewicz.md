@@ -1,3 +1,4 @@
+Choć maleńką, i zaczął wyliczać jej cnoty.\
 «Ja biegłem — przerwał Rejent, otarłszy pot z czoła —\
 Biegłem tuż za niedźwiedziem; a pan Wojski woła:\
 »Stój na miejscu!« Jak tam stać? Niedźwiedź w pole wali,\
