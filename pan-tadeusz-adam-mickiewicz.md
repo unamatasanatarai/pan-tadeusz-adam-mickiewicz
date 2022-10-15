@@ -1,3 +1,4 @@
+Cywilizować będzie i konstytuować;\
 Ogłosił nam, że jacyś Francuzi wymówni\
 Zrobili wynalazek: iż ludzie są równi...\
 Choć o tym dawno w Pańskim pisano Zakonie,\
