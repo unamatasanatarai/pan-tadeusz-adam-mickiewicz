@@ -1,3 +1,4 @@
+A drugą ręką z czapki proso w trawę miota\
 Dla wróblów: spada z dachów krzykliwa hołota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy się staruszek bawił widokiem biesiady,\
