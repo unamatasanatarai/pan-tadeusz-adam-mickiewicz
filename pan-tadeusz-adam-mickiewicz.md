@@ -1,3 +1,4 @@
+Jakby nie pamiętali na zasiew i żniwo.\
 Co krok wstrzymują woły i podjezdki w bronie\
 I poglądają z trwogą ku zachodniej stronie,\
 Jakby z tej strony miał się objawić cud jaki,\
