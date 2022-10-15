@@ -1,3 +1,4 @@
+Lecz nie wiedziałam, że tak podle umiesz kłamać!\
 Słuchałam pode drzwiami stryja! Więc to dziecko,\
 Zosia, wpadła ci w oko i na nią zdradziecko\
 Dybiesz? Zaledwieś jedną nieszczęsną oszukał,\
