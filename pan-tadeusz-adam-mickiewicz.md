@@ -1,3 +1,4 @@
+Inni na rożny sadzą ogromne pieczenie\
 Wołowe, sarnie, combry dzicze i jelenie;\
 Ci skubią stosy ptastwa, lecą puchów chmury,\
 Obnażają się głuszce, cietrzewie i kury.\
