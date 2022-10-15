@@ -1,3 +1,4 @@
+Nikt z gości nie uważał oprócz Telimeny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wyleciawszy przez bramę, biegł prosto na pole.\
 Jak szczupak, gdy mu oścień skróś piersi przekole,\
