@@ -1,3 +1,4 @@
+Ale razem straszliwy powstał krzyk za domem:\
 «Wiwat Hrabia!» On wjeżdżał na folwark Maciejów,\
 Sam zbrojny, za nim zbrojnych dziesięciu dżokejów.\
 Hrabia siedział na dzielnym koniu, w czarnym stroju;\
