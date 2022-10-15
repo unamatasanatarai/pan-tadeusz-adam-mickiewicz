@@ -1,3 +1,4 @@
+Wysoko bernardyna: bo skoro dostrzegał\
 Ubytek w jego szklance, natychmiast podbiegał\
 I rozkazał dolewać lipcowego miodu.\
 Słychać, że z bernardynem znali się za młodu,\
