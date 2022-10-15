@@ -1,3 +1,4 @@
+I widocznie był wdzięczny jej za pochwał tyle;\
 Postrzegła się, umilkła, oczy opuściła\
 I jako róży pączek cała się spłoniła.
 
