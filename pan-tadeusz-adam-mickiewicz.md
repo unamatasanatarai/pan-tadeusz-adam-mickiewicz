@@ -1,3 +1,4 @@
+W uczuciach są od dziadów stalsi, bo sumienni.\
 Długo serce młodzieńca, proste i dziewicze,\
 Chowa wdzięczność za pierwsze miłości słodycze!\
 Ono rozkosz i wita, i żegna z weselem,\
