@@ -1,3 +1,4 @@
+Ucichły i stanęły: tak pan Sędzia każe,\
 U niego ze dniem kończą pracę gospodarze.\
 «Pan świata wie, jak długo pracować potrzeba;\
 Słońce, Jego robotnik, kiedy znijdzie z nieba,\
