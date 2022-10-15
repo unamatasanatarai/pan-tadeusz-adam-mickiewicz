@@ -1,3 +1,4 @@
+Kapitan Ryków myśli ostatni cios zadać,\
 Spędzić szlachtę z dziedzińca i dworem owładać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Formuj się do ataku! — zawołał — na sztyki!\
