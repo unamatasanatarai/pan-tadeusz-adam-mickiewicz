@@ -1,3 +1,4 @@
+Brali ziółka, całując jej ręce, wodzowie;\
 Zosia znowu dygała w kolej zapłoniona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem jenerał Kniaziewicz wziął ją za ramiona,\
