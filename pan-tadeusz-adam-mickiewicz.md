@@ -1,3 +1,4 @@
+Zosia, widząc szturm, skoczy, i litością zdjęta\
 Zasłania starca, na krzyż rozpiąwszy rączęta.\
 Wstrzymali się; Gerwazy z wolna ustępował,\
 Zniknął z oczu, szukano, gdzie się pod stół schował:\
