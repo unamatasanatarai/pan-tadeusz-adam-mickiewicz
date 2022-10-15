@@ -1,3 +1,4 @@
+Wiadomo, że sam jeden skoczył z wałów Pragi\
 Bronić pana Pocieja, który odbieżany\
 Na placu boju, dostał dwadzieścia trzy rany.\
 Myślano długo w Litwie, że obu zabito:\
