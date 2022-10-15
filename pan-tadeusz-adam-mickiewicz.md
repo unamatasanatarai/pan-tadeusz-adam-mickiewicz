@@ -1,3 +1,4 @@
+Chociaż byli chwytani silnymi rękoma\
 I przewracani jako na przewiąsłach słoma.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tylko jeden Konewka, któremu w powiecie\
