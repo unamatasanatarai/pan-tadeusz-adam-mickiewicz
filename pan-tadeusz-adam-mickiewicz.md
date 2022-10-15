@@ -1,3 +1,4 @@
+Zabiłem; więc pokora... wszedłem między mnichy.\
 Ja, niegdyś dumny z rodu, ja, com był junakiem,\
 Spuściłem głowę, kwestarz, zwałem się Robakiem,\
 Że jako robak w prochu...
