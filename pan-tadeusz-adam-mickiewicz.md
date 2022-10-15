@@ -1,3 +1,4 @@
+Że ważnej i niezwykłej jest posłem nowiny.\
 Ku niemu oczy całe zwróciło zebranie.\
 On, odetchnąwszy nieco, rzekł: «Niedźwiedź, mospanie!»\
 Resztę wszyscy odgadli: że źwierz z *matecznika*\
