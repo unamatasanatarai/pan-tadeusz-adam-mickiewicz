@@ -1,3 +1,4 @@
+Bo przecież o ten zamek dziś toczy się sprawa.\
 My od dzisiaj do zamku nabyliśmy prawa\
 I mimo całą strony przeciwnej zajadłość\
 Dowiodę, że zamczysko wzięliśmy w posiadłość.\
