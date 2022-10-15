@@ -1,3 +1,4 @@
+Ukazał się pan Hrabia pod zamkowym lasem.\
 Wiedziano w okolicy, że ten pan nie może\
 Nigdy nigdzie stawić się w naznaczonej porze.\
 I dziś zaspał poranek; więc na sługi zrzędził,\
