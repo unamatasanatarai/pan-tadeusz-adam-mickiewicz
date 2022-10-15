@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Poprawiwszy raz jeszcze i włosów, i stroju,\
 Kazano jej wzdłuż i wszerz przejść się po pokoju.\
 Telimena uważa znawczyni oczyma,\
 Musztruje siostrzenicę, gniewa się i zżyma;\
