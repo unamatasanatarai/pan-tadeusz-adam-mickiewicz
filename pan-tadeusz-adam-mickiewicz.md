@@ -1,3 +1,4 @@
+A już gotowe stały cugi i podwody,\
 Aby każdego odwieźć do jego gospody».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przeszli już kilka komnat. Gerwazy w milczeniu,\
