@@ -1,3 +1,4 @@
+Strzelców zebrać, rzecz łatwa; prochu mam dostatek;\
 W plebanii u księdza jest kilka armatek;\
 Przypominam, iż Jankiel mówił, iż u siebie\
 Ma groty do lanc, że je mogę wziąć w potrzebie;\
