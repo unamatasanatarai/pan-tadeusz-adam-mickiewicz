@@ -1,3 +1,4 @@
+Aż w końcu, Aleksander ze swoim braciszkiem\
 Konstantym i z niemieckim cesarzem Franciszkiem,\
 W nogi z pola; więc cesarz, widząc, że po walce,\
 Spojrzał na nich, zaśmiał się i otrząsnął palce.\
