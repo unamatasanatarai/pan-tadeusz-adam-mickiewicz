@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Lecz Tadeusz podbiega i z żywością mówi:\
 «Czymże zdołam odwdzięczyć dobremu stryjowi,\
 Który tak o me szczęście ustawnie się trudzi!\
 Ach dobry stryju, byłbym najszczęśliwszy z ludzi,\
