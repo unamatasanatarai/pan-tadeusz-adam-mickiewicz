@@ -1,3 +1,4 @@
+I chronią się gromadnie w domy i stodoły,\
 Opuszczają plac boju, gdzie wkrótce żywioły\
 Stoczą walkę.
 
