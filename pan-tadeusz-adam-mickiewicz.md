@@ -1,3 +1,4 @@
+Co to ma znaczyć? Powstał ze snopa Ekonom,\
 Chciał przypatrzyć się, spytać; długo stał nad drogą,\
 Daremnie wołał, nie mógł zatrzymać nikogo\
 Ni poznać we mgle. Jezdni migają jak duchy;\
