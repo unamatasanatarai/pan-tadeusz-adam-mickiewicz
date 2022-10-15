@@ -1,3 +1,4 @@
+Ile drzew, tyle rogów znalazło się w boru,\
 Jedne drugim pieśń niosą jak z choru do choru.\
 I szła muzyka coraz szersza, coraz dalsza,\
 Coraz cichsza i coraz czystsza, doskonalsza,\
