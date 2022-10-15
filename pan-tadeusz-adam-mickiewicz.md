@@ -1,3 +1,4 @@
+Zaświeciły mu, jako dwie wielkie jagody\
 Pereł, dwie łzy na wielkich błękitnych źrenicach,\
 I stoczyły się szybko po rumianych licach.
 
