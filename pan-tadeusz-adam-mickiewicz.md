@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie Wojski wymawiał to słowo: *źwierzyny*,\
 Gdy Asesor półgębkiem podszepnął: *dziewczyny*;\
 «Brawo!» krzyknęła młodzież, powstał szmer i śmiechy;\
