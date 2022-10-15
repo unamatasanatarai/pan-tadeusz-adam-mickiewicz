@@ -1,3 +1,4 @@
+Asesor mniej krzykliwy i mniej był ruchawy\
 Od Rejenta, szczuplejszy i mały z postawy,\
 Lecz straszny na reducie, balu i sejmiku,\
 Bo powiadano o nim: ma żądło w języku;\
