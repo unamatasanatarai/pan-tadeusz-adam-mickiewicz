@@ -1,3 +1,4 @@
+Nie maluje drzew naszych, pośród których siedzi?\
 Prawdziwie, będą z pana żartować sąsiedzi,\
 Że mieszkając na żyznej litewskiej równinie,\
 Malujesz tylko jakieś skały i pustynie».
