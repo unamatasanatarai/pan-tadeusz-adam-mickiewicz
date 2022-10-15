@@ -1,3 +1,4 @@
+Próbowali go wszyscy, ale ledwie który\
 Z oficerów mógł podnieść ten rapier do góry.\
 Mówiono, że Dembiński, sławny ręki siłą,\
 Podźwignąłby szablicę, lecz go tam nie było.\
