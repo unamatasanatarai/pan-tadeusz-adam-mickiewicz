@@ -1,3 +1,4 @@
+Gdy go wszyscy przywykną widzieć od maleńka;\
 Lecz niechaj ukształcona, dorosła panienka,\
 Nagle ni stąd, ni zowąd przed światem zabłyśnie,\
 Wtenczas każdy się do niej przez ciekawość ciśnie,\
