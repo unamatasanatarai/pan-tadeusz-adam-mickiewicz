@@ -1,3 +1,4 @@
+Prawie wszyscy Dobrzyńscy schronili się w Księstwie;\
 Zapewne do którego weszli legionu».\
 «W istocie — odpowiedział młody Szef szwadronu —\
 Mam w drugiej kompaniji wąsate straszydło,\
