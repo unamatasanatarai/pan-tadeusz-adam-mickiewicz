@@ -1,3 +1,4 @@
+Głośny był od tej puszczy do poleskich lasów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Domeyki i Doweyki wszystkie sprzeciwieństwa\
 Pochodziły, rzecz dziwna, z nazwisk podobieństwa\
