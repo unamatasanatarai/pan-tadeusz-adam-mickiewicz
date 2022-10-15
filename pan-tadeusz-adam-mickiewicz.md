@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Cóż przedstawiają? goście pytali ciekawi.\
 Za czym Wojski podnosi laskę i tak prawi:\
 (Tymczasem podawano wódkę przed jedzeniem)\
