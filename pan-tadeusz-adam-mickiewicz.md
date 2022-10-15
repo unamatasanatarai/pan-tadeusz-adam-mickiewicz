@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;W Soplicowie ruch wielki. Lecz ni psów hałasy,\
 Ani rżące rumaki, skrzypiące kolasy,\
 Ni odgłos trąb dających hasło polowania\
 Nie mogły Tadeusza wyciągnąć z posłania;\
