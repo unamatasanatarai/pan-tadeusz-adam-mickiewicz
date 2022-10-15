@@ -1,3 +1,4 @@
+Płut w sieni, Ryków za nim, wołają żołnierzy.\
 Już trzech najbliższych domu na pomoc im bieży,\
 Już przeze drzwi włażą trzy błyszczące bagnety,\
 A za nimi trzy czarne schylone kaszkiety.\
