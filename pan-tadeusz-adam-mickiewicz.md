@@ -1,3 +1,4 @@
+Który pierwsi ćwiczeni w budowań rzemieśle\
 Hiramscy na Syjonie wystawili cieśle.\
 Żydzi go naśladują dotąd we swych szkołach,\
 A szkół rysunek widny w karczmach i stodołach.\
