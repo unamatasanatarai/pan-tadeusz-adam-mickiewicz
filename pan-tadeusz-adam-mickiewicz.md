@@ -1,3 +1,4 @@
+Między licznymi kurcząt i jendyków ciały,\
 W których piersi widelce świeżo wbite tkwiały.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po chwili w Horeszkowskim samotnym budynku\
