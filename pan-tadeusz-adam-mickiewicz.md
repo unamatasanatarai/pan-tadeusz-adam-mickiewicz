@@ -1,3 +1,4 @@
+W aktach jeneralności, a Woźny obwieści.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Co się tycze legiji honorowej krzyża,\
 Że późno przyszedł, nic to sławie nie ubliża;\
