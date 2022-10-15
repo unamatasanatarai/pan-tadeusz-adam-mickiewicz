@@ -1,3 +1,4 @@
+Zosia kładnie pończoszki białe, ażurowe,\
 I trzewiki warszawskie białe, atłasowe.\
 Tymczasem pokojowa sznurowała stanik,\
 Potem rzuciła na gors pannie pudermanik;\
