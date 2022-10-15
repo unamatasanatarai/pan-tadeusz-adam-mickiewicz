@@ -1,3 +1,4 @@
+Aby każdego odwieźć do jego gospody».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przeszli już kilka komnat. Gerwazy w milczeniu,\
 Tu wzrok na ścianie wstrzymał, ówdzie na sklepieniu,\
