@@ -1,3 +1,4 @@
+Zaiste! nic tak uczuć w sercu nie rozpala,\
 Jako kiedy się serce od serca oddala.\
 Czas jest to wiatr, on tylko małą świecę zdmuchnie,\
 Wielki pożar od wiatru tym mocniej wybuchnie.\
