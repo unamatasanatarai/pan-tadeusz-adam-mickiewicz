@@ -1,3 +1,4 @@
+Na nim oparte, jak ścian i kolumn obłamy,\
 Tam gałęziste kłody, tu wpół zgniłe tramy\
 Ogrodzone parkanem traw. W środek tarasu\
 Zajrzeć straszno, tam siedzą gospodarze lasu,\
