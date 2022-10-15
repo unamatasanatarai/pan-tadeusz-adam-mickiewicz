@@ -1,3 +1,4 @@
+Podkomorzy. Właśnie swój kieliszek nalewał;\
 Gdy zuchwalstwem Hrabiego rażony jak gromem,\
 Oparłszy się o kielich butlem nieruchomym,\
 Głowę wyciągnął na bok i ucha przyłożył,\
