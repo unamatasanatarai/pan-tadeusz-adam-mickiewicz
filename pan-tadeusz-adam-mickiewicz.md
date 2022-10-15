@@ -1,3 +1,4 @@
+Ale daremnie nawet zapuszczać się okiem,\
 Bo tam już wszystko mglistym zakryte obłokiem,\
 Co się wiecznie ze trzęskich oparzelisk wznosi.\
 A za tą mgłą na koniec (jak wieść gminna głosi)\
