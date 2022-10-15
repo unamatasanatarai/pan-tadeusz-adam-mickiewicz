@@ -1,3 +1,4 @@
+Niby srebrzyste strączki, co od słońca blasku\
 Świeciły jak korona na świętych obrazku.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zerwał się i widzenie zaraz uleciało\
