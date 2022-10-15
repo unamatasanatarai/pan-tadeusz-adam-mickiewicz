@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Telimena sprawuje obowiązki pani,\
 Wita wchodzących, sadza, rozmową zabawia,\
 I siostrzenicę wszystkim z kolei przedstawia:\
 Naprzód Tadeuszowi, jako krewną bliską.\
