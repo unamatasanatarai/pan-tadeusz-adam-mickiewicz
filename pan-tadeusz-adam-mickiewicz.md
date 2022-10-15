@@ -1,3 +1,4 @@
+Lub, co lepsza, wynieść się całkiem z okolicy,\
 Na przykład zrobić małą podróż do stolicy,\
 Młodego chłopca na świat wielki wyprowadzić,\
 Kroki jego kierować, pomagać mu, radzić,\
