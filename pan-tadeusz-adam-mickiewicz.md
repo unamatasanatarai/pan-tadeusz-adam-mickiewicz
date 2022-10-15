@@ -1,3 +1,4 @@
+Krzyczał nieraz, do góry podniósłszy szklanicę,\
 Że nie miał przyjaciela nad Jacka Soplicę,\
 Jak on mnie ściskał! Wszyscy, którzy to widzieli,\
 Myślili, że on ze mną duszą się podzieli...\
