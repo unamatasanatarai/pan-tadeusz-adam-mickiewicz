@@ -1,3 +1,4 @@
+Przyszły dziedzic fortunki mojej. Z łaski nieba,\
 Zostawię mu kęs niezły szlacheckiego chleba;\
 Już mu też czas obmyśleć los, postanowienie;\
 Ale zważaj no, aśćka, moje utrapienie!\
