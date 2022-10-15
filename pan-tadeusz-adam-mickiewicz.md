@@ -1,3 +1,4 @@
+Wojski był w tajemnicy, lecz słowem ujęty\
 Honorowym, staruszek milczał jak zaklęty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po zawarciu układów wyszedł z izby Ryków,\
