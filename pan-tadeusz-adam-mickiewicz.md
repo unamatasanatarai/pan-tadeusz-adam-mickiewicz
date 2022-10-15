@@ -1,3 +1,4 @@
+Ja uproszę Sędziego, ażeby nie bronił\
 Dojeżdżaczowi, choćby po pszenicy gonił;\
 I tuszę, że tę łaskę otrzymam od pana».\
 To wyrzekłszy, Sędziego ścisnął za kolana.
