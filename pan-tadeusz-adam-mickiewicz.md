@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem Rykowa Sędzia ułagadza,\
 I Asesora także na bok odprowadza;\
 Przemyślają, jak by rzecz zakończyć bez sądu,\
