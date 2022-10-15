@@ -1,3 +1,4 @@
+Pełznie jak żółw leniwa, ulewą brzemienna,\
 I z nieba aż do ziemi spuszcza długie smugi,\
 Jak rozwite warkocze, to są deszczu strugi;\
 Chmura z gradem, jak balon szybko z wiatrem leci,\
