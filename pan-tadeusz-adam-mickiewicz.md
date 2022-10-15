@@ -1,3 +1,4 @@
+«Telimeno, bogdaj mnie jasny piorun ubił,\
 Jeśli nie prawda, żem cię, dalbóg, bardzo lubił,\
 Czy kochał. Krótkie z sobą spędziliśmy chwile,\
 Ale one mnie przeszły tak słodko, tak mile,\
