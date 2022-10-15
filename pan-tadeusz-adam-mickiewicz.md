@@ -1,3 +1,4 @@
+Rozjuszona Strapczyna i Sprawnik zajadły.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Natenczas Wojski chwycił na taśmie przypięty\
 Swój róg bawoli, długi, cętkowany, kręty\
