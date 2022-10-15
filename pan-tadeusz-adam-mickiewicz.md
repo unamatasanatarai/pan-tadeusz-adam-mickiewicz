@@ -1,3 +1,4 @@
+Nie słucha, ani tańczy, ani się weseli.\
 Ręce w tył założywszy, stoi zły, ponury,\
 Wspomina swe dawniejsze do Zosi konkury;\
 Jak lubił dla niej nosić kwiaty, pleść koszyczki,\
