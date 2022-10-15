@@ -1,3 +1,4 @@
+Daremnie wołał, nie mógł zatrzymać nikogo\
 Ni poznać we mgle. Jezdni migają jak duchy;\
 Tylko słychać raz po raz tętent kopyt głuchy\
 I, co dziwniejsza jeszcze, szczękanie pałaszy:\
