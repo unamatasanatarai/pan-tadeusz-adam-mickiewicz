@@ -1,3 +1,4 @@
+Do malarstwa!» W istocie, był to Hrabia młody;\
 Niedawny żołnierz: lecz że wielkie miał dochody\
 I swoim kosztem cały pułk jazdy wystawił,\
 I w pierwszej zaraz bitwie wybornie się sprawił,\
