@@ -1,3 +1,4 @@
+Utkwiłem oczy we dwie twojej broni rury;\
 Rozpacz jakaś, żal dziwny do ziemi mnie przybił!\
 Czemuż? ach mój Gerwazy, czemuś wtenczas chybił?\
 Łaskę byś zrobił!... Widać, za pokutę grzechu\
