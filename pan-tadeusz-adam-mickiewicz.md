@@ -1,3 +1,4 @@
+Wojski, stojąc z daleka, poglądał ciekawie\
 W oczy panu Hrabiemu, a nóż miał w rękawie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już mieli zacząć bitwę, lecz Sędzia przeszkodził;\
