@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Telimena pytała: «Któż panu przeszkadza\
 Kochać i być szczęśliwym!» — «Mych przeznaczeń władza —\
 Rzekł Hrabia — ciemność przeczuć, które ruchem tajnym\
 Rwą się ku stronom obcym, dziełom nadzwyczajnym.\
