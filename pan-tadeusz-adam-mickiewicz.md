@@ -1,3 +1,4 @@
+Damskich, pańskich, żołnierskich, jak łuska błyszcząca,\
 Wyzłocona promieńmi zachodniego słońca\
 I odbita o ciemne murawy wezgłowia.\
 Wre taniec, brzmi muzyka, oklaski i zdrowia!
