@@ -1,3 +1,4 @@
+I wcisnął się po cichu, jak wilk do obory.\
 Nieszczęściem, trącił krzaki suchego agrestu:\
 Ogrodniczka, jak gdyby zlękła się szelestu,\
 Oglądała się wkoło, lecz nic nie spostrzegła;\
