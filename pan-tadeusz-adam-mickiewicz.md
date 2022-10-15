@@ -1,3 +1,4 @@
+Co się z nim stało, różnie powiadają o tem,\
 Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dąbrowski rzekł do Maćka: «A ty co, kolego?\
