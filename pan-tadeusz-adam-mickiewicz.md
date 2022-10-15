@@ -1,3 +1,4 @@
+I do pieśni rzucali mi słowo po słowie:\
 Jak bajeczne żurawie, na dzikim ostrowie,\
 Nad zaklętym pałacem przelatując wiosną,\
 I słysząc zaklętego chłopca skargę głośną,\
