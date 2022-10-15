@@ -1,3 +1,4 @@
+Dobrzyńscy prawie wszyscy, sąsiadów niemało\
 Z okolicznych zaścianków, zbrojni i bezbronni,\
 W kałamaszkach i bryczkach, i piesi, i konni.\
 Stawią wozy, podjezdki do brzezinek wiążą,\
