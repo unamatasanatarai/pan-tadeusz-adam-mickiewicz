@@ -1,3 +1,4 @@
+Widać było z łez, które wylotem kontusza\
 Otarł prędko, jak kochał pana Tadeusza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W ślad gospodarza wszystko ze żniwa i z boru,\
