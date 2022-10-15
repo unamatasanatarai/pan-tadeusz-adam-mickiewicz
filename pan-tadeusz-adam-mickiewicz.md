@@ -1,3 +1,4 @@
+Aby każdą z nich ubrać w osobny kożuszek.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Panie starsze, już wcześniej wstawszy, piły kawę;\
 Teraz drugą dla siebie zrobiły potrawę\
