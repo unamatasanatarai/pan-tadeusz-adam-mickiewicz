@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Major osłupiał, oczy przetarł, z gniewu blady\
 Zawołał: «Bunt! buntownik!» i dobywszy szpady,\
 Biegł przebić. Wtem ksiądz dostał z rękawa krócicę:\
