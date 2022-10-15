@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;O dworze Soplicowski! Jeśli dotąd całe\
 Świecą się pod lipami twoje ściany białe,\
 Jeśli tam dotąd szlachty sąsiedzkiej gromada\
 Za gościnnymi stoły Sędziego zasiada:\
