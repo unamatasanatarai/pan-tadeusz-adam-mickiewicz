@@ -1,3 +1,4 @@
+Niby tańce, i dziwny ubiór: istne duchy\
 Błądzące po księżycu. Tamci w czarnych, ciasnych,\
 Ci w długich, rozpuszczonych szatach jak śnieg jasnych;\
 Tamten pod kapeluszem jak obręcz szerokim,\
