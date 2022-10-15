@@ -1,3 +1,4 @@
+I wizyją formalną, zamawiając sobie\
 Urodzonych tu wszystkich obecnych świadectwo,\
 I pana Asesora wzywając na śledztwo,\
 Z powodu wielmożnego Sędziego Soplicy:\
