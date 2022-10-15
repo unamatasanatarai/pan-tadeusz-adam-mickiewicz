@@ -1,3 +1,4 @@
+Drapią jak mogą. A my milczkiem wchodzim w radę:\
 Hejże na koń, pomieszać Niemcom rejteradę!\
 Nuż landratom tłuc w karki, z hofratów drzeć schaby,\
 A herów oficerów łowić za harcaby!\
