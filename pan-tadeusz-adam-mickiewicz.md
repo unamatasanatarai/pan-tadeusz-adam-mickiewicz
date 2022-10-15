@@ -1,3 +1,4 @@
+Gładził ją ręką, podszedł, i jeszcze raz nisko\
 Skłoniwszy się, rzekł smutnie: «Mopanku, panisko,\
 Daruj mnie, że tak mówię, jaśnie grafie panie,\
 To jest mój zwyczaj, nie zaś nieuszanowanie:\
