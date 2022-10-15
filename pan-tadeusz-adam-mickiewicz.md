@@ -1,3 +1,4 @@
+Powiemy, że my przyszli tu z wizytą, pili\
 Sobie, tańczyli, trochę sobie podchmielili,\
 A Płut przypadkiem ognia zakomenderował,\
 Bitwa! i batalijon tak jakoś zmarnował.\
