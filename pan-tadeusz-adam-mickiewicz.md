@@ -1,3 +1,4 @@
+Z różnych innych zaścianków jest tu nas ze dwieście:\
 Wszyscy więc radźmy. Jeśli potrzeba marszałka,\
 Głosujmy wszyscy; równa u każdego gałka.\
 Niech żyje równość!»
