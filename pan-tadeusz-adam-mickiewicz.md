@@ -1,3 +1,4 @@
+A wtem puścił fałszywy akord jak syk węża,\
 Jak zgrzyt żelaza po szkle: przejął wszystkich dreszczem\
 I wesołość pomięszał przeczuciem złowieszczem.\
 Zasmuceni, strwożeni, słuchacze zwątpili,\
