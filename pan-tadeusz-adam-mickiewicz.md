@@ -1,3 +1,4 @@
+Przyszła nagle taż chętka, nie wiadomo czemu.\
 Zaczęli proces w ziemstwie, potem w głównym sądzie,\
 W senacie, znowu w ziemstwie i guberskim rządzie;\
 Wreszcie, po wielu kosztach i ukazach licznych,\
