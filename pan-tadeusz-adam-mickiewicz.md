@@ -1,3 +1,4 @@
+Że mój Scyzoryk jeszcze zabłyśnie przed światem\
 W takim ręku! Niech tylko jenerał pamięta,\
 Aby tasiemka była długa, rozciągnięta,\
 Bo to długie; a zawsze od lewego ucha\
