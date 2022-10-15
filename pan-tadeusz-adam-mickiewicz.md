@@ -1,3 +1,4 @@
+Jeden gość, co widziałam, to był gołąb dziki.\
 Już mi troszeczkę nudno tak siedzieć w alkowie;\
 Pan Sędzia nawet mówi, że to źle na zdrowie».
 
