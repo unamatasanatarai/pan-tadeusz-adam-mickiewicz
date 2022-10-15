@@ -1,3 +1,4 @@
+Dam podarunek mały i także przestrogę:\
 Niechaj pan zawsze z sobą relikwije nosi\
 I ten obrazek, a niech pamięta o Zosi.\
 Niech pana Pan Bóg w zdrowiu i szczęściu prowadzi,\
