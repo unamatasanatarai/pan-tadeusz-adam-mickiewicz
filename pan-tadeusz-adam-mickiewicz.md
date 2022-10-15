@@ -1,3 +1,4 @@
+Służy dla dam wyłącznie i panów podróżnych;\
 W drugiej ogromna sala: koło każdej ściany\
 Ciągnie się wielonożny stół wąski, drewniany;\
 Przy nim stołki, choć niższe, podobne do stoła,\
