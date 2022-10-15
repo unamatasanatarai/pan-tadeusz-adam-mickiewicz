@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Milczała patrząc na się kolejno gromada.\
 «Radziłbym — rzecze Prusak — czekać bernardyna\
 Robaka, bo od niego pochodzi nowina;\
 Tymczasem posłać pewnych szpiegów nad granicę,\
