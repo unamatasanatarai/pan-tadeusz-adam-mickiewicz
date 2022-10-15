@@ -1,3 +1,4 @@
+Chwalił piękności, a błędom wybaczył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I zazdrościła młodzież wieszczów sławie,\
 Która tam dotąd brzmi w lasach i w polu,\
