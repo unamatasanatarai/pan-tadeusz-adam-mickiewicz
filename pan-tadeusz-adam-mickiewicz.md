@@ -1,3 +1,4 @@
+Na koniec umarł wielkim kanclerzem litewskim,\
 Miawszy lat sto i dziesięć. Ten, za króla Jana\
 Trzeciego, był pod Wiedniem w chorągwi hetmana\
 Jabłonowskiego. Owóż, ów kanclerz powiadał,\
