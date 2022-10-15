@@ -1,3 +1,4 @@
+Żegnam was nie na długo; są pewne nadzieje,\
 Że nam z wiosną swobody zorza zajaśnieje\
 I Litwa, co was teraz żegna jak tułaczy,\
 Wkrótce jako zwycięskich swych zbawców zobaczy.\
