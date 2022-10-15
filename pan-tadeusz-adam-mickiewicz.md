@@ -1,3 +1,4 @@
+Ukazują palcami, skąd zając wyruszy,\
 Cmokają z cicha; charty nadstawiły uszy,\
 Wytknęły pyski na wiatr i drżą niecierpliwie,\
 Jak dwie strzały złożone na jednej cięciwie.\
