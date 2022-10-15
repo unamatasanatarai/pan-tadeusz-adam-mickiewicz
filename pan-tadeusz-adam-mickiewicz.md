@@ -1,3 +1,4 @@
+Zażył, kichnął, dwakroć mię po ramieniu klasnął:\
 »Księże Robaku — mówił — księże bernardynie,\
 Obaczymy się w Litwie może nim rok minie;\
 Powiedz Litwinom, niech mnie czekają z tabaką\
