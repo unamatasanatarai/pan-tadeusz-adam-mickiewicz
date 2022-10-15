@@ -1,3 +1,4 @@
+Studzi gniewy, zapala potrzebę jedzenia.\
 Marszem i całodziennym znużeni sejmikiem,\
 «Jeść! jeść!» po trzykroć zgodnym wezwali okrzykiem,\
 Odpowiedziano: «Pić! pić!»; między szlachty zgrają\
