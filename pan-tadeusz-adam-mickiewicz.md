@@ -1,3 +1,4 @@
+Że w tym domu dostatek mieszka i porządek.\
 Brama na wciąż otwarta przechodniom ogłasza,\
 Że gościnna, i wszystkich w gościnę zaprasza.
 
