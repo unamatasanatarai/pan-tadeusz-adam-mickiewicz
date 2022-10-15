@@ -1,3 +1,4 @@
+Unosi na swych falach księżyca pozłotę;\
 Woda warstami spada, a na każdej warście\
 Połyskają się blasku miesięcznego garście,\
 Światło w rowie na drobne drzazgi się roztrąca,\
