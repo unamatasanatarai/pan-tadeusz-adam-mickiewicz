@@ -1,3 +1,4 @@
+A za szlachtą Moskale od lewego skrzydła\
 Biegą zmieszani. Wszczął się bój koło Kropidła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chrzciciel, który w obronie Maćka oręż stracił,\
