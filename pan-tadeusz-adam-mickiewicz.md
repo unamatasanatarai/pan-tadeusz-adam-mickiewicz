@@ -1,3 +1,4 @@
+Stryj nieraz na to miejsce i na drzwi poglądał,\
 Jakby czyjegoś przyjścia był pewny i żądał.\
 I Tadeusz wzrok stryja ku drzwiom odprowadzał,\
 I z nim na miejscu pustym oczy swe osadzał.\
