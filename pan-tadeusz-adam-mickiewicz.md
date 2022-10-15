@@ -1,3 +1,4 @@
+Wierz mi, ile poznałam, pojętne to dziecię,\
 Warto, żeby na wielkim przetarło się świecie.\
 Dobrze brat zrobi, gdy go do stolicy wyśle,\
 Na przykład do Warszawy? Lub wie brat, co myślę...\
