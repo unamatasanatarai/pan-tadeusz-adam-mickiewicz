@@ -1,3 +1,4 @@
+Pełno znajdziesz rynsztunków, jak w starej zbrojowni.\
 Pod dachem wiszą cztery ogromne szyszaki,\
 Ozdoby czół marsowych: dziś Wenery ptaki,\
 Gołębie, w nich gruchając karmią swe pisklęta.\
