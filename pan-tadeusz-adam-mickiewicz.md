@@ -1,3 +1,4 @@
+Bawiące się z jej nóżką, tak ona co chwila\
 Z rękami i koszykiem po owoc się schyla,\
 Który stopą nadtrąci lub dostrzeże okiem.
 
