@@ -1,3 +1,4 @@
+Szli za końmi i tryumf mój zdobili świetny,\
 Potem ich powieszono u podnóża Etny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Było to osobliwsze szczęście dla Sopliców,\
