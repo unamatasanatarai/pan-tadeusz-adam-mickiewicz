@@ -1,3 +1,4 @@
+Jako ostatni odbłysk ziemskiej Jacka chwały.\
 Tymczasem lud na klęczkach Anioł Pański mowi,\
 Upraszając o wieczny pokój grzesznikowi;\
 Sędzia obchodzi gości i wiejską gromadę,\
