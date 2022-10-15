@@ -1,3 +1,4 @@
+I zewsząd obwijają tanecznymi skręty;\
 Więc gniewa się, prawicę na rękojeść składa,\
 Jakby rzekł: «Nie dbam o was, zazdrośnikom biada!»\
 Zwraca się z dumą w czole i z wyzwaniem w oku,\
