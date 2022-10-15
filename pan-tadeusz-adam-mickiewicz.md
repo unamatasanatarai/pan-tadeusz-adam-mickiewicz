@@ -1,3 +1,4 @@
+Ten ich w pół ciała rzeza, tamten w głowy wali.\
 Jako machina, którą niemieccy majstrowie\
 Wymyślili i która młockarnią się zowie,\
 A jest razem sieczkarnią, ma cepy i noże,\
