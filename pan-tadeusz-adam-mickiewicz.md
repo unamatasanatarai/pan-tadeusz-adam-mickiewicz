@@ -1,3 +1,4 @@
+Hejże na koń, pomieszać Niemcom rejteradę!\
 Nuż landratom tłuc w karki, z hofratów drzeć schaby,\
 A herów oficerów łowić za harcaby!\
 A jenerał Dąbrowski wpada do Poznania\
