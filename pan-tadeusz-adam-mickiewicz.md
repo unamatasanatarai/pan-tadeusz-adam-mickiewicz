@@ -1,3 +1,4 @@
+Uwiązany na taśmie ze srebrnym kutasem,\
 Choć nie miał co otwierać, bo zamku podwoje\
 Stały otworem. Przecież, wynalazł drzwi dwoje;\
 Sam je własnym nakładem naprawił i wstawił,\
