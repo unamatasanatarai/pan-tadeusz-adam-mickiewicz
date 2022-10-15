@@ -1,3 +1,4 @@
+I teraz, ha! bezkarnie ujść tobie nie może,\
 Przysięgam: kto Horeszków krwi kroplę wysączył...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem ksiądz na łożu usiadł i tak kończył:\
