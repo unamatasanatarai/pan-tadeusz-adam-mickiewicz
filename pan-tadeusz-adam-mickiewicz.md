@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«O polska krwi! — zawołał Bernardyn wzruszony,\
 Z otwartymi skoczywszy na Sędzię ramiony —\
 Prawe dziecię Sopliców! Tobie Bóg przeznacza\
