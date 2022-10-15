@@ -1,3 +1,4 @@
+Za kim dać kreskę? nie wie, i sam z sobą w walce,\
 Pyta losu, wzniósł ręce, wytknął wielkie palce,\
 Zmrużył oczy, paznokciem do paznokcia mierzy:\
 Widać, że kreskę swoją kabale powierzy;\
