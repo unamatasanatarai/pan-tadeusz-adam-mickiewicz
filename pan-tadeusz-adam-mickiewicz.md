@@ -1,3 +1,4 @@
+Od sztućca który naszał, z gardłem tak szerokiem,\
 Że zeń jak z konwi tuzin kulek lał potokiem.\
 Oba krzyczeli: «Wiwat Chrzciciel z kropidełkiem!»\
 Prusak chciał mówić, ale zgłuszono go zgiełkiem\
