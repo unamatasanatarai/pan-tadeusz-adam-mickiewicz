@@ -1,3 +1,4 @@
+Szlachta ciągnęła kufy z piwnicy na pasach,\
 Sproszona na sejm albo sejmik powiatowy,\
 Albo na imieniny pańskie, lub na łowy.\
 Podczas uczty na chorze tym kapela stała,\
