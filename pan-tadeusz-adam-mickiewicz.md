@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Tam jeszcze więcej zamieszania.\
 Tam stronnicy Sopliców pracują w zawody\
 Nad rozkuciem Dobrzyńskich, rozrywają kłody.\
 Widząc to, jegry za broń porywają, biegą.\
