@@ -1,3 +1,4 @@
+On dawał zaraz ognia, a nigdy nie mylił;\
 Za każdym razem czarny kaszkiet w trawę padał\
 I już się rzadko który zza ściany wykradał.\
 Stolnik, widząc strwożone swe nieprzyjaciele,\
