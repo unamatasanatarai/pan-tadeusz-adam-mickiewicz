@@ -1,3 +1,4 @@
+Nie wydając nazwiska, nie tylko przed gminem,\
 Ale nawet przed tobą i przed własnym synem!\
 Wszakże ksiądz prowincyjał dał mi pozwolenie\
 In articulo mortis zrobić objawienie.\
