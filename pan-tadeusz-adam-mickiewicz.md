@@ -1,3 +1,4 @@
+Rozmawiają jak gwiazdy promieńmi drżącemi;\
 Kto wie! może dla tego ziemia tak do słońca\
 Dąży, i tak jest zawsze miłą dla miesiąca,\
 Że wiecznie patrzą na się i najkrótszą drogą\
