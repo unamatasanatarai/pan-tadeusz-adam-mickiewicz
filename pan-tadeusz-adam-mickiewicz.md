@@ -1,3 +1,4 @@
+Rozpływały się złote, migające pręgi\
 Z otworu czarnej strzechy jak z warkocza wstęgi;\
 I słońce usta sennych promykiem poranka\
 Drażni jak dziewczę kłosem budzące kochanka.\
