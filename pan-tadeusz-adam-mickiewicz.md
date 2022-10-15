@@ -1,3 +1,4 @@
+Dwóch wróblów bijących się; oba samcy stare,\
 Jeden młodszy cokolwiek miał podgarle szare,\
 Drugi czarne; dalejże tłuc się po podwórzu,\
 Przewracać kulki, że aż zaryli się w kurzu —\
