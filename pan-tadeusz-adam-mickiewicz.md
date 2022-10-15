@@ -1,3 +1,4 @@
+Rachunki myśli wielkiej, plany wyobraźni,\
 Zabawki niewinności, uciechy przyjaźni,\
 Wylania się serc czułych: gdy spiż z dala ryknie,\
 Wszystko miesza się, zrywa, mąci się i niknie!»\
