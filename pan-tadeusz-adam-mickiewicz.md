@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Na lewej druga scena; refektarz klasztoru\
 Obrócony na salę szlacheckiego zboru.\
 Starsi rzędem na ławach siedzą, młodzi stają\
 I ciekawi przez głowy w środek zaglądają;\
