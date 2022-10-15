@@ -1,3 +1,4 @@
+Sędzia, skończywszy pozew, Protazego wzywa,\
 Skargę przeciw Hrabiemu głośno odczytywa:\
 O skrzywdzenie honoru, zelżywe wyrazy,\
 Zaś przeciw Gerwazemu o gwałty i razy;\
