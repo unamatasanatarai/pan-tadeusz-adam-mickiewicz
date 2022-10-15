@@ -1,3 +1,4 @@
+Obca li więzi ciebie na padole władza?\
 Ach, domyślam się, — pewnie wzgardzony miłośnik,\
 Jaki pan możny, albo opiekun zazdrośnik,\
 W tym cię parku zamkowym jak zaklętą strzeże!\
