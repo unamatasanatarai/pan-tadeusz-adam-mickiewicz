@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia, który był w zamku pod strażą Moskali,\
 Gdy pierzchła straż zlękniona, dworzan na koń wsadził,\
 I słysząc strzały, w ogień jazdę swą prowadził,\
