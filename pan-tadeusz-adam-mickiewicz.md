@@ -1,3 +1,4 @@
+Miał coś pisać; bojąc się, ażeby nie zasnął,\
 Zażył, kichnął, dwakroć mię po ramieniu klasnął:\
 »Księże Robaku — mówił — księże bernardynie,\
 Obaczymy się w Litwie może nim rok minie;\
