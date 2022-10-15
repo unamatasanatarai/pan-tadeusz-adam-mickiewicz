@@ -1,3 +1,4 @@
+Leci, jezdnych i pieszych po drodze obala,\
 I na koniec Soplicę w stodole podpala.\
 Wtem ciężka marzeniami na pierś spadła głowa,\
 I tak usnął ostatni Klucznik Horeszkowa.
