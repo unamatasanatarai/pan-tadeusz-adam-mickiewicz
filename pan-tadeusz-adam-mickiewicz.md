@@ -1,3 +1,4 @@
+Kłaniają się nam nisko; każdy drży, blednieje,\
 Jako owad prusaczy, gdy wrzątkiem kto zleje.\
 My śmiejąc się, trąc ręce, prosim uniżenie\
 O nowinki? pytamy, co słychać o Jenie?\
