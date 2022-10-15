@@ -1,3 +1,4 @@
+A Zosia z zamkniętymi stojąc powiekami,\
 Milczała, sypiąc łzami jako brylantami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, biorąc dary i całując rękę,\
