@@ -1,3 +1,4 @@
+Podlatuje i skrzydła w błękicie zanurza,\
 Podobne do niknących piór Anioła Stróża,\
 Który nocną modlitwą ludzi przytrzymany\
 Spóźnił się, śpieszy wracać między spółniebiany.
