@@ -1,3 +1,4 @@
+Czas by już zjeść i wypić pana Sędzi zdrowie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zdziwili się domowi, patrząc na Robaka,\
 Skąd mu się wzięła mina i wesołość taka.\
