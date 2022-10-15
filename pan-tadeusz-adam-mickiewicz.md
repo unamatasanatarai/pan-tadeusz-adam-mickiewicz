@@ -1,3 +1,4 @@
+Która, wedle przysłowia, sama idzie w usta;\
 Zamknięta w kotle, łonem wilgotnym okrywa\
 Wyszukanego cząstki najlepsze mięsiwa;\
 I praży się, aż ogień wszystkie z niej wyciśnie\
