@@ -1,3 +1,4 @@
+Aż gdy skończono powieść, pamfila położył,\
 I rzekł śmiejąc się: «Niech tam sobie kto chce chwali\
 Niemców cywilizcją, porządek Moskali;\
 Niechaj Wielkopolanie uczą się od Szwabów\
