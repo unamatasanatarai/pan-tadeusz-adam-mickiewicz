@@ -1,3 +1,4 @@
+Zofija z opuszczonym ku ziemi wejrzeniem,\
 Zapłoniwszy się, gości witała dygnieniem\
 (Od Telimeny pięknie dygać wyuczona).\
 Miała wianek na głowie jako narzeczona,\
