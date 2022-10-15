@@ -1,3 +1,4 @@
+«Tak, tak, mój Gerwazeńku» rzekł Woźny Protazy.\
 «Tak to, tak!» powtórzyli zgodnie kilka razy,\
 Kiwając w takt głowami; wreszcie Woźny rzecze:\
 «Iż proces nasz skończy się dziwnie, ja nie przeczę.\
