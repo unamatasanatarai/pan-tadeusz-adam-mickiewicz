@@ -1,3 +1,4 @@
+Tak długo błąkali się w obcych stronach świata,\
 Dziwne miała powaby narodowa szata,\
 Która im wspominała i młode ich lata,\
 I dawne ich miłostki. Więc ze łzami prawie\
