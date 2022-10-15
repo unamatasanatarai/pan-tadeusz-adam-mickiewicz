@@ -1,3 +1,4 @@
+Sam Podczaszyc jaki był, opisywać długo;\
 Dosyć, że się nam zdawał małpą lub papugą\
 W wielkiej peruce, którą do złotego runa\
 On lubił porównywać, a my do kołtuna.\
