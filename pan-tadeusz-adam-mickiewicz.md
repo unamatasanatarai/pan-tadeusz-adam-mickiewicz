@@ -1,3 +1,4 @@
+Powieść taką ciekawą, tak pilnie słuchaną!\
 Bo do Sędziego nagle ktoś przysłał człowieka,\
 Donosząc, że z niezwłocznym interesem czeka.\
 Sędzia, dając dobranoc, żegnał całe grono.\
