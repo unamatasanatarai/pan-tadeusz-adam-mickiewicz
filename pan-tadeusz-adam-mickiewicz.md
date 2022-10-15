@@ -1,3 +1,4 @@
+Jak gdyby kogoś szukał; z wolna wszystkich oczy\
 Sędziwa twarz Wojskiego ciągnie i jednoczy:\
 Znak to był, że szukają na przyszłą wyprawę\
 Wodza i że Wojskiemu oddają buławę.\
