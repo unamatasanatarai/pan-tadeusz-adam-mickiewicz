@@ -1,3 +1,4 @@
+Na trzecim wozie Prusak w kubraku wytartym,\
 A pan Zan z Mickiewiczem jechali na czwartym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem, Podhajscy i Isajewicze,\
