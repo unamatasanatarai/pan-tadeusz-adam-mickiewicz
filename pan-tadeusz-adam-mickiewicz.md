@@ -1,3 +1,4 @@
+Udawał przewybornie krajobraz zimowy.\
 W środku czerniał ogromny bór konfiturowy,\
 Stronami domy, niby wioski i zaścianki,\
 Okryte zamiast śronu cukrowymi pianki;\
