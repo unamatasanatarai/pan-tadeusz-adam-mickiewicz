@@ -1,3 +1,4 @@
+Ledwo klęknął i szczęki zębowate ruszył,\
 Zaraz miłośną stawów rozmowę zagłuszył\
 I zbudził Hrabię.
 
