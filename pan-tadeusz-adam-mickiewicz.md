@@ -1,3 +1,4 @@
+Pierwszy raz zawitała moda francuszczyzny!\
 Gdy raptem paniczyki młode z cudzych krajów\
 Wtargnęli do nas hordą gorszą od Nogajów,\
 Prześladując w ojczyźnie Boga, przodków wiarę,\
