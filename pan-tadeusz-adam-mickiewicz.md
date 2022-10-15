@@ -1,3 +1,4 @@
+Ubytek w jego szklance, natychmiast podbiegał\
 I rozkazał dolewać lipcowego miodu.\
 Słychać, że z bernardynem znali się za młodu,\
 Kędyś tam w cudzych krajach. Robak często chadzał\
