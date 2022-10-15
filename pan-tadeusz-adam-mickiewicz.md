@@ -1,3 +1,4 @@
+Którem z żalu za grzechy w spowiedzi ślubował:\
 Że Bogu i Ojczyźnie poświęcony cały,\
 Nie służąc pysze, ziemskiej nie szukając chwały,\
 Żyłem dotąd i chciałem umrzeć bernardynem,\
