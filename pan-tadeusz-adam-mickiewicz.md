@@ -1,3 +1,4 @@
+I Rózga twoja kwitnie pono jak przed czasy;\
 Słyszałem, żeś niedawno Moskalów oćwiczył.\
 Lecz gdzie są bracia twoi? Niezmiernie bym życzył\
 Widzieć te Scyzoryki i te wasze Brzytwy,\
