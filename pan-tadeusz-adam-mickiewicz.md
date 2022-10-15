@@ -1,3 +1,4 @@
+Jutro w tyle; dziś bijesz jutro ciebie biją;\
 Czy o to gniew? tak u nas po żołniersku żyją.\
 Skąd by się człowiekowi tyle złości wzięło\
 Gniewać się o przegranę! Oczakowskie dzieło\
