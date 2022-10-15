@@ -1,3 +1,4 @@
+Podano w kolej wódkę: za czym wszyscy siedli,\
 I chołodziec litewski milczkiem żwawo jedli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Obiadowano ciszej, niż się zwykle zdarza;\
