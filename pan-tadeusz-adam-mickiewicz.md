@@ -1,3 +1,4 @@
+Takie robiąc sam w sobie wyrzuty i skargi,\
 Pochylił w talerz głowę, milczał i gryzł wargi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem zły duch nową pokusą go wabi,\
