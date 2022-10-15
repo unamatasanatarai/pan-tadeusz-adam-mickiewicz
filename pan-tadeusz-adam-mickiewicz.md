@@ -1,3 +1,4 @@
+Głową coraz w tył kręcił, w ogród się wpatrywał.\
 I raz mu się zdawało, że znowu z okienka\
 Błysnęła tajemnicza, bieluchna sukienka\
 I coś lekkiego znowu upadło z wysoka,\
