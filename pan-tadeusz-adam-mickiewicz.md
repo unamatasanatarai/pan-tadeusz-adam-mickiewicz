@@ -1,3 +1,4 @@
+I rzekł: «Mój Sędzio, dawniej było jeszcze gorzéj!\
 Teraz, nie wiem, czy moda i nas starych zmienia,\
 Czy młodzież lepsza, ale widzę mniej zgorszenia.\
 Ach, ja pamiętam czasy, kiedy do ojczyzny,\
