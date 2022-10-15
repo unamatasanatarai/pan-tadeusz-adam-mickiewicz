@@ -1,3 +1,4 @@
+Bo Asesor już dawno Telimenę rzucił,\
 I aby tę kokietkę tym mocniej zasmucił,\
 Ku Wojszczance afekty serdeczne obrócił.\
 Panna nie nadto młoda, już pono półwieczna,\
