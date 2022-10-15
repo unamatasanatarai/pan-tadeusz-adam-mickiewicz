@@ -1,3 +1,4 @@
+I strzygł uszami, właśnie jakby był szalonym.\
 Nieraz się nalękałam. Serce mi wróżyło\
 Z tych psów jakieś nieszczęście: tak się też zdarzyło.\
 Bo gdym szła do ogrodu pewnego poranka,\
