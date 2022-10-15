@@ -1,3 +1,4 @@
+Na pierwszej uczcie sami służyli ludowi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem goście, potraw czekający w sali,\
 Z zadziwieniem na wielki serwis poglądali,\
