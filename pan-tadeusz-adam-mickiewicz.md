@@ -1,3 +1,4 @@
+Żyto ubrane w srebra malarskiego listy\
 I gryka wyrabiana sztucznie z czokolady,\
 I kwitnące gruszkami i jabłkami sady.
 
