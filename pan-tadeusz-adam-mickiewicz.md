@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Pan Sędzia, skłoniwszy się, opuścił biesiadę.\
 On na dziedzińcu włościan traktował gromadę;\
 Zebrawszy ich za stołem na dwa staje długim,\
 Sam siadł na jednym końcu, a pleban na drugim.\
