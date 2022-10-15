@@ -1,3 +1,4 @@
+Choć ranny, leci z szablą wzniesioną do góry,\
 Krzyknęli: «Górą Maćki, niech żyją Mazury!»\
 Dodawszy wzajem serca biegną na Moskali:\
 Nadaremnie ich Robak z Maćkiem wstrzymywali.
