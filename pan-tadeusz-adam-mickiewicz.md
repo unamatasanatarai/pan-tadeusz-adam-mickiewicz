@@ -1,3 +1,4 @@
+Tak ich kiedyś nazwali mimo lat różnicę;\
 Że potem ona żyjąc w stolicy czas długi\
 Wyrządziła niezmierne Sędziemu usługi;\
 Stąd ją Sędzia szanował bardzo i przed światem\
