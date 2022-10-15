@@ -1,3 +1,4 @@
+Każdy ją chwalić musi, choć i nie podoba.\
 Znaleźć się, spodziewam się, że umiesz: w stolicy\
 Urosłaś; choć dwa lata mieszkasz w okolicy,\
 Nie zapomniałaś jeszcze całkiem Petersburka.\
