@@ -1,3 +1,4 @@
+Choć była bez zwierciadeł, salą zwierciadlaną\
 Stał Hrabia na krużganku zwróconym ku bramie,\
 Chłodził się wiatrem, surdut wdział na jedno ramię,\
 Drugi rękaw i poły u szyi sfałdował\
