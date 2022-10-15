@@ -1,3 +1,4 @@
+On mi z rąk flintę wyrwał, wycelił, wystrzelił:\
 Między dwie głowy strzelić! sto kroków! nie chybić!\
 I w sam środek paszczęki! tak mu zęby wybić!\
 Panowie! długo żyję: jednego widziałem\
