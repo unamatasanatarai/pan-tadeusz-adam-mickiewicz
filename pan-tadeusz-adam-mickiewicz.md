@@ -1,3 +1,4 @@
+Jakby mlekiem nalane filiżanki saskie,\
 I kulista, czarniawym pyłkiem napełniona\
 *Purchawka*, jak pieprzniczka; zaś innych imiona,\
 Znane tylko w zajęczym lub wilczym języku,\
