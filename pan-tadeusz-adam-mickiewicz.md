@@ -1,3 +1,4 @@
+Starał się gwałtem zdobyć, przemyślał wykradać,\
 Mścił się otwarcie — ale tak chytrze śmierć zadać,\
 Panu polskiemu, w Polszcze — i w zmowie z Moskalem!»
 
