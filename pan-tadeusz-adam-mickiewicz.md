@@ -1,3 +1,4 @@
+Kręcąc nim jak maczugą na prawo, na lewo,\
 Runął wprost na ostatnich strażników obławy:\
 Hrabię i Tadeusza. Oni bez obawy\
 Stoją w kroku, na źwierza wytknęli flint rury,\
