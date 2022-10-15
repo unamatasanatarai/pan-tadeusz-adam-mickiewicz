@@ -1,3 +1,4 @@
+Telimena mu leje wino, on się gniewa\
 Na natrętność; pytany o zdrowie — poziewa.\
 Ma za złe (tak się zmienił jednego wieczora),\
 Że Telimena zbytnie do zalotów skora;\
