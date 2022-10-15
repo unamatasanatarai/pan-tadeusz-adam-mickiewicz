@@ -1,3 +1,4 @@
+O jakimś niespodzianym w ogrodzie spotkaniu,\
 O jakimś po łopuchach i grzędach stąpaniu,\
 Tadeusz, wyciągnąwszy co najdłużej uszy,\
 Połykał gorzkie słowa i przetrawiał w duszy.\
