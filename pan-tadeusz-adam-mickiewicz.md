@@ -1,3 +1,4 @@
+Pyta, co to za wojsko; my krzyczym: »Powstańce,\
 Najjaśniejszy Cesarzu! Litwa ochotnicy!«\
 Pyta: pod czyją wodzą? — »Sędziego Soplicy!«\
 Ach, któż by potem pisnąć śmiał o Targowicy?...\
