@@ -1,3 +1,4 @@
+Była od Telimeny za upór łajana,\
 Nie chcąc modnego stroju, aż wymogła płaczem\
 Że ją tak zostawiono, w ubraniu prostaczem.
 
