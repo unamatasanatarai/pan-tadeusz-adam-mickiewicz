@@ -1,3 +1,4 @@
+Nie mogły Tadeusza wyciągnąć z posłania;\
 Ubrany padłszy w łóżko, spał jak bobak w norze.\
 Nikt z młodzieży nie myślał szukać go po dworze;\
 Każdy sobą zajęty śpieszył, gdzie kazano;\
