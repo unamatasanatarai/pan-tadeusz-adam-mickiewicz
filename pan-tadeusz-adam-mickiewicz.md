@@ -1,3 +1,4 @@
+Słomy, liścia, gałęzi, wydartej murawy,\
 Wichry w las uderzyły i po głębiach puszczy\
 Ryknęły jak niedźwiedzie.
 
