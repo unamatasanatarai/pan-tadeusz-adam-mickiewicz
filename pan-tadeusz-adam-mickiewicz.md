@@ -1,3 +1,4 @@
+Lecz mu to owa biała kartka wytłumaczy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dzwon wciąż dzwonił i echem z głębi cichych lasów\
 Odezwało się tysiąc krzyków i hałasów.\
