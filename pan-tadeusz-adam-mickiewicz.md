@@ -1,3 +1,4 @@
+Rwąc pnie, siekąc gałęzie. Żubr, brodacz sędziwy,\
 Zadrżał we mchu, najeżył długie włosy grzywy,\
 Wstaje na wpół, na przednich nogach się opiera,\
 I potrząsając brodą, zdziwiony spoziera\
