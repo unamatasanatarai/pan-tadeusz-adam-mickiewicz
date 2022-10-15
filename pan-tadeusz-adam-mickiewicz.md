@@ -1,3 +1,4 @@
+Krwawnik jest gładki, złoto jedenastej proby.\
 Konia teraz ułani pod jazdę zabrali,\
 Rzęd został przy mnie; każdy znawca ten rzęd chwali\
 Iż jest wygodny, trwały, a piękny jak cacko:\
