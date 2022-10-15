@@ -1,3 +1,4 @@
+Pierścień niechaj pan Wojski na pamiątkę przymie,\
 I każe na nim wyryć albo swoje imię,\
 Lub gdy zechce, herbowne Hreczechów ozdoby;\
 Krwawnik jest gładki, złoto jedenastej proby.\
