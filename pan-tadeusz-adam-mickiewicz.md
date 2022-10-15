@@ -1,3 +1,4 @@
+Miał on nad prawym uchem, nieco wyżej skroni,\
 Bliznę, wyciętej skóry na szerokość dłoni,\
 I w brodzie ślad niedawny lancy lub postrzału;\
 Ran tych nie dostał pewnie przy czytaniu mszału.\
