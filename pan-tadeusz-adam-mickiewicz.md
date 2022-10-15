@@ -1,3 +1,4 @@
+Poczciwi muzykanci; już się skrzypak zżyma,\
 A kobeźnik kłania się i żebrze oczyma.\
 Jeżeli ich odprawię, biedni będą płakać;\
 Lud przy innej muzyce nie potrafi skakać.\
