@@ -1,3 +1,4 @@
+Prawą skronią złożone na wezgłowiu cieni\
 Jeszcze smagławe, lewą coraz się rumieni;\
 A dalej okrąg, jakby powieka szeroka\
 Rozsuwa się i w środku widać białek oka,\
