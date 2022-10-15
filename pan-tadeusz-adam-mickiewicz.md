@@ -1,3 +1,4 @@
+Jakby lękał się reszty mowy, głowę skłonił,\
 I ręką potakując, mocno się zapłonił.)
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena kończyła: «Byłam jej piastunką,\
