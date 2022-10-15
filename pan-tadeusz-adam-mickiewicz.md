@@ -1,3 +1,4 @@
+Wszyscy równi zręcznością, biegłością i męstwem.\
 Przecież dwóch dziś odznaczył los niebezpieczeństwem.\
 Dwaj byli niedźwiedziego najbliżsi pazura:\
 Tadeusz i pan Hrabia; im należy skóra.\
