@@ -1,3 +1,4 @@
+Żeby do Peterburka? Ja pewnie tej zimy\
 Pojadę tam dla sprawy; razem ułożymy,\
 Co zrobić z Tadeuszem. Znam tam wiele osób,\
 Mam wpływy: to najlepszy kreacyi sposób.\
