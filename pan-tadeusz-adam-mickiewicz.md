@@ -1,3 +1,4 @@
+Nudźcie drugich waszymi względy i urzędy!\
 Dość już głupstwa zrobiłem, wdając się z waćpaństwem\
 W pijatyki, które się kończą grubijaństwem;\
 Zdacie mi sprawę z mego honoru obrazy.\
