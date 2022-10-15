@@ -1,3 +1,4 @@
+Wyrzekną uroczyście przyłączenie Litwy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jacek, słuchając, cicho odmówił modlitwy;\
 Przycisnąwszy do piersi święconą gromnicę,\
