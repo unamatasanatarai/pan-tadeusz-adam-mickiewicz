@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nagle wichry zwarły się, porwały się w poły,\
 Borykają się, kręcą, świszczącymi koły\
 Krążą po stawach, mącą do dna wody w stawach,\
 Wpadły na łąki, świszczą po łozach i trawach.\
