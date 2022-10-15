@@ -1,3 +1,4 @@
+Bo Pan Bóg, kiedy karę na naród przypuszcza,\
 Odbiera naprzód rozum od obywateli.\
 I tak, mędrsi fircykom oprzeć się nie śmieli,\
 I zląkł ich się jak dżumy jakiej cały naród,\
