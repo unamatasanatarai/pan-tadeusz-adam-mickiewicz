@@ -1,3 +1,4 @@
+W zamku całym był tylko: pan Stolnik, ja, pani,\
 Kuchmistrz i dwóch kuchcików, wszyscy trzej pijani,\
 Proboszcz, lokaj, hajducy czterej, ludzie śmiali.\
 Więc za strzelby, do okien. Aż tu tłum Moskali,\
