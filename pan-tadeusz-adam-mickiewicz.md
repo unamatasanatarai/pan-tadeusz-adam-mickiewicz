@@ -1,3 +1,4 @@
+Historyję o dziku Nalibockich lasów\
 I o kłótni Rejtana z księżęciem Denassów.\
 Ale goście tymczasem skończyli jeść lody\
 I z zamku na dziedziniec wyszli dla ochłody.
