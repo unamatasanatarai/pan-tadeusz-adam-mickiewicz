@@ -1,3 +1,4 @@
+Dwa kurantowe, w szafach zamknięte zegary;\
 Dziwaki stare, dawno ze słońcem w niezgodzie,\
 Południe wskazywały często o zachodzie.\
 Gerwazy nie przybrał się machiny naprawić,\
