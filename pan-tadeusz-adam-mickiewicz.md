@@ -1,3 +1,4 @@
+Ten zdaje się wyrzekać, tamten tylko wzdycha:\
 Tak dwa stawy gadały do siebie przez pola\
 Jak grające na przemian dwie arfy Eola.
 
