@@ -1,3 +1,4 @@
+A co wyrzekną, temu sumiennie zawierzcie.\
 Ja uproszę Sędziego, ażeby nie bronił\
 Dojeżdżaczowi, choćby po pszenicy gonił;\
 I tuszę, że tę łaskę otrzymam od pana».\
