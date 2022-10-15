@@ -1,3 +1,4 @@
+Zaraz się ich ponurość na resztę rozlewa:\
 Strzelcy dawniej milczeli; druga stołu strona\
 Umilkła, Tadeusza żółcią zarażona.
 
