@@ -1,3 +1,4 @@
+Choć ani się radzili, ani namyślali;\
 Spólną myśl widać było z uciętych wyrazów,\
 Z gestów żywych, z wydanych rozlicznych rozkazów,\
 Które, wychodząc tłumnie, razem z ust tak wielu,\
