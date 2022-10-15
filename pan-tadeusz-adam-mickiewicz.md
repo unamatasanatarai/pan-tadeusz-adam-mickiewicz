@@ -1,3 +1,4 @@
+Zrejterować się i wpaść we środek swych szyków.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Znowu Dobrzyńscy z Litwą natarli w zawody,\
 I pomimo dawniejsze dwóch stronnictw niezgody\
