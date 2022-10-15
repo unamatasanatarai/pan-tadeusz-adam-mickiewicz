@@ -1,3 +1,4 @@
+Którzy mię po pjanemu chcieli w Preglu topić».\
 «Toś zuch Bartku — rzekł Chrzciciel — dobrze! kropić, kropić!»\
 «Ależ, najsłodszy Jezu! trzeba pierwej wiedzieć\
 Z kim wojna? o co? trzeba to światu powiedzieć —\
