@@ -1,3 +1,4 @@
+Idzie do stołu gościom nalewać kielichy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Słońce już gasło, wieczór był ciepły i cichy,\
 Okrąg niebios gdzieniegdzie chmurkami zasłany,\
