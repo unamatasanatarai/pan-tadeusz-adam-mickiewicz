@@ -1,3 +1,4 @@
+Jest wymyślną; on w głowy szalonym zawrocie\
 Czuł niewymowny pociąg utopić się w błocie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Telimena z dzikiej młodzieńca postawy\
