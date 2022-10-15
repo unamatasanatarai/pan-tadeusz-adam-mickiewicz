@@ -1,3 +1,4 @@
+Bucha ogień, wyrasta szara sosna dymu,\
 I rozszerza się w górze na kształt baldakimu.\
 Nad płomieniem oszczepy złożono w koziołki,\
 Na grotach zawieszono brzuchate kociołki;\
