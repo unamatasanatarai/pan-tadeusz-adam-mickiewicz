@@ -1,3 +1,4 @@
+Ostatniego z Horeszków!... chociaż po kądzieli.\
 »Jezus Maria!« krzyknąłem i Pańscy anieli\
 Zesłali mi na pomoc księdza bernardyna.\
 On nas wszystkich zawstydził; oj, dzielny księżyna!\
