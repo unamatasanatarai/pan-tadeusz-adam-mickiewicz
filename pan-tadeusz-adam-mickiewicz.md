@@ -1,3 +1,4 @@
+Już króliki na łapkach stają; każdy słucha,\
 Patrzy; na koniec cała trzódka białopucha\
 Bieży do starca liśćmi kapusty znęcona,\
 Do nóg mu, na kolana skacze, na ramiona.\
