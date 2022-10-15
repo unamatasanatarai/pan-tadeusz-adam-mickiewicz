@@ -1,3 +1,4 @@
+Do klasztoru, do cichej celi swej powrócił\
 I tam umarł przykładnie. Znam się też z Śniadeckim,\
 Który jest mądrym bardzo człekiem, chociaż świeckim.\
 Owóż astronomowie planetę, kometę,\
