@@ -1,3 +1,4 @@
+Dyskusyje publicznej sprawie nie zaszkodzą.\
 Proszę milczeć, słuchamy, sprawa na tym zyska;\
 Pan Klucznik ją z nowego zważa stanowiska».
 
