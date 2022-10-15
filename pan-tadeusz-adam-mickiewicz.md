@@ -1,3 +1,4 @@
+W palcach i długo dumał, nim ją w końcu zażył;\
 Kichnął, aż cała izba rozległa się echem,\
 I potrząsając głową, rzekł z gorzkim uśmiechem:\
 «O, jak mnie to starego i smuci, i dziwi!\
