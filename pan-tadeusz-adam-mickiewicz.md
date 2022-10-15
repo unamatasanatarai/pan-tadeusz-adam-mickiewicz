@@ -1,3 +1,4 @@
+Zachowali mazurską mowę i zwyczaje.\
 Jeśli który z nich dziecku imię na chrzcie daje,\
 Zawsze zwykł za patrona brać koronijasza;\
 Świętego Bartłomieja albo Matyjasza:\
