@@ -1,3 +1,4 @@
+Jeden za drugim, jako wyraz za wyrazem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Major osłupiał, oczy przetarł, z gniewu blady\
 Zawołał: «Bunt! buntownik!» i dobywszy szpady,\
