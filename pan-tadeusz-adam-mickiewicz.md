@@ -1,3 +1,4 @@
+Z konfederata stał się stronnikiem królewskim,\
 I trzymał z Tyzenhauzem, podskarbim litewskim;\
 Lecz gdy król w Targowicy przyjął uczestnictwo,\
 Maciej opuścił znowu królewskie stronnictwo.\
