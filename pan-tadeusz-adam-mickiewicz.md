@@ -1,3 +1,4 @@
+Ale już pierwej niosła z dziesiątek kul w brzuchu.\
 Strzelby z jednym kalibrem miało wiele osób:\
 Kto zabił niedźwiedzicę? dojdźże! jaki sposób?
 
