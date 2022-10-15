@@ -1,3 +1,4 @@
+Użyć księżyca blasku, wieczornego chłodu\
 Zaraz i pies przyleciał, i kręcił ogonem,\
 I strzygł uszami, właśnie jakby był szalonym.\
 Nieraz się nalękałam. Serce mi wróżyło\
