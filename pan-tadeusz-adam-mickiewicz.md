@@ -1,3 +1,4 @@
+Tak cała szlachta prośbą i obietnicami\
 Przeprowadzała księdza; on już był za drzwiami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;On już pierwej przez okno ujrzał Tadeusza,\
