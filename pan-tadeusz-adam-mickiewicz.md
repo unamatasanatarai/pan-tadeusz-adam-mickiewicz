@@ -1,3 +1,4 @@
+A nie Maciej Pocieja ma za dobrodzieja».\
 Odmówił więc folwarku i nie przyjął płacy;\
 Sam wróciwszy do domu, żył z własnej rąk pracy,\
 Sprawując ule dla pszczół, lekarstwa dla bydła,\
