@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;On już pierwej przez okno ujrzał Tadeusza,\
 Który leciał gościńcem, w cwał, bez kapelusza,\
 Z głową schyloną, bladym, posępnym obliczem,\
 A konia ustawicznie bódł i kropił biczem.\
