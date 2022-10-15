@@ -1,3 +1,4 @@
+Konewka, co mógł wypić lipcu dwa antały\
 Nim mu splątał się język i nogi zachwiały:\
 Ten, choć długo ucztował i usnął głęboko,\
 Dawał przecie znak życia. Przemknął jedno oko\
