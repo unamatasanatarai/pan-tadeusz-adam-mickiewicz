@@ -1,3 +1,4 @@
+A ksiądz tam się obraca, gdzie jeszcze broń szczęka.\
 Skoro przyjdzie, wnet wszystkich uciszy i zgodzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ach! wy nie pamiętacie tego Państwo młodzi!\
