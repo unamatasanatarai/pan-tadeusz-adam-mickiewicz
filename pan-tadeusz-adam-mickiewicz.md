@@ -1,3 +1,4 @@
+Fi! to godna zabawka dygnitarskiej córki!\
 I z umurzaną dziatwą chłopską już do woli\
 Napieściłaś się! Zosiu, patrząc serce boli:\
 Opaliłaś okropnie płeć, czysta Cyganka,\
