@@ -1,3 +1,4 @@
+Choćby iskierkę czucia, gdy się z nim rozdziela,\
 Dobędzie się iskierka ta przy pożegnaniu,\
 Jako ostatni płomyk życia przy skonaniu!\
 Raz ostatni dotknąwszy przyjaciela skroni,\
