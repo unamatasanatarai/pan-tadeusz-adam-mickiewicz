@@ -1,3 +1,4 @@
+Ku polom, skąd już zeszły strzelcy rozstawione,\
 Gdzie tylko pozostali z mnogich łowczych szyków\
 Wojski, Tadeusz, Hrabia, z kilką obławników.
 
