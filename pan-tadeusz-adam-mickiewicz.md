@@ -1,3 +1,4 @@
+Lecz jedna ręka, mocniej wplątana we włosy,\
 Została się wisząca i krwią buchająca.\
 Tak orlik, jedną szponę gdy wbije w zająca,\
 Drugą, by wstrzymać zwierza, o drzewo uczepi,\
