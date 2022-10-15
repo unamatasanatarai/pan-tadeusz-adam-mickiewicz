@@ -1,3 +1,4 @@
+Nucąc piosenkę: *Kiedy ranne wstają zorze*,\
 Rad, że się wypogadza. Mgła nie szła do góry,\
 Jak się dziać zwykło, kiedy zbierają się chmury,\
 Ale coraz spadała. Wiatr rozwinął dłonie\
