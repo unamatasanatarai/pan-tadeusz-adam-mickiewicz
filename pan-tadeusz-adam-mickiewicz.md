@@ -1,3 +1,4 @@
+Nie mogłem, nie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mścić się otwarcie? szturmem zamek zwalić w gruzy?\
 Wstyd!... bo by powiedziano, żem mścił się rekuzy!\
