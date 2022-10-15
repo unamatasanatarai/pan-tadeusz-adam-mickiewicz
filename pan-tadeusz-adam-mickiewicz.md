@@ -1,3 +1,4 @@
+W nimfie tej czyż obaczę jaką ochmistrzynię?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Choć Hrabia Telimenę już dawniej widywał\
 W domu Sędziego, w którym dosyć często bywał,\
