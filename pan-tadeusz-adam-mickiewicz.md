@@ -1,3 +1,4 @@
+A naprzód, komisyją legalną wyznaczył,\
 Która by... Krótkość czasu była na zawadzie,\
 Że nie stało się zadość Buchmanowej radzie.\
 Bo na dziedzińcu zamku już stali parami\
