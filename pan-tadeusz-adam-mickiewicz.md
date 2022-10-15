@@ -1,3 +1,4 @@
+Postrzegła się, umilkła, oczy opuściła\
 I jako róży pączek cała się spłoniła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W istocie był to piękny pan: słusznej urody,\
