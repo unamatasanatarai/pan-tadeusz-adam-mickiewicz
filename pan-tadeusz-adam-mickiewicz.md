@@ -1,3 +1,4 @@
+Że potem ona żyjąc w stolicy czas długi\
 Wyrządziła niezmierne Sędziemu usługi;\
 Stąd ją Sędzia szanował bardzo i przed światem\
 Lubił, może z próżności, nazywać się bratem,\
