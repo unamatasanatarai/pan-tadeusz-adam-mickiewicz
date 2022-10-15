@@ -1,3 +1,4 @@
+Bić się z nim to rzecz moja, posłałem wyzwanie,\
 W Litwie jest zakazane pojedynkowanie,\
 Jadę więc na granicę Warszawskiego Księstwa.\
 Hrabia, prawda, fanfaron, lecz mu nie brak męstwa,\
