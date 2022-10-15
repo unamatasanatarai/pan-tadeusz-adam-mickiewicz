@@ -1,3 +1,4 @@
+«A to co? — przerwał Robak — gdzie rozum, gdzie głowa?\
 Co tu mi wasze bajesz, jaka burda nowa?»\
 «Nie z mej winy — rzekł Sędzia — proces to wyjaśni:\
 Hrabia pyszałek, głupiec, był przyczyną waśni,\
