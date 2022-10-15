@@ -1,3 +1,4 @@
+Niemieckie szpadki; to wstyd szlacheckiemu dziecku\
 Nosić ten kijek: weźmij szablę po szlachecku!\
 Oto ten mój Scyzoryk u nóg twoich składam,\
 To jest co najdroższego na świecie posiadam;\
