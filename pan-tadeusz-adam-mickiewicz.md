@@ -1,3 +1,4 @@
+Białe skaczą i ryją w niedeptanej darni.\
 Słowem: dwór na kształt klatki albo królikarni.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A dawniej był obronny! Pełno wszędzie śladów,\
