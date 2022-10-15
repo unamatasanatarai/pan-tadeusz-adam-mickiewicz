@@ -1,3 +1,4 @@
+(Cała z szczerego złota, z brylantów oprawa,\
 We środku, za szkłem, portret króla Stanisława);\
 Zadzwonił w nią palcami, zażył i rzekł: «Panie\
 Tadeuszu, waścine o gwiazdach gadanie\
