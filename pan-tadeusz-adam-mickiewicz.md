@@ -1,3 +1,4 @@
+Podobno nic — na konia wsiadłem i uciekłem!...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jacku! zawołał Klucznik, mądre ty przyczyny\
 Wynajdujesz: cóż? one nie zmniejszą twej winy!\
