@@ -1,3 +1,4 @@
+Popychając karabin, a tak się wysilił\
 Pchnięciem i wagą broni, że się aż pochylił:\
 Maciek, tam kędy bagnet wkłada się na rurę,\
 Podstawia swą rękojeść, podbija broń w górę\
