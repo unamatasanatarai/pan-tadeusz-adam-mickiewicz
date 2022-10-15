@@ -1,3 +1,4 @@
+Widzi to ksiądz: zabiega Klucznikowi drogę,\
 Sam pada i podbija Gerwazemu nogę:\
 Upadli, właśnie kiedy pluton ognia dawał.\
 Ledwie ołów prześwisnął, już Gerwazy wstawał,\
