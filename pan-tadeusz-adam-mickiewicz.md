@@ -1,3 +1,4 @@
+Stary żołnierz, stał w bliskiej wiosce na kwaterze,\
 Pan Sędzia go przez grzeczność prosił na wieczerzę.\
 Ryków jadł smaczno, mało wdawał się w rozmowę,\
 Lecz na wzmiankę Warszawy, rzekł podniósłszy głowę:\
