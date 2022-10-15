@@ -1,3 +1,4 @@
+Dobra całe zniszczone sekwestrami rządu,\
 Bezładnością opieki, wyrokami sądu,\
 W cząstce spadły dalekim krewnym po kądzieli,\
 A resztę rozdzielono między wierzycieli.\
