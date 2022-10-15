@@ -1,3 +1,4 @@
+Iżby je w kalendarzu można wydrukować,\
 Wszystkie złośliwe, ostre. Dawniej człek dostatni,\
 Schedę ojca swojego i majątek bratni\
 Wszystko strwonił na wielkim figurując świecie;\
