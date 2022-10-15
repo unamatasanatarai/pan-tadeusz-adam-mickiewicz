@@ -1,3 +1,4 @@
+Biegą do siebie — ale zbliżyć się nie mogą!»\
 «Dość już tego — przerwała — nie jestem planetą\
 Z łaski Bożej, dość Hrabio: ja jestem kobietą,\
 Już wiem resztę, przestań mi pleść ni to ni owo.\
