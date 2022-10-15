@@ -1,3 +1,4 @@
+I na wolnym powietrzu myślą użyć wczasu;\
 Ale przed bydłem muszą powracać do lasu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I w lasach cisza. Ptaszek zbudzony nie śpiewa;\
