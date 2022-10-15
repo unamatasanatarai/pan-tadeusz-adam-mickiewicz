@@ -1,3 +1,4 @@
+Nie dojdą Tadeusza z Zosią zaręczyny.\
 Teraz sam będę radzić. Pono z Podkomorzym\
 Zagaimy swatowstwo i resztę ułożym».
 
