@@ -1,3 +1,4 @@
+Zwrócił ucho do stawu i słuchał ciekawie.\
 Oczy wodził po polach, po niebios obszarze:\
 Pewnie układał w myśli nocne peizaże.
 
