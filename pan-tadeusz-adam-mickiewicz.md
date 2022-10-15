@@ -1,3 +1,4 @@
+I ot tego wiernego mego Scyzoryka!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«I Kropidła — rzekł Chrzciciel — Gdzie ty Gerwazeńku,\
 Tam i ja; póki ręka, póki plusk plask w ręku.\
