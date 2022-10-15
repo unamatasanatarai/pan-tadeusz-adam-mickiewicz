@@ -1,3 +1,4 @@
+I żarłoczny Rosomak jak czujne ministry;\
 Dalej zaś, jak podwładni szlachetni wasale,\
 Mieszkają Dziki, Wilki i Łosie rogale.\
 Nad głowami Sokoły i Orłowie dzicy,\
