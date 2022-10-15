@@ -1,3 +1,4 @@
+Jak on rodaków zbiera na lombardzkim polu;\
 Jak Kniaziewicz rozkazy daje z Kapitolu\
 I zwycięzca, wydartych potomkom cezarów\
 Rzucił w oczy Francuzów sto krwawych sztandarów,\
