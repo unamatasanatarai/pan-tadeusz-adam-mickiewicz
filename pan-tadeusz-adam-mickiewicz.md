@@ -1,3 +1,4 @@
+I powiada, że to jest znakiem barbarzyństwa\
 Polować, tak jak u nas, bez żadnego względu\
 Na artykuły ustaw, przepisy urzędu,\
 Nie szanując niczyich kopców ani miedzy,\
