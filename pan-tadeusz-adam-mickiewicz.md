@@ -1,3 +1,4 @@
+Ach, któż by potem pisnąć śmiał o Targowicy?...\
 Bracie, póki Ponarom stać, Niemnowi płynąć,\
 Póty w Litwie Sopliców imieniowi słynąć;\
 Wnuków, prawnuków będzie Jagiełłów stolica\
