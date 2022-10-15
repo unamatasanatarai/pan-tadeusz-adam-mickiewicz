@@ -1,3 +1,4 @@
+Powstała zagniewana, i ostrymi słowy\
 Poczęła nań przymówki sypać i wyrzuty.\
 Porwał się i Tadeusz jak żądłem ukłuty,\
 Spojrzał krzywo, nie mówiąc ani słowa, splunął,\
