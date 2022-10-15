@@ -1,3 +1,4 @@
+Pas opatrzyć, czy kula jest w każdym ładunku».\
 «Strzelby — krzyknęli wszyscy — mieć na pogotowiu!»\
 Asesor wołał ciągle: «Ołowiu, ołowiu!\
 Formę do kul mam w torbie». — «Do księdza plebana\
