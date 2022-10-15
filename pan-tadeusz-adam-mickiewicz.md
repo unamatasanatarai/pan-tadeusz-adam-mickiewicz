@@ -1,3 +1,4 @@
+Bo lekka, ciepłem letnim powoli rozgrzana,\
 Roztopiła się lodu cukrowego piana\
 I dno odkryła, dotąd zatajone oku;\
 Więc krajobraz przedstawił nową porę roku,\
