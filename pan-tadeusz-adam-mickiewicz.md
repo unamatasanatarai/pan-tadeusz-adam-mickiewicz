@@ -1,3 +1,4 @@
+Kupiecka lub rządowa, moskiewska siekiera!\
 Nie zostawia przytułku ni leśnym śpiewakom,\
 Ni wieszczom, którym cień wasz tak miły jak ptakom.\
 Wszak lipa czarnoleska, na głos Jana czuła,\
