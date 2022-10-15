@@ -1,3 +1,4 @@
+Nieraz miewał powrozy na ręku i nogach,\
 A przecież się uwalniał; wiedział o sposobie\
 Rwania więzów, był silny bardzo, ufał sobie.\
 Przemyślał ratować się milczkiem. Oczy zmrużył,\
