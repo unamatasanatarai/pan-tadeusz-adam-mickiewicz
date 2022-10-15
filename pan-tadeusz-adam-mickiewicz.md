@@ -1,3 +1,4 @@
+«Jutro — rzekł — pół do piątej, przy leśnej kaplicy\
 Stawią się bracia strzelcy, wiara obławnicy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Rzekł i ruszył od stołu, za nim szedł gajowy;\
