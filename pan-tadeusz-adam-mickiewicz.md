@@ -1,3 +1,4 @@
+Niechaj pan drze się z panem: cóż to do nas, braci?\
 Pan Sędzia ciemiężyciel! On pierwszy zabraniał,\
 Ażeby się chłop przed nim do ziemi nie kłaniał,\
 Mówiąc, że to grzech. Nieraz u niego gromada\
