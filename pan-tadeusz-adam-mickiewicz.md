@@ -1,3 +1,4 @@
+Mówiłem panu zawsze: procesów zaniechać;\
 Mówiłem panu zawsze: najechać, zajechać!\
 Tak było po dawnemu: kto raz grunt posiądzie,\
 Ten dziedzic; wygraj w polu, a wygrasz i w sądzie.\
