@@ -1,3 +1,4 @@
+Choć piękny, choć rozumny, efektów nie wzbudzi,\
 Gdy go wszyscy przywykną widzieć od maleńka;\
 Lecz niechaj ukształcona, dorosła panienka,\
 Nagle ni stąd, ni zowąd przed światem zabłyśnie,\
