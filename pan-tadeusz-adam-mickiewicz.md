@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, by nie zdradzić swego roztargnienia:\
 «Prawda — rzekł — mój Rejencie, prawda bez wątpienia,\
 Kusy piękny chart z kształtu, jeśli równie chwytny...»\
 «Chwytny? — krzyknął pan Rejent — mój pies faworytny\
