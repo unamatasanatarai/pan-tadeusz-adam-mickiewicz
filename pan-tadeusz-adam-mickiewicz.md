@@ -1,3 +1,4 @@
+Szlachta z niewiela rusznic z rzadka się odstrzela;\
 Chce szablami uderzyć na nieprzyjaciela,\
 Ale starsi wstrzymują; kule gęsto świszczą,\
 Rażą, spędzają, wkrótce dziedziniec oczyszczą,\
