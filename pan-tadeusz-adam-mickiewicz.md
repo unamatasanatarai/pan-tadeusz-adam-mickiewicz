@@ -1,3 +1,4 @@
+Szlachta zaczęła z chaty przez okna wyzierać,\
 I za Klucznikiem coraz ku drzwiom się napierać.\
 Klucznik wyszedł, a za nim tłum przeze drzwi runął,\
 Maciek resztę wypędził, drzwi zamknął, zasunął,\
