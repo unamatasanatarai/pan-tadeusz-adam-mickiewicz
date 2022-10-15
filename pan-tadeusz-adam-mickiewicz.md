@@ -1,3 +1,4 @@
+Jacek Soplica! — Kto zna co jest czucie pychy...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu bernardyn osłabiał i upadł na łoże;\
 A Klucznik rzekł wzruszony: «Wielkie sądy Boże!\
