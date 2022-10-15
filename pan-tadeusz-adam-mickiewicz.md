@@ -1,3 +1,4 @@
+(Dostał go Sędzia w darze od księdza Robaka):\
 Wódka to gdańska, napój miły dla Polaka.\
 «Niech żyje — krzyknął Sędzia w górę wznosząc flaszę —\
 Miasto Gdańsk, niegdyś nasze, będzie znowu nasze!»\
