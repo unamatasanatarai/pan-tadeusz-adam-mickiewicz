@@ -1,3 +1,4 @@
+A ręką od ust lekko skinął ku Sędziemu,\
 Prosząc o głos. Panowie na ten ukłon niemy\
 Odkłonili się oba, co znaczy: prosiemy.\
 Wojski zagaił.
