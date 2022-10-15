@@ -1,3 +1,4 @@
+Obejrzał się, i konia zatrzymał przy płocie.
 
 Był sad. —
 
