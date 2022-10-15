@@ -1,3 +1,4 @@
+Nie pił; leliśmy w gardło, krzyczał: »Gwałt się dzieje!«\
 Czekajno, niech no ja mu z Konewki naleję».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Filut — zawołał Chrzciciel — oj, i ja go kropnę\
