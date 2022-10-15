@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Soplico! — wołał — z przeproszeniem pana,\
 Pan wyzwałeś Majora! Ja do Kapitana\
 Mam dawniejszą urazę: on do zamku mego...»\
