@@ -1,3 +1,4 @@
+Pani, oddała dochód z wioski dwiestu chłopów\
 Na zakupienie różnych szkieł i teleskopów.\
 Ksiądz Poczobut, człek sławny, był obserwatorem\
 I całej Akademii naonczas Rektorem;\
