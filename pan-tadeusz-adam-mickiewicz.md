@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wtem Asesor nadbiegał, krzycząc: «Areszt kładę\
 W imię Imperatorskiej Mości; oddaj szpadę,\
 Panie Hrabio, bo wezwę wojskowej pomocy,\
 A wiesz pan, że kto zbrojnie śmie napadać w nocy,\
