@@ -1,3 +1,4 @@
+Gerwazy zbladnął, ławą Hrabiego zakłada,\
 Cofa się ku drzwiom. «Łapaj!» krzyknęła gromada.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jako wilk, obskoczony znienacka przy ścierwie,\
