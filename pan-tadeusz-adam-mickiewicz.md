@@ -1,3 +1,4 @@
+Kapitan pokazując szpadą na drzwi dworu,\
 Krzyczy: «Sędzio! poddaj się, bo dwór spalić każę!»\
 «Pal — woła Sędzia — ja cię w tym ogniu usmażę».
 
