@@ -1,3 +1,4 @@
+Dach jak czapka, jak broda strzecha roztrzęsiona,\
 Ściany dymne i brudne jak czarna opona,\
 A z przodu rzeźba sterczy jak cyces na czole.
 
