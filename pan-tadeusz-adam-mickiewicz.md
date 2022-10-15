@@ -1,3 +1,4 @@
+I szerokie strzemiona srebrne pozłacane;\
 Na rzemieniach munsztuka i na uździenicy\
 Połyskają guziki perłowej macicy,\
 U napierśnika wisi księżyc w kształt Leliwy,\
