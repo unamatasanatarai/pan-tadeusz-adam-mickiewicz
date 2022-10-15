@@ -1,3 +1,4 @@
+Co trafił się najpierwszym strzelcom za mych czasów,\
 Posłowi Rejtanowi i Księciu Denassów.\
 Przypadek był takowy:
 
