@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie mają czas goście darów lata użyć;\
 Darmo proszą Wojskiego, żeby je przedłużyć:\
 Już serwis, jak planeta koniecznym obrotem,\
