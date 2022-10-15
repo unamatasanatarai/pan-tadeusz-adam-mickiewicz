@@ -1,3 +1,4 @@
+Pod dachem wiszą cztery ogromne szyszaki,\
 Ozdoby czół marsowych: dziś Wenery ptaki,\
 Gołębie, w nich gruchając karmią swe pisklęta.\
 W stajni kolczuga wielka nad żłobem rozpięta\
