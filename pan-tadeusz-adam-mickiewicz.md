@@ -1,3 +1,4 @@
+«Niech żyje — krzyknął Chrzciciel — Kurek na Kościele!»\
 Szlachta odpowiedziała. «Wiwant Kropiciele!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale w kątach szmer powstał, choć w środku tłumiony;\
