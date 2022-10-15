@@ -1,3 +1,4 @@
+Milej sobie wspominam nie dzieła waleczne\
 I głośne, ale czyny ciche, użyteczne,\
 I cierpienia, których nikt...
 
