@@ -1,3 +1,4 @@
+«Jeszcze Waszeci mniejsza — zawołał Juraha —\
 Waszeć z pradziadów chłopów uszlachcony szlacha;\
 Ale ja, z kniaziów! Pytać u mnie o patenta,\
 Kiedym został szlachcicem? Sam Bóg to pamięta!\
