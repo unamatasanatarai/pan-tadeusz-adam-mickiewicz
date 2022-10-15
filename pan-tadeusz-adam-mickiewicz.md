@@ -1,3 +1,4 @@
+Czy instynktem wiedziała (bo dziewczyna zgadnie\
 Zawsze instynktem, co jej do twarzy przypadnie):\
 Dosyć, że Zosia pierwszy raz w życiu dziś z rana\
 Była od Telimeny za upór łajana,\
