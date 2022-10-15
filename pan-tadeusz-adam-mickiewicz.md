@@ -1,3 +1,4 @@
+Dzieci swe ślą dla osad za granicę lasu,\
 A sami we stolicy używają wczasu;\
 Nie giną nigdy bronią sieczną ani palną,\
 Lecz starzy umierają śmiercią naturalną.\
