@@ -1,3 +1,4 @@
+Kot jak głowa, pył z tyłu jakby modra szyja,\
 A psami jak podwójnym ogonem wywija.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Rejent, Asesor patrzą, otworzyli usta,\
