@@ -1,3 +1,4 @@
+Chórem odpowiedziała: «Zdrada! gwałtu! zdrada!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Krzyk dochodzi echami zwierciadlanej sali,\
 Kędy Hrabia, Gerwazy i dżokeje spali.\
