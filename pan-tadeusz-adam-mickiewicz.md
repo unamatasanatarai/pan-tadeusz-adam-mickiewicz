@@ -1,3 +1,4 @@
+Wskazuje wszystkim miejsca i gości usadza.\
 Naprzód, jako najpierwsza województwa władza,\
 Podkomorzy-Marszałek wziął miejsce zaszczytne:\
 Ze słoniowym poręczem krzesło aksamitne;\
