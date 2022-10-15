@@ -1,3 +1,4 @@
+Ja z synowcem na czele, i — jakoś to będzie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«O polska krwi! — zawołał Bernardyn wzruszony,\
 Z otwartymi skoczywszy na Sędzię ramiony —\
