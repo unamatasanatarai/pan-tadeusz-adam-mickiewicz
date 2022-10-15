@@ -1,3 +1,4 @@
+W których piersi widelce świeżo wbite tkwiały.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po chwili w Horeszkowskim samotnym budynku\
 Wszystko do zwyczajnego wracało spoczynku.\
