@@ -1,3 +1,4 @@
+Co indziej kitą wije, a sam indziej bieży?\
 Wyzwaliśmy, zapewne, i bić się należy.\
 Ale jechać dziś, skądżeś waszeć tak się zaciął?\
 Przed pojedynkiem zwyczaj jest posłać przyjaciół,\
