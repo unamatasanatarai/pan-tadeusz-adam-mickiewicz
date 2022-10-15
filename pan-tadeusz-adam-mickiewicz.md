@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;I tak niedługo żona ma z żalu umarła,\
 Zostawiwszy to dziecię; a mnie rozpacz żarła!
 
