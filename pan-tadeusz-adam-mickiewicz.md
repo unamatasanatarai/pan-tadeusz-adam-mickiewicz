@@ -1,3 +1,4 @@
+Pamiętam, że Pułascy, moi przyjaciele,\
 Mawiali, poglądając na Dymuliera,\
 Że dla Polski polskiego trzeba bohatera,\
 Nie Francuza ani też Włocha, ale Piasta,\
