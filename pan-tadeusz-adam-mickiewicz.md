@@ -1,3 +1,4 @@
+Wszyscy rzędem; ekonom sam siedział z osobna.\
 Po rannej mszy z kaplicy, że była niedziela,\
 Zabawić się i wypić przyszli do Jankiela.\
 Przy każdym już szumiała siwą wódką czarka,\
