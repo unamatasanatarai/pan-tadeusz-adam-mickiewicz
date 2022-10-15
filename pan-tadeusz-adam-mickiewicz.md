@@ -1,3 +1,4 @@
+Już zajęli część Litwy od Grodna po Słonim:\
 Gdy król rozkazał wojsku dać trzy dni wytchnienia.\
 Ale polscy żołnierze mimo utrudzenia\
 Skarżyli się, że król im marszu nie dozwala;\
