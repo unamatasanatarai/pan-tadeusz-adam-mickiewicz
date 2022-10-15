@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Przy mszy, gdy z wzniesionymi zwracał się rękami\
 Od ołtarza do ludu, by mówić: «Pan z wami»,\
 To nieraz tak się zręcznie skręcił jednym razem,\
 Jakby prawo w tył robił za wodza rozkazem,\
