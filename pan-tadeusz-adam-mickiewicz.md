@@ -1,3 +1,4 @@
+Drugi, równie nabiwszy, ustąpił dla Saka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jegrów więcej przybywa. Mieszają się, tłuką;\
 Szlachta w zgiełku nie może ciąć krzyżową sztuką,\
