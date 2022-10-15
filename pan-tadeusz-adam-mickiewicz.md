@@ -1,3 +1,4 @@
+Zniknął z oczu, szukano, gdzie się pod stół schował:\
 Gdy nagle, z drugiej strony, wyszedł jak spod ziemi,\
 Podniósłszy w górę ławę ramiony silnemi,\
 Okręcił się jak wiatrak, oczyścił pół sieni,\
