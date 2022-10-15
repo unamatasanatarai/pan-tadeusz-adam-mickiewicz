@@ -1,3 +1,4 @@
+Pan Sędzia Majorowi musi trud nagrodzić,\
 My powiemy, że my tu przyszli dla wizyty,\
 A tak i kozy całe i wilk będzie syty.\
 Przysłowie ruskie: wszystko można, lecz ostrożnie;\
