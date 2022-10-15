@@ -1,3 +1,4 @@
+Szeroko wyciągają ostrożaste pięty;\
 Za nimi z wolna indyk sunie się odęty\
 Sarkając na gderanie swej krzykliwej żony;\
 Ówdzie pawie jak tratwy długimi ogony\
