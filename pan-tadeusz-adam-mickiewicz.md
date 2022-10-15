@@ -1,3 +1,4 @@
+W nadziei, że gdy ujrzy wiernego stronnika,\
 Dawnego przyjaciela, prawie domownika,\
 Z którym pił i wojował przez tak długie lata,\
 Teraz żegnającego i kędyś w kraj świata\
