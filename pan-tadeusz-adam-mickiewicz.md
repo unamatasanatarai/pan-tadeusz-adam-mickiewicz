@@ -1,3 +1,4 @@
+I gdyby mnie Dobrodziej Sędzia nie przeszkodził,\
 Ja bym u stołu obu przeciwników zgodził.\
 Bo chciałem opowiedzieć wypadek ciekawy,\
 Podobny do zdarzenia wczorajszej wyprawy,\
