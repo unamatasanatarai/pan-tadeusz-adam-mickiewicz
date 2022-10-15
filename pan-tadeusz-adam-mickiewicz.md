@@ -1,3 +1,4 @@
+Trzykroć weszła i trzykroć znikła w głów obłoku.\
 Klucznik idąc kłaniał się, aż dobył się z tłoku,\
 I rzekł:
 
