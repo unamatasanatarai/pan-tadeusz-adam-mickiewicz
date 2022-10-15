@@ -1,3 +1,4 @@
+I że przymiotów jego poznać nie miał czasu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na to zadrżał Asesor, puścił z rąk kieliszek,\
 Utopił w Tadeusza wzrok jak bazyliszek.\
