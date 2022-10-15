@@ -1,3 +1,4 @@
+Ten z misą, ten nad kotłem, ten przy wołu ćwierci.\
 Tak zwycięzców zwyciężył w końcu sen, brat śmierci.
 
 
