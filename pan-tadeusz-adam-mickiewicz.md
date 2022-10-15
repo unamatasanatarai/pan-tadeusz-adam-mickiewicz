@@ -1,3 +1,4 @@
+Greckich, bo są bez podstaw i bez kapitelów.\
 Nad kolumnami biegą wpółokrągłe łuki,\
 Także z drzewa, gotyckiej naśladowstwo sztuki.\
 Z wierzchu ozdoby sztuczne, nie rylcem, nie dłutem,\
