@@ -1,3 +1,4 @@
+Jak laskę marszałkowską, nakazał milczenie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Uciszcie się! — powtarzał — miejcie też baczenie,\
 Wy, co jesteście pierwsi myśliwi w powiecie,\
