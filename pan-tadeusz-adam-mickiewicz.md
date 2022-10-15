@@ -1,3 +1,4 @@
+Nie śmieli kroku dostać słudzy potrwożeni\
 I chwytając naczynia w ślad panów uciekli,\
 Nawet nakrycia z częścią sprzętów się wyrzekli.
 
