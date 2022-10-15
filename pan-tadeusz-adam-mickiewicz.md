@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Trzasnął słup: już sernica chwieje się i wali\
 Z brzemieniem drzew i serów na trójkąt Moskali.\
 Gniecie, rani, zabija; gdzie stały szeregi,\
