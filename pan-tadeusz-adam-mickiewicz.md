@@ -1,3 +1,4 @@
+Asesor ją złośliwiej równał do samicy,\
 Która miejsca na gniazdo szuka w okolicy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż zdała się szukać samotności, ciszy.\
