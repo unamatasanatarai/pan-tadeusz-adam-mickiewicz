@@ -1,3 +1,4 @@
+Więc spolia opima weźmiesz, mości Hrabia:\
 Niech ten łup twą strzelecką komnatę ozdabia,\
 Niechaj pamiątką będzie dzisiejszej zabawy,\
 Godłem szczęścia łowczego, bodźcem przyszłej sławy».
