@@ -1,3 +1,4 @@
+Oglądając rodaków mundury noszących,\
 Zbrojnych, wolnych i polskim językiem mówiących.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wyszła msza. Nie obejmie świątynia maleńka\
