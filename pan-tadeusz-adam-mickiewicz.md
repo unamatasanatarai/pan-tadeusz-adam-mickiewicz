@@ -1,3 +1,4 @@
+Zadumani zwrócili oczy w głąb ogrodu,\
 Gdzie ów dorodny ułan rozmawiał z panienką.\
 Właśnie ułan ująwszy jej dłoń lewą ręką,\
 (Prawą miał na temlaku, widać, że był ranny)\
