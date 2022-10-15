@@ -1,3 +1,4 @@
+Zjawił się na zachodzie, leciał ku północy;\
 Krwawym okiem z ukosa na rydwan spoziera,\
 Jakby chciał zająć puste miejsce Lucypera,\
 Warkocz długi w tył rzucił i część nieba trzecią\
