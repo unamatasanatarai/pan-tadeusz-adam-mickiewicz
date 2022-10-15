@@ -1,3 +1,4 @@
+Częstokroć najzimniejsze oko łzę uroni!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biedna, słysząc o moim odjeździe, pobladła,\
 Bez przytomności, ledwie że trupem nie padła,\
