@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;O Matko Polsko! Ty tak świeżo w grobie\
 Złożona... Nie masz sił mówić o tobie!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ach, czyjeż usta śmią pochlebiać sobie,\
