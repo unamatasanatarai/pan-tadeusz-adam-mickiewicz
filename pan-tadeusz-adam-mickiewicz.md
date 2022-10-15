@@ -1,3 +1,4 @@
+Wodza i że Wojskiemu oddają buławę.\
 Wojski powstał, zrozumiał towarzyszów wolę,\
 I uderzywszy ręką poważnie po stole,\
 Pociągnął złocistego z zanadrza łańcuszka,\
