@@ -1,3 +1,4 @@
+Trzeba ich z sobą poznać. Prawda, bardzo młodzi,\
 Szczególnie Zosia mała, lecz to nic nie szkodzi.\
 Czas by już Zośkę wreszcie wydobyć z zamknięcia.\
 Bo wszakci to już pono wyrasta z dziecięcia».
