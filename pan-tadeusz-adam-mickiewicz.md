@@ -1,3 +1,4 @@
+I stoczyły się szybko po rumianych licach.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Zosia ciekawa z głębiny alkowy\
 Śledziła przez szczelinę tajemne rozmowy;\
