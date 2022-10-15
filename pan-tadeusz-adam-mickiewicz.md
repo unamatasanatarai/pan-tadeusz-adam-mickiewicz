@@ -1,3 +1,4 @@
+Widać z jej ruchów, w jakiej strasznej jest męczarni:\
 Chwyta się za pierś, szyję, za stopy, kolana.\
 Skoczył Tadeusz myśląc, że jest pomieszana\
 Lub ma wielką chorobę. Lecz z innej przyczyny\
