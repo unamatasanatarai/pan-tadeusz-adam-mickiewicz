@@ -1,3 +1,4 @@
+Powtarzano z kolei przestrogę Hreczechy,\
 Mianowicie ostatnie słowo; ci *źwierzyny*,\
 A drudzy, w głos śmiejąc się, krzyczeli: *dziewczyny*.\
 Rejent szepnął: *kobiety*, Asesor: *kokiety*,\
