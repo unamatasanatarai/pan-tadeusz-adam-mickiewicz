@@ -1,3 +1,4 @@
+«Chwalicie mą tabakę, mości dobrodzieje;\
 Obaczcież, co się wewnątrz tabakierki dzieje».\
 Tu, wycierając chustką zabrudzone denko,\
 Pokazał malowaną armiję maleńką\
