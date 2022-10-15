@@ -1,3 +1,4 @@
+Stary Maciek mnie poznał, a jeśli odkryje,\
 Potrzeba będzie oddać pod Scyzoryk szyję.\
 Nic Klucznika nie wstrzyma! Mniejsza o mą głowę,\
 Lecz tym odkryciem, spisku zerwałbym osnowę.\
