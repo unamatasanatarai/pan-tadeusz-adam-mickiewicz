@@ -1,3 +1,4 @@
+Pijarskim, na swym koszcie, odzieży i wikcie;\
 Dorosłych promowował także swym nakładem:\
 A dlaczego to robił? że wam był sąsiadem!\
 Dziś Soplica kopcami tyka waszych granic:\
