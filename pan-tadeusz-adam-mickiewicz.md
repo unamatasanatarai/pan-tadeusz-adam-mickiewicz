@@ -1,3 +1,4 @@
+Wszytko to jest...» Tu Maciej chleb umoczył w zupie,\
 I jedząc nie dokończył ostatniego słowa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nie w smak Podkomorzemu poszła Maćka mowa,\
