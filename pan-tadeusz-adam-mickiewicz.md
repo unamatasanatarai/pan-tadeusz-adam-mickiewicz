@@ -1,3 +1,4 @@
+Kolanami i głownię prawą ręką imał,\
 Cisnąc ją: rapier z tyłu za nim wyciągniony,\
 Długim czarnym swym końcem chwiał się w różne strony;\
 I Klucznik był podobny rysiowi rannemu,\
