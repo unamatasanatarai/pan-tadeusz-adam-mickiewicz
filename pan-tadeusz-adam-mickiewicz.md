@@ -1,3 +1,4 @@
+Dla naglącej potrzeby.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Woźny patrzy, czuwa:\
 Cicho wszędzie; w konopie z wolna ręce wsuwa,\
