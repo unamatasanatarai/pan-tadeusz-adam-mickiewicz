@@ -1,3 +1,4 @@
+A że trzeźwy i dobrze strzelał z dubeltówki\
 (Mógł trafić do rzuconej w powietrze złotówki),\
 Okropnie razi Moskwę. Starszyznę wybiera;\
 Za pierwszym zaraz strzałem ubił feldfebera,\
