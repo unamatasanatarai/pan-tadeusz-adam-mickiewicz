@@ -1,3 +1,4 @@
+Którą Sycylianie zwą Birbante-rokką,\
 Zdobyłem tabor zbójców: zbrojnych mordowałem,\
 Rozbrojonych zabrałem i związać kazałem;\
 Szli za końmi i tryumf mój zdobili świetny,\
