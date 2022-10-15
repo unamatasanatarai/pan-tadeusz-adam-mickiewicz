@@ -1,3 +1,4 @@
+Po strzechach gumien niby ogrody wiszące\
 Różnych roślin, pokrzywa i krokos czerwony,\
 Żółta dziewanna, szczyru barwiste ogony.\
 Gniazda ptastwa różnego, w strychach gołębniki,\
