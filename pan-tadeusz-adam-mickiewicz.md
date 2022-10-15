@@ -1,3 +1,4 @@
+Na łąkę; charty za nim; i wnet bez obrotu\
 Sokół i Kusy razem spadli na szaraka\
 Ze dwóch stron w jednej chwili, jak dwa skrzydła ptaka,\
 I zęby mu jak szpony zatopili w grzbiecie.\
