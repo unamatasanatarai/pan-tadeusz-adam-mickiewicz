@@ -1,3 +1,4 @@
+Zawołał: «Bunt! buntownik!» i dobywszy szpady,\
 Biegł przebić. Wtem ksiądz dostał z rękawa krócicę:\
 «Pal, Tadeuszku! — krzyknął — pal jak w jasną świécę!»\
 Tadeusz wnet pochwycił, wymierzył, wypalił,\
