@@ -1,3 +1,4 @@
+Oglądała się wkoło, lecz nic nie spostrzegła;\
 Przecież ku drugiej stronie ogrodu pobiegła.\
 A Hrabia bokiem, między wielkie końskie szczawie,\
 Między liście łopuchu, na rękach, po trawie,\
