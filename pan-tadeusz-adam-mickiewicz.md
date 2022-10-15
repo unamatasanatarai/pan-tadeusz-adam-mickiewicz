@@ -1,3 +1,4 @@
+Że Jacek wierną służbą i cesarską łaską\
 Zniósł infamiji plamę, powraca do cześci,\
 I znowu się w rzęd prawych patryjotów mieści.\
 Więc kto będzie śmiał Jacka zmarłego rodzinie\
