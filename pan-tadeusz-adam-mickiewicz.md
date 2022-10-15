@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Koń Tadeusza czekał w stajni osiodłany.\
 Wziął więc flintę, skoczył nań i jak opętany\
 Pędził ku karczmom, które stały przy kaplicy,\
