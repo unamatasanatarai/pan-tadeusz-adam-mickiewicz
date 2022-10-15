@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Patrzyłem. Różne myśli snuły się po głowie.\
 Zrazu z uśmiechem głupim, jak na pożar dziecko,\
 Patrzyłem; potem radość uczułem zbójecką,\
