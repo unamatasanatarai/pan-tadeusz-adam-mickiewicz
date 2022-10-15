@@ -1,3 +1,4 @@
+Okręcił się i szpadą powitał gromadę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wiwat Hrabia! — krzyknęli — z nim żyć i umierać!»\
 Szlachta zaczęła z chaty przez okna wyzierać,\
