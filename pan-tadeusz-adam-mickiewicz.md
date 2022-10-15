@@ -1,3 +1,4 @@
+(A wiadomość tę pono wzięli od rabinów)\
 Że ów zodyjakowy *Smok* długi i gruby,\
 Który gwiaździste wije po niebie przeguby,\
 Którego mylnie wężem chrzczą astronomowie,\
