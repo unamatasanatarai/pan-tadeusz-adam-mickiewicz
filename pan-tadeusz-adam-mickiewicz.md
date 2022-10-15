@@ -1,3 +1,4 @@
+Patrzą, aż tu przez rzekę leży most kosmaty,\
 Pas ze skóry niedźwiedziej, porzniętej na szmaty.\
 Postawiłem Doweykę na źwierza ogonie\
 Z jednej strony, Domeykę zaś po drugiej stronie:\
