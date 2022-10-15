@@ -1,3 +1,4 @@
+Wypuścił z ust kłąb dymu i poszedł do dworu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem Rykowa Sędzia ułagadza,\
 I Asesora także na bok odprowadza;\
