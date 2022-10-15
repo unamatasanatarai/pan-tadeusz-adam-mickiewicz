@@ -1,3 +1,4 @@
+Dlaczego ją pokochał? dlaczego porzuca?\
 Gdzie odjeżdża? przecież ją ten odjazd zasmuca.\
 Pierwszy raz posłyszała w życiu z ust młodziana\
 Dziwną i wielką nowość: że była kochana.\
