@@ -1,3 +1,4 @@
+Podział już jest zrobiony, idę tym podziałem.\
 Naprzód: dlaczego mamy przedsiębrać powstanie?\
 W jakim duchu? to pierwsze żywotne pytanie;\
 Drugie, rewolucyjnej władzy się dotycze:\
