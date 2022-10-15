@@ -1,3 +1,4 @@
+Że Wojski wciąż gra jeszcze, a to echo grało.\
 Wysłuchawszy rogowej arcydzieło sztuki,\
 Powtarzały je dęby dębom, bukom buki.
 
