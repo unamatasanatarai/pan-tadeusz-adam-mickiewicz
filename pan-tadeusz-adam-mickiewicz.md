@@ -1,3 +1,4 @@
+Na koniec nie mógł dłużej od gniewu wytrzymać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Był on prostak, lecz umiał czuć wdzięk przyrodzenia,\
 I patrząc w las ojczysty, rzekł pełen natchnienia:\
