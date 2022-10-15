@@ -1,3 +1,4 @@
+Ryczało albo żuło swój pokarm zimowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I wieśniacy, ciągnący na jarzynę pługi,\
 Nie cieszą się jak zwykle z końca zimy długiéj,\
