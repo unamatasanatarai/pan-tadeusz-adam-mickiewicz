@@ -1,3 +1,4 @@
+Wiadoma: kończ, com zaczął, pomnij, żeś Soplica!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu ksiądz łzy otarł, habit zapiął, kaptur włożył\
 I okienicę tylną po cichu otworzył,\
