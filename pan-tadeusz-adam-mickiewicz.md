@@ -1,3 +1,4 @@
+Robak po cichu tymi odezwał się słowy:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Bracie! Bóg wie, żem dotąd tajemnic dochował,\
 Którem z żalu za grzechy w spowiedzi ślubował:\
