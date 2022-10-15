@@ -1,3 +1,4 @@
+Ten robaczek większego od was zgryzł orzecha.\
 Raz go tylko widziałem: ledwiem okiem rzucił,\
 Poznałem co za ptaszek; ksiądz oczy odwrócił,\
 Lękając się, żebym go nie zaczął spowiadać;\
