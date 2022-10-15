@@ -1,3 +1,4 @@
+Siekąc wrogów, a Praga już się wkoło pali.\
 Nawet stary stojący zegar kurantowy\
 W drewnianej szafie poznał, u wniścia alkowy;\
 I z dziecinną radością pociągnął za sznurek,\
