@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Chrzciciel, który w obronie Maćka oręż stracił,\
 Ledwie że tej przysługi życiem nie przypłacił:\
 Bo przypadło nań z tyłu dwóch silnych Moskali,\
 I czworo rąk zarazem we włos mu wplątali;\
