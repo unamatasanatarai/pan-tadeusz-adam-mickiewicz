@@ -1,3 +1,4 @@
+Żeby te księgi zbłądziły pod strzechy;\
 Żeby wieśniaczki kręcąc kołowrotki,\
 Gdy odśpiewają ulubione zwrotki\
 O tej dziewczynie, co tak grać lubiła,\
