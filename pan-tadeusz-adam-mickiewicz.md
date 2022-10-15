@@ -1,3 +1,4 @@
+Coś niby jak rozsada w jesieni zasiana,\
 Przez całą zimę w moim sercu się krzewiła,\
 Że, jako mówię panu, ustawniem tęskniła\
 Do tego pokoiku, i coś mi szeptało,\
