@@ -1,3 +1,4 @@
+Ruszywszy ramionami, myśliła: dziwaczy!\
 Wreszcie nowym zalotom Hrabiego dość rada,\
 Zwróciła się do swego drugiego sąsiada.
 
