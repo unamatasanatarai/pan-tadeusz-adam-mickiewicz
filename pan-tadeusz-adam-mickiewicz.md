@@ -1,3 +1,4 @@
+Kulturze, że tamuje progresy, że zdradza!\
 Taka była przesądów owoczesnych władza!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podczaszyc zapowiedział, że nas reformować,\
