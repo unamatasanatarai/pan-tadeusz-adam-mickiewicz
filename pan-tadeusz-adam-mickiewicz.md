@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, na którego niespodzianie spadał\
 Grom taki, wstał zmieszany, chwilę nic nie gadał,\
 Lecz patrzał na rywala coraz straszniej, srożej...\
