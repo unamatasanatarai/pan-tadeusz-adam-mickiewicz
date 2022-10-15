@@ -1,3 +1,4 @@
+Opatrzonych w broszurki i w różne gazety,\
 Głoszących nowe wiary, prawa, toalety.\
 Miała nad umysłami wielką moc ta tłuszcza;\
 Bo Pan Bóg, kiedy karę na naród przypuszcza,\
