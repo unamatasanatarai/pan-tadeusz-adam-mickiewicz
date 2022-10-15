@@ -1,3 +1,4 @@
+Lecz biada rywalowi, co mię tak znieważa!\
 Po moim chyba trupie pójdzie do ołtarza!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście powstali, Rejent okropnie się zmieszał,\
