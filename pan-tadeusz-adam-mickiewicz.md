@@ -1,3 +1,4 @@
+Długimi drągi z brzegu pędzą na głębinę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Trzasnął słup: już sernica chwieje się i wali\
 Z brzemieniem drzew i serów na trójkąt Moskali.\
