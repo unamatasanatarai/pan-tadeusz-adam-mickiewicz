@@ -1,3 +1,4 @@
+«Grzechem! — odpowiedziała mu z gorzkim uśmiechem —\
 Niewiniątko! baranek! Ja, będąc kobiétą,\
 Jeśli z miłości nie dbam, choćby mnie odkryto,\
 Choćby mnie osławiono; a ty, ty mężczyzna?\
