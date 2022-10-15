@@ -1,3 +1,4 @@
+Bez Suwarowa to on może nas wytuza.\
 U nas w pułku gadano, jak szli na Francuza,\
 Że Bonapart czarował: no, tak i Suwarów\
 Czarował; tak były czary przeciw czarów.\
