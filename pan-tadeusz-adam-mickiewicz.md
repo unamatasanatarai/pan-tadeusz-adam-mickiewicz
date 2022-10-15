@@ -1,3 +1,4 @@
+Na powietrzu owadów wielki krąg się zbiera,\
 Kręci się, grając jako harmoniki sfera;\
 Ucho Zosi rozróżnia wśród tysiąca gwarów\
 Akord muszek i półton fałszywy komarów.
