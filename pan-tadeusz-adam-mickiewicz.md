@@ -1,3 +1,4 @@
+Za nim cały tłum szlachty «Kropić, kropić!» wrzasnął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poparł stronę Chrzciciela, Bartek zwan Brzytewka\
 Od szabli cienkiej, tudzież Maciej, zwan Konewka\
