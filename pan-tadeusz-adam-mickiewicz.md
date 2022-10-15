@@ -1,3 +1,4 @@
+Skoro usłyszy trąbę lub bęben daleki,\
 Chwyta się z łoża, krzyczy przez sen: «Bij Moskala!»\
 I na drewnianej nodze skacze ze szpitala,\
 Tak prędko, że go ledwie może złowić młodzież.
