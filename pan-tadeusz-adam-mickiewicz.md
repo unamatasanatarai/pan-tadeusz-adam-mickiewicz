@@ -1,3 +1,4 @@
+Łokcie na trawie, skronie na dłoniach oparła,\
 Z głową na dół skłonioną; na dole u głowy,\
 Błysnął francuskiej książki papier welinowy;\
 Nad alabastrowymi stronicami księgi,\
