@@ -1,3 +1,4 @@
+Na czczo. Szedł więc, gdzie stała spirytusu kufa:\
 Ręką jak łyżką strumień do ust sobie chylił.\
 Dopiero, gdy się dobrze rozgrzał i posilił,\
 Poprawił czapkę, z kolan wziął do rąk konewkę,\
