@@ -1,3 +1,4 @@
+Przy nim stołki, choć niższe, podobne do stoła,\
 Jako dzieci do ojca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na stołkach dokoła\
