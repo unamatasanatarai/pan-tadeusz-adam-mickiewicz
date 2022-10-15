@@ -1,3 +1,4 @@
+Obie strony nie szczędzą wielkich usiłowań,\
 Ażeby stanowisko zająć konopiane,\
 Które z przodu ciągnie się aż pod dworską ścianę,\
 A z tyłu, pospolicie stykając się z chmielem,\
