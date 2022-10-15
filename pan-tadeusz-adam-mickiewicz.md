@@ -1,3 +1,4 @@
+Sędzia wszystko, co trzeba, zgotuje na drogę\
 I ja pieniędzmi, ile zdołam, dopomogę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czuła szlachta, że mądrze Podkomorzy radził:\
