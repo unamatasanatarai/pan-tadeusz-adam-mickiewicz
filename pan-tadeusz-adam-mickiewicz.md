@@ -1,3 +1,4 @@
+Jako dwa konduktory w łono ciemnej chmury;\
 Aż oba jednym razem pociągnęli kurki\
 (Niedoświadczeni!), razem zagrzmiały dwururki:\
 Chybili. Niedźwiedź skoczył; oni tuż utkwiony\
