@@ -1,3 +1,4 @@
+Że twarz jego i skroń wbił w zamek karabina;\
 Trzasł zamek: lecz zalany krwią proch już nie spalił;\
 Sierżant u nóg Chrzciciela na swą broń się zwalił.\
 Chrzciciel schyla się, chwyta karabin za rurę\
