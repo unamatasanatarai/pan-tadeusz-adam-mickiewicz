@@ -1,3 +1,4 @@
+Parą wicin mizernych: to już zań gardłujesz?\
 Zapomniałeś mopanku, że ojciec waszecin\
 Spławiał do Prus dwadzieścia Horeszkowskich wicin?\
 Stąd się zbogacił i on, i jego rodzina,\
