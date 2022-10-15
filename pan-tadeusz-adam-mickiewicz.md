@@ -1,3 +1,4 @@
+Upada jak kiść śniegu gołąb srebrnopióry.\
 W pośrodku zielonego okręgu murawy,\
 Ściska się okrąg ptastwa, krzykliwy, ruchawy,\
 Opasany gołębi sznurem, na kształt wstęgi\
