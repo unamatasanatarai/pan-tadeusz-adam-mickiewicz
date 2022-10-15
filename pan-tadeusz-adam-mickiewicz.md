@@ -1,3 +1,4 @@
+Nie tkaj palców między drzwi, nie o ciebie idzie!\
 Panie Prusak! że waszeć Sędziowską handlujesz\
 Parą wicin mizernych: to już zań gardłujesz?\
 Zapomniałeś mopanku, że ojciec waszecin\
