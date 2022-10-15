@@ -1,3 +1,4 @@
+Które związują tylko ręce, a nie duchy?\
 Wierzaj: są oświadczenia, nawet bez wyznania;\
 Są obowiązki, nawet bez obowiązania!\
 Dwa serca, pałające na dwóch końcach ziemi,\
