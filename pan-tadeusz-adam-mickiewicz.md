@@ -1,3 +1,4 @@
+Pryskają łóz gałęzie; lecą traw przekosy\
 Na wiatr jako garściami wyrywane włosy,\
 Zmieszane z kędziorami snopów. Wiatry wyją,\
 Upadają na rolę, tarzają się, ryją,\
