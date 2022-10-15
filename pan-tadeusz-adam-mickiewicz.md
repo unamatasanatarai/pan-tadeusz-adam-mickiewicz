@@ -1,3 +1,4 @@
+Za wiatrem znowu obłok nadbiega wilgotny:\
 I tak dzień na przemiany był chłodny i słotny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem Major belki schnące pode dworem\
