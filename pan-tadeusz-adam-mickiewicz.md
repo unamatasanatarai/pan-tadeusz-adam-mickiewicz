@@ -1,3 +1,4 @@
+Wyciągnęła ku Hrabi załamane dłonie:\
 «Na twój honor! — krzyknęła przeraźliwym głosem,\
 Z głową w tył wychyloną, z rozpuszczonym włosem —\
 Przez wszystko co jest świętym, na klęczkach błagamy!\
