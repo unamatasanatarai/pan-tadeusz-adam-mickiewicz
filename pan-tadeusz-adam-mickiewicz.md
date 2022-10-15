@@ -1,3 +1,4 @@
+Często chłopi talara w przydatku dostali.\
 Wierz mi pan, że się chłopstwo bardzo rozzuchwali,\
 Jeśli...» — Reszty dowodów pana Ekonoma\
 Nie mógł usłyszeć Sędzia; bo pomiędzy dwoma\
