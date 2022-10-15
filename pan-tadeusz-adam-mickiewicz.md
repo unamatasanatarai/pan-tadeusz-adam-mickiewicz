@@ -1,3 +1,4 @@
+Poglądając w twarz starca czuł jakieś wzruszenie,\
 Rękę mu ścisnął; chwilę trwało to milczenie,\
 Przerwał je starzec, trzęsąc wzniesioną prawicą:\
 «Nie masz zgody, mopanku, pomiędzy Soplicą\
