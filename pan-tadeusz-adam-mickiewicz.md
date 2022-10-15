@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Dziewczyna powiewała podniesioną w ręku\
 Szarą kitką, podobną do piór strusich pęku;\
 Nią zdała się oganiać główki niemowlęce\
 Od złotego motylów deszczu. W drugiej ręce\
