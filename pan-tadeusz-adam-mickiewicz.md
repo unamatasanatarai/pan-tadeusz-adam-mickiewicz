@@ -1,3 +1,4 @@
+Prosto kłusował polem aż pod zamku progi.\
 Hrabia samotny wzdychał, poglądał na mury,\
 Wyjął papier, ołówek i kreślił figury.\
 Wtem, spojrzawszy w bok — ujrzał o dwadzieścia kroków\
