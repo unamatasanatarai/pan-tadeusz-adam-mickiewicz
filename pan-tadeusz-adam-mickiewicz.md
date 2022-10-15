@@ -1,3 +1,4 @@
+Z liściem lakierowanym, krótka i pękata,\
 Jako kobieta mała, brzydka, lecz bogata?\
 Czy zachwalony cyprys długi, cienki, chudy,\
 Co zdaje się być drzewem nie smutku, lecz nudy?\
