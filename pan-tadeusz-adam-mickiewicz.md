@@ -1,3 +1,4 @@
+Gdy raptem paniczyki młode z cudzych krajów\
 Wtargnęli do nas hordą gorszą od Nogajów,\
 Prześladując w ojczyźnie Boga, przodków wiarę,\
 Prawa i obyczaje, nawet suknie stare.\
