@@ -1,3 +1,4 @@
+Cybetów, piżm, dragantów, pinelów, brunelów;\
 Owe ryby: łososie suche, dunajeckie,\
 Wyżyny i kawijary weneckie, tureckie,\
 Szczuki główne i szczuki podgłówne, łokietne,\
