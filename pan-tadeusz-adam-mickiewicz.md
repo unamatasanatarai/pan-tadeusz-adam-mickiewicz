@@ -1,3 +1,4 @@
+Wszystko miesza się, zrywa, mąci się i niknie!»\
 Tu, obróciwszy czuły wzrok ku Telimenie,\
 «Cóż zostaje?» A ona mu rzekła: «Wspomnienie!»\
 I chcąc Hrabiego nieco ułagodzić smutek,\
