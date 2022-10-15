@@ -1,3 +1,4 @@
+«Czymże zdołam odwdzięczyć dobremu stryjowi,\
 Który tak o me szczęście ustawnie się trudzi!\
 Ach dobry stryju, byłbym najszczęśliwszy z ludzi,\
 Gdyby mi Zosia była dzisiaj zaręczona,\
