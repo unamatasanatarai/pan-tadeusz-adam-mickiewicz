@@ -1,3 +1,4 @@
+Bo i rozum, i wielkie doświadczenie miała.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz co powiedzą ludzie?... Można im zejść z oczu,\
 W inne strony wyjechać, mieszkać na uboczu\
