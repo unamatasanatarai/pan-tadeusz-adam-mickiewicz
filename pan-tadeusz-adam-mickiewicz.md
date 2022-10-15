@@ -1,3 +1,4 @@
+Zyskać twe względy, choćby przyszło czekać długo.\
 Teraz jesteś łaskawa twe słowo powtórzyć:\
 Czymże na tyle łaski umiałem zasłużyć?\
 Może mnie bierzesz, Zosiu, nie tak z przywiązania,\
