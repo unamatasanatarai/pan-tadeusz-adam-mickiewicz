@@ -1,3 +1,4 @@
+Słychać tysiące coraz głośniejszych hałasów;\
 Takt marszu, wojna, atak, szturm; słychać wystrzały,\
 Jęk dzieci, płacze matek. — Tak mistrz doskonały\
 Wydał okropność szturmu, że wieśniaczki drżały,\
