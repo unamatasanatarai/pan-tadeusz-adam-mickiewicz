@@ -1,3 +1,4 @@
+Wiadomo, że kto z ruskim carem raz się zwadził,\
 Ten już z nim na tej ziemi nie zgodzi się szczérze,\
 I musi albo bić się, albo gnić w Sybirze.\
 Więc nic nie mówiąc, smutnie po sobie spójrzeli,\
