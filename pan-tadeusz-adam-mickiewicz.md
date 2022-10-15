@@ -1,3 +1,4 @@
+«Podkomorzeńku! — krzyknął — wolne pańskie żarty,\
 Wróbel mniejszy niż puszczyk, a na swoich wiorach\
 Śmielszy jest aniżeli puszczyk w cudzych dworach:\
 Co Klucznik to nie puszczyk; kto w cudze poddasze\
