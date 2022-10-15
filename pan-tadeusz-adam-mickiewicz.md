@@ -1,3 +1,4 @@
+Ale Wojskiego powieść przerwali kucharze,\
 Pytając komu serwis ustawiać rozkaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski odszedł, a starcy zaczerpnąwszy miodu,\
