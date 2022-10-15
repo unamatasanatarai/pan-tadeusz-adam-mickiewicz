@@ -1,3 +1,4 @@
+Skupia się, zbiera, łączy dla wspólnej obrony,\
 Obmyśla ją; i to jest najpierwsza obrada.\
 Potem każdy wolności własnej cząstkę składa\
 Dla dobra powszechnego: to pierwsza ustawa,\
