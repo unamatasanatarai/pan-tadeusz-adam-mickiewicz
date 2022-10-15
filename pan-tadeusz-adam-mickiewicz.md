@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jankiel niezmiernie Zosię lubił: kiwnął brodą\
 Na znak, że nie odmawia; więc go w środek wiodą,\
 Podają krzesło, usiadł, cymbały przynoszą,\
