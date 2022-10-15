@@ -1,3 +1,4 @@
+A herów oficerów łowić za harcaby!\
 A jenerał Dąbrowski wpada do Poznania\
 I cesarski przynosi rozkaz: do powstania!\
 W tydzień jeden tak lud nasz Prusaków wychłostał\
