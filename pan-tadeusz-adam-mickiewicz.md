@@ -1,3 +1,4 @@
+Jutro i Hrabia z całym myślistwem tu zjedzie,\
 I waszeć z nami ruszysz, Sędzio mój sąsiedzie,\
 I pani Telimena, i panny, i panie,\
 Słowem, zrobim na urząd wielkie polowanie;\
