@@ -1,3 +1,4 @@
+W tym zamku?» «Są — rzekł Klucznik — ogromne piwnice,\
 Ale puste! bo wino wypili Soplice».\
 «Dżokejów — dodał Hrabia — uzbroić we dworze,\
 Z włości wezwać wasalów!» «Lokajów? broń Boże! —\
