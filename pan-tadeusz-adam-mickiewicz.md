@@ -1,3 +1,4 @@
+Czy wiatr ruszył? Tadeusz długo patrzył na nie,\
 Nie śmiał iść w ogród; tylko wsparł się na parkanie,\
 Oczy podniósł i z palcem do ust przyciśnionym\
 Kazał sam sobie milczeć, by słowem kwapionem\
