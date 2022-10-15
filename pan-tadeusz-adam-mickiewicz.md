@@ -1,3 +1,4 @@
+Gdy nagle Moskwa zamek opasała w nocy.\
 Ledwie był czas z moździerza na trwogę wypalić,\
 Podwoje dolne zamknąć i ryglem zawalić.\
 W zamku całym był tylko: pan Stolnik, ja, pani,\
