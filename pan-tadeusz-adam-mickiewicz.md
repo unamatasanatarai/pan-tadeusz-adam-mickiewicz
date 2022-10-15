@@ -1,3 +1,4 @@
+Brali stronę Kusego albo też Sokoła,\
 Ci jak znawcy, ci znowu jak naoczne świadki.\
 Sędzia na drugim końcu do nowej sąsiadki\
 Rzekł półgłosem: «Przepraszam, musieliśmy siadać,\
