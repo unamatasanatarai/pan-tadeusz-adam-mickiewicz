@@ -1,3 +1,4 @@
+I opuścić na zawsze powiat i ojczyznę,\
 Wynieść się gdzie na Moskwę lub na Tatarszczyznę\
 I zacząć wojnę. Jadę pożegnać Stolnika,\
 W nadziei, że gdy ujrzy wiernego stronnika,\
