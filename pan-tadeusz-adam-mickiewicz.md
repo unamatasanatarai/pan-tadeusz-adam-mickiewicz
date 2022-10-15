@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wieczerzano w zamczysku. Uparty Protazy,\
 Nie dbając na wyraźne Sędziego zakazy,\
 W niebytność państwa znowu do zamku szturmował,\
