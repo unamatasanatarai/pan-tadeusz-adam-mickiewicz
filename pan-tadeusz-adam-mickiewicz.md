@@ -1,3 +1,4 @@
+On, co tak gesty lubił! Ręce za pas sadził,\
 Nie masz pasa — tylko się po żołądku gładził;\
 Postrzegł omyłkę; bardzo zmieszał się, spiekł raka,\
 I ręce obie schował w jedną kieszeń fraka.\
