@@ -1,3 +1,4 @@
+Czy uwierzycie państwo, że z tej tabakiery,\
 Pan jenerał Dąbrowski zażył razy cztery?»\
 «Dąbrowski?» — zawołali. «Tak, tak, on, jenerał.\
 Byłem w obozie, gdy on Gdańsk Niemcom odbierał;\
