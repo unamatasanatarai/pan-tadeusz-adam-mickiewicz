@@ -1,3 +1,4 @@
+«Jeść! jeść!» po trzykroć zgodnym wezwali okrzykiem,\
 Odpowiedziano: «Pić! pić!»; między szlachty zgrają\
 Stają dwa chóry: ci pić, a ci jeść wołają.\
 Odgłos leci echami; gdzie tylko dochodzi,\
