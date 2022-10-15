@@ -1,3 +1,4 @@
+Że tu nie o Dobrzyńskich, lecz o powiat cały,\
 O całą szlachtę idzie; toż i Robak bąkał,\
 Choć nigdy nie dokończył i zawsze się jąkał,\
 I ciemno się tłumaczył. Wreszcie, koniec końców,\
