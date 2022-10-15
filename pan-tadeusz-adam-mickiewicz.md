@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Widno, że Hrabia kędyś ruszył z całym dworem,\
 I bardzo śpieszył, bo drzwi zostawił otworem.\
 Widać, że się uzbrajał: leżały dwururki\
