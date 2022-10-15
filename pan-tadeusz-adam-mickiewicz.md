@@ -1,3 +1,4 @@
+Umilknie, światu swobodę obwieści —\
 Wtenczas — dębowym liściem uwieńczeni,\
 Rzuciwszy miecze, siędą rozbrojeni\
 Rycerze nasi, zechcą słuchać o przeszłości!\
