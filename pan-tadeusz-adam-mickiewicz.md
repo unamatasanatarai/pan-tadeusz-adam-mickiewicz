@@ -1,3 +1,4 @@
+Tam wpadł zając; już Kusy, już go Sokół imał,\
 Gdy Sędzia dojeżdżaczy na miedzy zatrzymał.\
 Musieli być posłuszni, chociaż w wielkim gniewie;\
 Psy powróciły same i nikt pewnie nie wie,\
