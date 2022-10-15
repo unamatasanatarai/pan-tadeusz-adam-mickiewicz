@@ -1,3 +1,4 @@
+Bo wszyscy ku Sędziemu mieli swe urazy,\
 Jak zwyczajnie w sąsiedztwie: to o szkodę skargi,\
 To o wyręby, to o granice zatargi.\
 Jednych gniew, drugich tylko podburzała zawiść\
