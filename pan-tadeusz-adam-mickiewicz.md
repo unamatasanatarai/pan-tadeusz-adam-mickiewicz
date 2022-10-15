@@ -1,3 +1,4 @@
+Ja, z konia zsiadłszy, zaraz padłem na kolana,\
 Dziękując Panu Bogu... Do miasta jedziemy,\
 Niby dla interesu, niby nic nie wiemy:\
 Aż tu widzimy wszystkie landraty, hofraty,\
