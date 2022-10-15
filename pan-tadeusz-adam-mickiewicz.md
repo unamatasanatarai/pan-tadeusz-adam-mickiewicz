@@ -1,3 +1,4 @@
+I tło ręką wygładza, tymczasem tkacz z góry\
 Zrzuca jej nitki srebra, złota i purpury,\
 Tworząc barwy i kwiaty: tak dziś ziemię całą\
 Wiatr tumanami osnuł, a słońce dzierzgało.
