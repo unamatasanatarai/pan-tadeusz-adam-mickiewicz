@@ -1,3 +1,4 @@
+Nie wiedząc, że Kniaziewicz ciągnie ku odsieczy,\
 On to Jacek, zwan Robak, wśród grotów i mieczy\
 Przeniósł od Kniaziewicza listy Ryszpansowi\
 Donoszące, że nasi biorą tył wrogowi.\
