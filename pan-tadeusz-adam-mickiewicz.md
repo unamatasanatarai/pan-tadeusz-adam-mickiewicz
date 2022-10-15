@@ -1,3 +1,4 @@
+Diabłów!!!!...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Ucichli wszyscy jak rażeni gromem;\
 Ale razem straszliwy powstał krzyk za domem:\
