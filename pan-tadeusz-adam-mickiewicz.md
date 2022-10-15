@@ -1,3 +1,4 @@
+A ciotka w Petersburgu mieszkała przed laty.\
 To nie był ochmistrzyni pokój? Fortepiano?\
 Na nim nuty i książki; wszystko porzucano\
 Niedbale i bezładnie: nieporządek miły!\
