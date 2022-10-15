@@ -1,3 +1,4 @@
+Z ksiąg obcych wyuczył się gospodarstwa sztuki,\
 I dóbr administracją prowadził porządnie;\
 O polityce także wnioskował rozsądnie,\
 Pięknie pisać i gładko umiał się wysławiać.\
