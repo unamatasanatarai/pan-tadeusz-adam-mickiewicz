@@ -1,3 +1,4 @@
+Szkoda, żeś mię nie przywiódł tu w godzinę nocną;\
 Udrapowany płaszczem, siadłbym na ruinach,\
 A ty byś mi o krwawych rozpowiadał czynach.\
 Szkoda, że masz niewielki dar opowiadania!\
