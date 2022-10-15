@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Cicho! skądże ta cała nowina pochodzi?\
 Jak daleko Francuzi? kto nimi dowodzi?\
 Czy już wojnę zaczęli z Moskwą? gdzie i o co?\
