@@ -1,3 +1,4 @@
+W której jest Horeszkowskie stołowe naczynie,\
 Przy tym różne sygnety, kanaki, manele,\
 Kity bogate, rzędy, cudne karabele.\
 Skarbczyk Stolnika, w ziemi skryty od grabieży,\
