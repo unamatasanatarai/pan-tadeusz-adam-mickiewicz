@@ -1,3 +1,4 @@
+Oto stanął, jak gdyby chciał swą damę pytać,\
 Pochyla ku niej głowę, chce szepnąć do ucha;\
 Dama głowę odwraca, wstydzi się, nie słucha;\
 On zdjął konfederatkę, kłania się pokornie,\
