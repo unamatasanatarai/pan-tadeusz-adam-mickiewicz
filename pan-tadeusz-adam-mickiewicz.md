@@ -1,3 +1,4 @@
+Możem te zaręczyny czas jakiś odwlekać;\
 Więzić twej woli nie chcę; będziem, Zosiu, czekać.\
 Nic nas nie nagli, zwłaszcza że wczora wieczorem\
 Dano mi rozkaz zostać w Litwie instruktorem\
