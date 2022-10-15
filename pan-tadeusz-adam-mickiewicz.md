@@ -1,3 +1,4 @@
+Drzemały obok siebie jako małżonkowie\
 Szczęśliwi: niebo w czyste objęło ramiona\
 Ziemi pierś, co księżycem świeci posrebrzona.
 
