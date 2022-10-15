@@ -1,3 +1,4 @@
+Bębenek, i w takt bijąc, swawolna dziewica\
 Jęła skakać przez pawie, gołębie i kury:\
 Zmieszane ptastwo tłumnie furknęło do góry.\
 Zosia, stopami ledwie dotykając ziemi,\
