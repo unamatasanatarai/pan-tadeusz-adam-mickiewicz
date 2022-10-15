@@ -1,3 +1,4 @@
+Jak lubił dla niej nosić kwiaty, pleść koszyczki,\
 Wybierać gniazda ptasie, robić zauszniczki.\
 Niewdzięczna! Chociaż tyle pięknych darów strwonił,\
 Choć przed nim uciekała, choć mu ojciec bronił:\
