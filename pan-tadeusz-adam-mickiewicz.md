@@ -1,3 +1,4 @@
+Jak Jabłonowski zabiegł, aż kędy pieprz rośnie,\
 Gdzie się cukier wytapia i gdzie w wiecznej wiośnie\
 Pachnące kwitną lasy; z legiją Dunaju\
 Tam wódz Murzyny gromi, a wzdycha do kraju.
