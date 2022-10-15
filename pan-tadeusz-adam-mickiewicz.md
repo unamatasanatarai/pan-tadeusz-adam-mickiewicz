@@ -1,3 +1,4 @@
+I ucieczką dziewczyny, wrzasnęły okropnie.\
 Posłyszała, uczuła, że jest nieroztropnie\
 Dziatwę małą, przelękłą i samą porzucić:\
 Wracała, wstrzymując się, lecz musiała wrócić,\
