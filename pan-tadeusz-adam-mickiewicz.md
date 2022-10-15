@@ -1,3 +1,4 @@
+Jest to pamiątka tylko owych biesiad sławnych,\
 Które dawano w domach panów starodawnych,\
 Gdy Polska używała szczęścia i potęgi!\
 Com zrobił, tom wyczytał z tej tu oto księgi.\
