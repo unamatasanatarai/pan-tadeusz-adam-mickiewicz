@@ -1,3 +1,4 @@
+I z trąb znana piosenka ku niebu wionęła,\
 Marsz tryumfalny: *Jeszcze Polska nie zginęła*!\
 *Marsz Dąbrowski do Polski!* — I wszyscy klasnęli,\
 I wszyscy «Marsz Dąbrowski!» chórem okrzyknęli.
