@@ -1,3 +1,4 @@
+Odbijała zamkowa sień wielka i pusta:\
 Rzekłbyś, iż zły duch gościom zasznurował usta.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mnogie były powody milczenia. Myśliwi\
