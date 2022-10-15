@@ -1,3 +1,4 @@
+Powiem tobie coś, pewnie to ciebie pocieszy.\
 Kiedy nieboszczyk Pan mój upadał zraniony,\
 A ja klęcząc nad jego piersią pochylony\
 I miecz maczając w ranę, zemstę zaprzysiągnął,\
