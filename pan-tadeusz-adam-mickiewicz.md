@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W istocie był to piękny pan: słusznej urody,\
 Twarz miał pociągłą, blade lecz świeże jagody,\
 Oczy modre, łagodne, włos długi, białawy;\
