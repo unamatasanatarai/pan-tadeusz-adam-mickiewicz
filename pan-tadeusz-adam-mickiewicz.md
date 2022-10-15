@@ -1,3 +1,4 @@
+Między nim i stryjaszkiem jedno pozostało\
 Puste miejsce, jak gdyby na kogoś czekało.\
 Stryj nieraz na to miejsce i na drzwi poglądał,\
 Jakby czyjegoś przyjścia był pewny i żądał.\
