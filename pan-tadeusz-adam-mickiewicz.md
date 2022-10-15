@@ -1,3 +1,4 @@
+Zauszniczki wyrżnięte sztucznie z pestek wiszni,\
 Których się wyrobieniem Sak Dobrzyński pyszni\
 (Były tam dwa serduszka z grotem i płomykiem\
 Dane dla Zosi, gdy Sak był jej zalotnikiem);\
