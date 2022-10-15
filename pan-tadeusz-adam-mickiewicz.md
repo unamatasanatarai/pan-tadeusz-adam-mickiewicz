@@ -1,3 +1,4 @@
+Szkoda ust dłużej suszyć kłótnią o zająca.\
 Więc polubownych sędziów najpierwej obierzcie,\
 A co wyrzekną, temu sumiennie zawierzcie.\
 Ja uproszę Sędziego, ażeby nie bronił\
