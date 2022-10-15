@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Już mieli zacząć bitwę, lecz Sędzia przeszkodził;\
 Próżno było bronić się, nowy wróg nadchodził:\
 Postrzeżono w olszynie blask, wystrzał rusznicy!\
 Most na rzece zahuczał tętentem konnicy\
