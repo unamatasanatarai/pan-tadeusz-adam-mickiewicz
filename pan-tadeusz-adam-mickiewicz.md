@@ -1,3 +1,4 @@
+Oparte na drewnianym licznych kolumn rzędzie.\
 Kolumny, co jest wielkie architektów dziwo,\
 Trwałe, chociaż wpół zgniłe i stawione krzywo,\
 Jako w wieży pizańskiej, nie podług modelów\
