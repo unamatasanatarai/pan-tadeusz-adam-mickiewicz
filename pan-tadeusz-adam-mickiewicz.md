@@ -1,3 +1,4 @@
+W domowym gospodarstwie; dziś powszechnie znany,\
 Lecz w owych czasach jeszcze za nowość podany,\
 Przyjęty pod sekretem od niewielu osób,\
 Nim go wydał kalendarz, pod tytułem: Sposób\
