@@ -1,3 +1,4 @@
+Dwie pochwały cesarskie i cztery wspomnienia,\
 Wszystko na piśmie...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Ale, ale kapitanie —\
