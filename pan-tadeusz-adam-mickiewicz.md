@@ -1,3 +1,4 @@
+Dość, że ważny i że się stempel na nim widzi,\
 Więc szanują przyjaciół jak pieniądze Żydzi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;To mówiąc, Sędzia gości obejrzał porządkiem;\
