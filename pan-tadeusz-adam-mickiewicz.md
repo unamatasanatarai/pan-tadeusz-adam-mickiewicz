@@ -1,3 +1,4 @@
+To nic! Jesteś mężczyzną, znam waszą niecnotę,\
 Wiem, że jak inni, tak ty mógłbyś wiarę złamać,\
 Lecz nie wiedziałam, że tak podle umiesz kłamać!\
 Słuchałam pode drzwiami stryja! Więc to dziecko,\
