@@ -1,3 +1,4 @@
+Podział władzy już tylko jest skutkiem koniecznym».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Otóż są i kontrakty! Kijowskie czy mińskie? —\
 Rzekł stary Maciej — owoż i rządy babińskie!\
