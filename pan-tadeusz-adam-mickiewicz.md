@@ -1,3 +1,4 @@
+I wtenczas łza ta ich lica nie splami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś dla nas, w świecie nieproszonych gości,\
 W całej przeszłości i w całej przyszłości,\
