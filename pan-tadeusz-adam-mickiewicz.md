@@ -1,3 +1,4 @@
+Raz ostatni dotknąwszy przyjaciela skroni,\
 Częstokroć najzimniejsze oko łzę uroni!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biedna, słysząc o moim odjeździe, pobladła,\
