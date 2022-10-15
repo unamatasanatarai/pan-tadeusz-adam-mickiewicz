@@ -1,3 +1,4 @@
+I pochylił ku piersiom czoło zadumane.\
 Światłość miesięczna padła na wierzch głowy łysy,\
 Gerwazy po nim kryślił palcem różne rysy;\
 Widać, że przyszłych wypraw snuł plany wojenne.\
