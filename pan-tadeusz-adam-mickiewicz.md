@@ -1,3 +1,4 @@
+Już zraniono i poległ jeden z Bartłomiejów.\
 Szlachta z niewiela rusznic z rzadka się odstrzela;\
 Chce szablami uderzyć na nieprzyjaciela,\
 Ale starsi wstrzymują; kule gęsto świszczą,\
