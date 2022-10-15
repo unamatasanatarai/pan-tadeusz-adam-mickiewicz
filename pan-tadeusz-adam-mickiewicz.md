@@ -1,3 +1,4 @@
+Bo przypadło nań z tyłu dwóch silnych Moskali,\
 I czworo rąk zarazem we włos mu wplątali;\
 Upiąwszy się nogami ciągną jako liny\
 Sprężyste, uwiązane do masztu wiciny.\
