@@ -1,3 +1,4 @@
+Przyjmuję, oby z gwiazdą zjawił się Jan Trzeci!\
 Jest na zachodzie wielki dziś bohater; może\
 Kometa go przywiedzie do nas, co daj Boże!»
 
