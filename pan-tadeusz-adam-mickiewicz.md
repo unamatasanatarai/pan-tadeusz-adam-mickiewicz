@@ -1,3 +1,4 @@
+Szarafanie, zapiętym haftkami srebrnemi,\
 Rękę jedną za czarny pas jedwabny wsadził,\
 Drugą poważnie sobie siwą brodę gładził;\
 Rzucając wkoło okiem rozkazy wydawał,\
