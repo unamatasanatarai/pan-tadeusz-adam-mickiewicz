@@ -1,3 +1,4 @@
+I kurtkę, której poły podpięte na guzy\
 Można zakasać albo spuścić na kolana;\
 Czapka z uszami, sznurkiem u wierzchu związana,\
 Wznosi się na pogodę, spuszcza się przed słotą.\
