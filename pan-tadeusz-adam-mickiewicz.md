@@ -1,3 +1,4 @@
+Piankami i cukrami białymi jak śniegi:\
 Udawał przewybornie krajobraz zimowy.\
 W środku czerniał ogromny bór konfiturowy,\
 Stronami domy, niby wioski i zaścianki,\
