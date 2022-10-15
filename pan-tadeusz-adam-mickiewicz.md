@@ -1,3 +1,4 @@
+Nie szanując niczyich kopców ani miedzy,\
 Jeździć po cudzym gruncie, bez dziedzica wiedzy,\
 Wiosną równie jak latem zbiegać pola, knieje,\
 Zabijać nieraz lisa, właśnie gdy linieje,\
