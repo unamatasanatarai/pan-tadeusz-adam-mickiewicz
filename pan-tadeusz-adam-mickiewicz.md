@@ -1,3 +1,4 @@
+Oczy roztwierał, usta szeroko rozszerzał,\
 Grożąc białymi zęby, a wąsy najeżał;\
 Rapier z rąk upuszczony przy ziemi zatrzymał\
 Kolanami i głownię prawą ręką imał,\
