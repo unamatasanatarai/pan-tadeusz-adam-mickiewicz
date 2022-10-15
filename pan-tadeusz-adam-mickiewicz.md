@@ -1,3 +1,4 @@
+Niech i tak będzie, kiedy inaczej nie można!\
 Zwłaszcza, że jako słyszę, i jaśnie wielmożna\
 Pani moja Zofija na wszystko się zgadza;\
 Jej rozkazać, mnie słuchać: jużci przy niej władza.\
