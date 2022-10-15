@@ -1,3 +1,4 @@
+Ale małżeństwo, Zosiu, jest rzecz wielkiej wagi!\
 Radź się serca własnego; niczyjej powagi\
 Tu nie słuchaj, ni stryja gróźb, ni namów cioci.\
 Jeśli nie czujesz dla mnie nic oprócz dobroci,\
