@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Uciszcie się! — powtarzał — miejcie też baczenie,\
 Wy, co jesteście pierwsi myśliwi w powiecie,\
 Z gorszącej kłótni waszej co będzie? czy wiecie?\
 Oto młodzież, na której Ojczyzny nadzieje,\
