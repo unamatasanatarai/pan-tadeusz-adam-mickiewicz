@@ -1,3 +1,4 @@
+Oczyścić dom, powtarzam, oczyścić dom, dzieci!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nastąpiło milczenie, potem głosy w tłumie:\
 «Jakże to dom oczyścić, jak to ksiądz rozumie?\
