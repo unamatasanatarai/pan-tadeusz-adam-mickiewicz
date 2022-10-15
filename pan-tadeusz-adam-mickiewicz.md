@@ -1,3 +1,4 @@
+U nas ruskie przysłowie: Kto na wozie jedzie,\
 Bywa często pod wozem; kto dzisiaj na przedzie,\
 Jutro w tyle; dziś bijesz jutro ciebie biją;\
 Czy o to gniew? tak u nas po żołniersku żyją.\
