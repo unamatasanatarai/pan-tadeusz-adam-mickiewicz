@@ -1,3 +1,4 @@
+Wszyscy uklękli; a wtem ozwał się pod progiem\
 Dzwonek: znak, że przyjechał pleban z Panem Bogiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie już noc schodziła i przez niebo mleczne,\
