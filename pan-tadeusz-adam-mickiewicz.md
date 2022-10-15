@@ -1,3 +1,4 @@
+Na pamiątkę, że w czasie wojny się urodził)\
 Dobrze mój Tadeuszu, żeś się dziś nagodził\
 Do domu, właśnie kiedy mamy panien wiele.\
 Stryjaszek myśli wkrótce sprawić ci wesele;\
