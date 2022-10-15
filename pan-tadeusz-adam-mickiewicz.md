@@ -1,3 +1,4 @@
+Żaden pan nigdy przyjąć nie chciałby do ręki\
 Strzelby, którą zhańbiono sypiąc w nią śrut cienki!\
 Trzymano wprawdzie chartów: bo z łowów wracając,\
 Trafia się, że spod konia mknie się biedak zając:\
