@@ -1,3 +1,4 @@
+Jeździ wenecki diabeł w niemieckiej karecie.\
 Sam Podczaszyc jaki był, opisywać długo;\
 Dosyć, że się nam zdawał małpą lub papugą\
 W wielkiej peruce, którą do złotego runa\
