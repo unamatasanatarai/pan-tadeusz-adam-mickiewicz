@@ -1,3 +1,4 @@
+I jeszcze się do woli nagadać nie mogą.
 
 Słońce ostatnich kresów nieba dochodziło,\
 Mniej silnie, ale szerzej niż we dnie świeciło,\
