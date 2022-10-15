@@ -1,3 +1,4 @@
+Naprzód bracia Litwini, górą, górą Litwa!»\
 Skołubowie zaś, widząc, jak waleczny Brzytwa,\
 Choć ranny, leci z szablą wzniesioną do góry,\
 Krzyknęli: «Górą Maćki, niech żyją Mazury!»\
