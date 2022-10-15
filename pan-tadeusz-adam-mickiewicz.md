@@ -1,3 +1,4 @@
+Wysadził się przed Kusym, o tyle, o palec:\
 Wiedziałem, że spudłuje. Szarak, gracz nie lada,\
 Czchał niby prosto w pole, za nim psów gromada;\
 Gracz szarak! Skoro poczuł wszystkie charty w kupie\
