@@ -1,3 +1,4 @@
+Wszakże ksiądz prowincyjał dał mi pozwolenie\
 In articulo mortis zrobić objawienie.\
 Kto wie, czy wrócę żywy! kto wie, co się stanie!\
 W Dobrzynie! Bracie! wielkie, wielkie zamieszanie!\
