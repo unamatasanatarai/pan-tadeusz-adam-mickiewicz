@@ -1,3 +1,4 @@
+Bo Sędzia wie, że oko pańskie konia tuczy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski z Woźnym Protazym ze świecami w sieni\
 Stali i rozprawiali, nieco poróżnieni:\
