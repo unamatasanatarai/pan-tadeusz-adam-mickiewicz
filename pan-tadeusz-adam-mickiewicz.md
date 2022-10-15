@@ -1,3 +1,4 @@
+Wykopane olbrzymów żebra i piszczele.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Takie gwiazd historyje, które z książek zbadał\
 Albo słyszał z podania, Wojski opowiadał.\
