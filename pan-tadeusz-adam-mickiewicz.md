@@ -1,3 +1,4 @@
+Śledzę ją; albo może bierze się do Hrabi;\
 Może do obu razem. Obmyślmy więc środki,\
 Jak się jej pozbyć: bo stąd mogą urość plotki,\
 Zły przykład i pomiędzy młokosami zwady,\
