@@ -1,3 +1,4 @@
+Gdziem rzadko płakał, a nigdy nie zgrzytał:\
 Kraje dzieciństwa, gdzie człowiek po świecie\
 Biegł jak po łące, a znał tylko kwiecie\
 Miłe i piękne, jadowite rzucił,\
