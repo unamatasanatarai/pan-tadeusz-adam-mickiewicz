@@ -1,3 +1,4 @@
+Od czasu jak nos dźwigam (tu głasnął nos długi)\
 Takiej nie zażywałem (tu kichnął raz drugi);\
 Prawdziwa bernardynka, pewnie z Kowna rodem,\
 Miasta sławnego w świecie tabaką i miodem.\
