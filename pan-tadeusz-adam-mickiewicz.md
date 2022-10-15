@@ -1,3 +1,4 @@
+Ledwie spojrzał w rumiane Telimeny lice,\
 Odkrył od razu wielką, straszną tajemnicę —\
 Przebóg! naróżowana!
 
