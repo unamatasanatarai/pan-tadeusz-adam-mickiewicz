@@ -1,3 +1,4 @@
+Płut został żywy, może on wam zagiąć kruczka\
 Takiego, że zginiecie, bo to chytra sztuczka;\
 Trzeba mu gębę zatkać bankowym papierem.\
 No i cóż, panie szlachcic, ty z długim rapierem,\
