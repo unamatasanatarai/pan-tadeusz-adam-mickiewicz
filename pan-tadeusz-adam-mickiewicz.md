@@ -1,3 +1,4 @@
+Niech pana Pan Bóg w zdrowiu i szczęściu prowadzi,\
 I niech prędko szczęśliwie do nas odprowadzi».\
 Umilkła i spuściła głowę; oczki modre\
 Ledwie stuliła, z rzęsów pobiegły łzy szczodre;\
