@@ -1,3 +1,4 @@
+Językiem swoim, tudzież wzrostem i postacią.\
 Czysta krew lacka, wszyscy mieli czarne włosy,\
 Wysokie czoła, czarne oczy, orle nosy;\
 Z Dobrzyńskiej ziemi ród swój starożytny wiedli,\
