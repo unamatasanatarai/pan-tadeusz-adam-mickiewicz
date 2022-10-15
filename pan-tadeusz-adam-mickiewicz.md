@@ -1,3 +1,4 @@
+Tadeusz go zasłania. Ledwie zdołał Ryków\
 Zrejterować się i wpaść we środek swych szyków.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Znowu Dobrzyńscy z Litwą natarli w zawody,\
