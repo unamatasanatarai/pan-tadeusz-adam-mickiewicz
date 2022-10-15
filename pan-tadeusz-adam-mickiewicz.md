@@ -1,3 +1,4 @@
+I już się rzadko który zza ściany wykradał.\
 Stolnik, widząc strwożone swe nieprzyjaciele,\
 Myślił zrobić wycieczkę, porwał karabelę\
 I z ganku krzycząc sługom wydawał rozkazy;\
