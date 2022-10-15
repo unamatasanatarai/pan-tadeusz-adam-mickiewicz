@@ -1,3 +1,4 @@
+Wesołe, lecz w porządku. Naprzód dzieci małe\
 Z dozorcą, potem Sędzia szedł z Podkomorzyną,\
 Obok pan Podkomorzy otoczon rodziną;\
 Panny tuż za starszymi, a młodzież na boku;\
