@@ -1,3 +1,4 @@
+On był żoną i dzieckiem; z mojego objęcia\
 Nigdy on nie wychodził; od rana do mroku\
 Pieściłem go, on w nocy sypiał przy mym boku;\
 A kiedym się zestarzał, nad łóżkiem na ścianie\
