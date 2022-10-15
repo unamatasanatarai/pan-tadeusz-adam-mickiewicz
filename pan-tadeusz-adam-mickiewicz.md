@@ -1,3 +1,4 @@
+Pozdrowił swych dowódców przez ukłon wojskowy;\
 Zofija z opuszczonym ku ziemi wejrzeniem,\
 Zapłoniwszy się, gości witała dygnieniem\
 (Od Telimeny pięknie dygać wyuczona).\
