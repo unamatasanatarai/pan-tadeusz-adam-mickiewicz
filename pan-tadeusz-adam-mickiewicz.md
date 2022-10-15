@@ -1,3 +1,4 @@
+Pod nim błyszczała w kratach reszta szyb wybitych,\
 Łamiąc promienie wschodu w tęczach rozmaitych;\
 Niższe piętra oblała tumanu powłoka,\
 Rozpadliny i szczerby zakryła od oka;\
