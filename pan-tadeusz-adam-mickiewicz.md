@@ -1,3 +1,4 @@
+Składała snop wiosenny dla Boga Rodzicy.\
 Użęła znów dla gości nowy snopek ziela;\
 Jedną ręką zeń kwiaty i trawy rozdziela,\
 Drugą swój sierp błyszczący poprawia na głowie.\
