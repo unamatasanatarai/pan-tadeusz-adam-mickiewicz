@@ -1,3 +1,4 @@
+Cieszą się z niezwyczajnej ich lekkości woły.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie z lasu wracało towarzystwo całe,\
 Wesołe, lecz w porządku. Naprzód dzieci małe\
