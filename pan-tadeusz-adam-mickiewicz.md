@@ -1,3 +1,4 @@
+*Cios kradziony* i tempy *kontrpunktów, tercetów,*\
 Które też umiał, bo był ze szkoły kadetów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy śmiejąc się fechtował, Rębajło już klęczał,\
