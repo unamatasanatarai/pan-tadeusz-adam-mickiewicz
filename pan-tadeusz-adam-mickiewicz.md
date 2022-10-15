@@ -1,3 +1,4 @@
+Kościuszki, świat takiego nie miał genijusza\
 Wojennego, jak wielki cesarz Bonaparte.\
 Pamiętam, kiedy przeszli Francuzi przez Wartę;\
 Bawiłem za granicą wtenczas, w roku pańskim\
