@@ -1,3 +1,4 @@
+Chłodził się wiatrem, surdut wdział na jedno ramię,\
 Drugi rękaw i poły u szyi sfałdował\
 I pierś surdutem, jakby płaszczem udrapował.\
 Gerwazy chodził kroki wielkimi po sali;\
