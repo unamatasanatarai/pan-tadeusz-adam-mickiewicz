@@ -1,3 +1,4 @@
+Bitwa! i batalijon tak jakoś zmarnował.\
 Wy, pany, tylko śledztwo pomazujcie złotem,\
 Będzie kręcić się. Ale teraz powiem o tem,\
 Co już mówiłem temu szlachcicu, co długi\
