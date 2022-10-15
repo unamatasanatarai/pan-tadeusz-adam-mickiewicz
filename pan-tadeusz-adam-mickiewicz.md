@@ -1,3 +1,4 @@
+Okrutniku, nas pierwej musisz zamordować!»\
 Padła zemdlona. Hrabia skoczył ją ratować,\
 Zadziwiony i nieco zmieszany tą sceną:\
 «Panno Zofio — rzecze — pani Telimeno!\
