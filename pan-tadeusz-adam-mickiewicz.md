@@ -1,3 +1,4 @@
+Widząc że w tylu szlachty, w tylu panów gronie,\
 Mają sądzić się spory o charcim ogonie?\
 Cóż by rzekł na to stary Rejtan, gdyby ożył?\
 Wróciłby do Lachowicz i w grób się położył!\
