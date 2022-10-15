@@ -1,3 +1,4 @@
+Trafisz w głębi na wielki wał pniów, kłód, korzeni,\
 Obronny trzęsawicą, tysiącem strumieni\
 I siecią zielsk zarosłych, i kopcami mrowisk,\
 Gniazdami os, szerszeniów, kłębami wężowisk.\
