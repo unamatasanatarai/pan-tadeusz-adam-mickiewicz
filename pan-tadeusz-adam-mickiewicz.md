@@ -1,3 +1,4 @@
+A z tyłu, pospolicie stykając się z chmielem,\
 Kryje atak i odwrót przed nieprzyjacielem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Protazy, choć człek śmiały, uczuł nieco strachu:\
