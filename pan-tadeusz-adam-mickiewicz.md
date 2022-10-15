@@ -1,3 +1,4 @@
+Z tego to miasta Wilna, jak z rzymskiej wilczycy,\
 Wyszedł Kiejstut i Olgierd, i Olgierdowicy,\
 Równie myśliwi wielcy jak sławni rycerze,\
 Czyli wroga ścigali, czyli dzikie źwierzę.\
