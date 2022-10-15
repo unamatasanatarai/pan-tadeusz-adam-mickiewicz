@@ -1,3 +1,4 @@
+Przywiódł mu sześćset zbrojnej szlachty. Dziś rodzina\
 Zmniejszona, zubożała. Dawniej w pańskich dworach\
 Lub wojsku, na zajazdach, sejmikowych zborach,\
 Zwykli byli Dobrzyńscy żyć o łatwym chlebie:\
