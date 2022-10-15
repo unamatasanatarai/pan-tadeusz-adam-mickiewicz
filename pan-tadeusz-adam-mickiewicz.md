@@ -1,3 +1,4 @@
+Ojca Podkomorzego, mościwego pana\
 (Mówiąc, Podkomorzemu ścisnął za kolana);\
 On mnie radą do usług publicznych sposobił,\
 Z opieki nie wypuścił, aż człowiekiem zrobił.\
