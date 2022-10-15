@@ -1,3 +1,4 @@
+Robak palcem po nosie dawał mu znak groźby:\
 Lecz mimo Tadeusza pytania i prośby,\
 Ażeby mu wyraźnie, co chce, wytłumaczył,\
 Bernardyn odpowiedzieć ni spojrzeć nie raczył;\
