@@ -1,3 +1,4 @@
+Tylko zgódźcie się: dalbóg, pobijem na druzgi\
 Moskala; Brzytew idzie pod komendę Rózgi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Komenda — przerwał Chrzciciel — dobra ku paradzie;\
