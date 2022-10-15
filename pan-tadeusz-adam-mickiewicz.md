@@ -1,3 +1,4 @@
+Jako flisy uwięzłą na rapach wicinę\
 Długimi drągi z brzegu pędzą na głębinę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Trzasnął słup: już sernica chwieje się i wali\
