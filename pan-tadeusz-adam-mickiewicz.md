@@ -1,3 +1,4 @@
+Bo wszakże zdarzało się już nieraz na świecie,\
 Że kto pokochał pańskie lub królewskie dziecię,\
 Starał się gwałtem zdobyć, przemyślał wykradać,\
 Mścił się otwarcie — ale tak chytrze śmierć zadać,\
