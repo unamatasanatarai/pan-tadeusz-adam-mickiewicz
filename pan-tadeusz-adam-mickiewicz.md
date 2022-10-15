@@ -1,3 +1,4 @@
+Jeśli Jenerał każe, to go tu przywiedziem».\
 «Jest — rzekł porucznik — kilku innych rodem z Litwy,\
 Jeden żołnierz znajomy pod imieniem Brzytwy\
 I drugi co z tromblonem jeździ na flankiery;\
