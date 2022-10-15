@@ -1,3 +1,4 @@
+Usta trafem ku skroniom Telimeny zbliżył —\
 W tak przyjaznej postawie, choć nic nie mówili\
 O rannych kłótniach swoich, przecież się zgodzili;\
 I nie wiedzieć, jak długo trwałaby rozmowa,\
