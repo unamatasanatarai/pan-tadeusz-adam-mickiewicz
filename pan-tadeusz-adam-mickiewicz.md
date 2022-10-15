@@ -1,3 +1,4 @@
+Jedne wnet odgwożdżono, a drugie ochoczo\
 Szlachta, gęsta jak mrowie, porywają, toczą\
 Do zamku; tam na nocleg cały tłum się zbiera,\
 Tam założona główna Hrabiego kwatera.
