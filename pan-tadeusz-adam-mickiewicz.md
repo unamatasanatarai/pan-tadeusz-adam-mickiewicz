@@ -1,3 +1,4 @@
+I teraz? Biedny chłopiec, jeszcze się nie dowie\
 O niczym przed odjazdem?...» «Nie — rzekł ksiądz — o niczym\
 (Płacząc długo z zakrytym rękami obliczem).\
 I po cóż by miał wiedzieć biedny, że ma ojca,\
