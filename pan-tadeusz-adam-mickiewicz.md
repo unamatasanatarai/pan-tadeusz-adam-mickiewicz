@@ -1,3 +1,4 @@
+Między kurami. Młody Sak wpadł do kurniku\
 I z drabinek, stryczkami łowiąc, ciągnie z góry\
 Kogutki i szurpate, i czubate kury,\
 Jedne po drugich dusi i składa do kupy,\
