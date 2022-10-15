@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A ksiądz zaczął swą dawną z Horeszką zażyłość\
 Opowiadać i swoją z jego córką miłość,\
 I swe z tego powodu z Stolnikiem zatargi.\
