@@ -1,3 +1,4 @@
+Więc za młodzieńcem kroki szybkimi pośpieszał\
 Do wielkiej puszczy, która, jako oko sięga,\
 Czerniła się na całym brzegu widnokręga.
 
