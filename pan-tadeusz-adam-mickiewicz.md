@@ -1,3 +1,4 @@
+Starzec, wiek przegwarzywszy, chciał spoczywać w gwarze;\
 Milczenie go budziło ze snu: tak młynarze,\
 Uśpieni kół turkotem, ledwie staną osie,\
 Budzą się krzycząc z trwogą: «A słowo stało się...»
