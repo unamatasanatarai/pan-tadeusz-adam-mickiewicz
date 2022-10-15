@@ -1,3 +1,4 @@
+Obaczym, czyli jesteś tak strasznym rycerzem:\
 Rozprawimy się jutro, plac i broń wybierzem;\
 Dziś uchodź, pókiś cały».
 
