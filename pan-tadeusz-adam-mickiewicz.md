@@ -1,3 +1,4 @@
+Jeżeli nie oddychał powietrzem zamkowym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Skoro ujrzał Hrabiego, czapkę z głowy schwycił,\
 I krewnego swych panów ukłonem zaszczycił,\
