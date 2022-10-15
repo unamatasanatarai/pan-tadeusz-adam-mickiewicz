@@ -1,3 +1,4 @@
+U mnie jest kapitański mój żołd lada jaki,\
 A dosyć mnie na ponczyk i lulkę tabaki.\
 A was lubię, że z wami sobie zjem, popiję,\
 Pohulam, pogawędzę, i tak sobie żyję.\
