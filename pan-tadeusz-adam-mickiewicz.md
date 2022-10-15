@@ -1,3 +1,4 @@
+Kogutki i szurpate, i czubate kury,\
 Jedne po drugich dusi i składa do kupy,\
 Ptastwo piękne, karmione perłowymi krupy.\
 Niebaczny Saku, jakiż zapał cię unosi!\
