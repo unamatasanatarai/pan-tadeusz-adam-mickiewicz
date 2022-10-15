@@ -1,3 +1,4 @@
+Depcąc, świszcząc i klaszcząc, bardzo zwierza trwoży;\
 Szczwacze, trzymając każdy charta na obroży,\
 Ukazują palcami, skąd zając wyruszy,\
 Cmokają z cicha; charty nadstawiły uszy,\
