@@ -1,3 +1,4 @@
+W jakim duchu? to pierwsze żywotne pytanie;\
 Drugie, rewolucyjnej władzy się dotycze:\
 Podział jest trafny, tylko przewrócić go życzę.\
 Naprzód zacząć od władzy: skoro pojmiem władzę,\
