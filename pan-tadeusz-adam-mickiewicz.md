@@ -1,3 +1,4 @@
+Sędzia, zostawszy jeden, siadł w krześle i płakał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chwilę czekał Tadeusz, nim w klamkę zadzwonił;\
 Otworzono mu, cicho wszedł, nisko się skłonił:\
