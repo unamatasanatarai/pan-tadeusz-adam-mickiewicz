@@ -1,3 +1,4 @@
+Trzeciego, był pod Wiedniem w chorągwi hetmana\
 Jabłonowskiego. Owóż, ów kanclerz powiadał,\
 Że właśnie kiedy na koń król Jan Trzeci siadał,\
 Gdy nuncyjusz papieski żegnał go na drogę,\
