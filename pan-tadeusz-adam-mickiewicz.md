@@ -1,3 +1,4 @@
+Nim Tadeusz rozeznać mógł, co się z nim dzieje,\
 Już go chwycili. Biegą do dworu, w podwórze\
 Wpadają. Dwór budzi się, psy w hałas, w krzyk stróże.\
 Wyskoczył wpół ubrany Sędzia; widzi zgraję\
