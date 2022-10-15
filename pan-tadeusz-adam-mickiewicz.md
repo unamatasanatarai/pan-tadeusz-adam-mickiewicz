@@ -1,3 +1,4 @@
+Sterują się po łące, a gdzieniegdzie z góry\
 Upada jak kiść śniegu gołąb srebrnopióry.\
 W pośrodku zielonego okręgu murawy,\
 Ściska się okrąg ptastwa, krzykliwy, ruchawy,\
