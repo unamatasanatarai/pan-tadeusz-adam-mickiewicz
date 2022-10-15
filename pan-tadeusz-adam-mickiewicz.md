@@ -1,3 +1,4 @@
+Pełen bukietów trawy angielskiej i mięty.\
 Drewniany, drobny, w cyfrę powiązany płotek\
 Połyskał się wstążkami jaskrawych stokrotek;\
 Grządki, widać, że były świeżo polewane,\
