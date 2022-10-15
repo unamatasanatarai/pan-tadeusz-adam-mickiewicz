@@ -1,3 +1,4 @@
+Wznosi się nad tumany jako sęp nad chmury.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Woźny już dawniej wyszedł ku domowi Hrabi.\
 Jak lis bywalec, gdy go woń słoniny wabi,\
