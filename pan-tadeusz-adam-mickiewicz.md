@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Plany Robaka pojął i wykonał cudnie\
 Tadeusz. Stał ukryty za drewnianą studnię;\
 A że trzeźwy i dobrze strzelał z dubeltówki\
 (Mógł trafić do rzuconej w powietrze złotówki),\
