@@ -1,3 +1,4 @@
+Skargę przeciw Hrabiemu głośno odczytywa:\
 O skrzywdzenie honoru, zelżywe wyrazy,\
 Zaś przeciw Gerwazemu o gwałty i razy;\
 Obudwu, o przechwałki, o koszta z powodu\
