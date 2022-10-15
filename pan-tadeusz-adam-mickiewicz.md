@@ -1,3 +1,4 @@
+I ogromną swą trąbą otrębuje burzę.\
 Aż z całym tym chaosem wody i kurzawy,\
 Słomy, liścia, gałęzi, wydartej murawy,\
 Wichry w las uderzyły i po głębiach puszczy\
