@@ -1,3 +1,4 @@
+Pierwszy wleciałem w tabor, więźnia uwolniłem.\
 Ach, mój Gerwazy! jaki to był tryumfalny,\
 Jaki piękny nasz powrót, rycersko-feudalny!\
 Lud z kwiatami spotykał nas; córka książęcia,\
