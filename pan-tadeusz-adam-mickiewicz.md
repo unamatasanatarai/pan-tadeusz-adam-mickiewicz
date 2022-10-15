@@ -1,3 +1,4 @@
+W szkarłaty, i po suknie nieraz dobrze stuknie,\
 I po płótnie tak utnie jak i po kapturze,\
 I po fryzurze równie jak i po mundurze.\
 Śmierć matula, powiada Baka, jak cebula,\
