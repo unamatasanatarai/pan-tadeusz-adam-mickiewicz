@@ -1,3 +1,4 @@
+I słychać bydła w pole idącego ryki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wstała młodzież. Tadeusz jeszcze senny leży;\
 Bo też najpóźniej zasnął. Z wczorajszej wieczerzy\
