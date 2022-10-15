@@ -1,3 +1,4 @@
+I chcą, by się ożenił, aby pojął Zosię,\
 Wychowankę waćpani. Oboje dostaną,\
 Oprócz fortunki mojej, z łaski Jacka wiano\
 W kapitałach; wiesz aśćka, że ma kapitały,\
