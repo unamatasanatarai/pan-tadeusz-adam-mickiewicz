@@ -1,3 +1,4 @@
+I z wolna w tabakierę palcami zadzwonił.\
 Tabakiera ze złota, z brylantów oprawa,\
 A w środku jej był portret króla Stanisława.\
 Ojcu Podkomorzego sam król ją darował,\
