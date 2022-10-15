@@ -1,3 +1,4 @@
+Który tak o me szczęście ustawnie się trudzi!\
 Ach dobry stryju, byłbym najszczęśliwszy z ludzi,\
 Gdyby mi Zosia była dzisiaj zaręczona,\
 Gdybym wiedział że to jest moja przyszła żona.\
