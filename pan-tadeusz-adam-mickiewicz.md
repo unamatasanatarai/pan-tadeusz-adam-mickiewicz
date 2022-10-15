@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Zofijo, musisz to mnie koniecznie powiedzieć,\
 Nim zamienim pierścionki, muszę o tym wiedzieć.\
 I cóż, że przeszłej zimy byłaś już gotowa\
