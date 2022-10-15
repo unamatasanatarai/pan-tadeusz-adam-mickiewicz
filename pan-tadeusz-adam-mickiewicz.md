@@ -1,3 +1,4 @@
+Do domu niewpuszczeni biegą do folwarków,\
 Do kuchni. Gdy do kuchni weszli, widok garków,\
 Ogień ledwie zagasły, potraw zapach świeży,\
 Chrupanie psów gryzących ostatki wieczerzy,\
