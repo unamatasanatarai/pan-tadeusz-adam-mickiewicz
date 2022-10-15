@@ -1,3 +1,4 @@
+Czy diabeł, ja z waszmością nie będę się kłócić:\
 Panie Buchman, gadaj Waść, jakby cara zrzucić».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tu sęk — krzyknął Kropiciel — gdybym mógł podskoczyć\
