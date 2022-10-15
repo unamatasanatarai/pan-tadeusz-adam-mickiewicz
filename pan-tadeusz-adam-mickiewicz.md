@@ -1,3 +1,4 @@
+I dawnych panów, lepszych od siebie, rujnować?\
 A Horeszków i pamięć i imię zaginie!\
 Gdzież jest wdzięczność na świecie? Nie ma jej w Dobrzynie!\
 Bracia! chcecie bój z ruskim wieść imperatorem,\
