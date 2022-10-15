@@ -1,3 +1,4 @@
+Zasłania starca, na krzyż rozpiąwszy rączęta.\
 Wstrzymali się; Gerwazy z wolna ustępował,\
 Zniknął z oczu, szukano, gdzie się pod stół schował:\
 Gdy nagle, z drugiej strony, wyszedł jak spod ziemi,\
