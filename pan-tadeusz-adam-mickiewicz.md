@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Usłyszała wołanie: «Zosiu!» To głos cioci!\
 Sypnęła razem ptastwu ostatek łakoci,\
 A sama kręcąc sito, jako tanecznica\
 Bębenek, i w takt bijąc, swawolna dziewica\
