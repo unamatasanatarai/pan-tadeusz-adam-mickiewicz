@@ -1,3 +1,4 @@
+Poznał Stolnika; zaczął wkoło siebie żegnać,\
 I ażeby tym pewniej straszne sny rozegnać,\
 Odmawiał litaniją o czyscowych duszach.\
 Znowu wzrok mu skleił się, zadzwoniło w uszach —\
