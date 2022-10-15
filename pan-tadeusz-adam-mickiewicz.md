@@ -1,3 +1,4 @@
+Rzekł Klucznik — stąd przyciąga, a stamtąd car ruski:\
 Więc wojna; car z cesarzem, królowie z królami\
 Pójdą za łby, jak zwykle między monarchami.\
 A nam czy siedzieć cicho? Gdy wielki wielkiego\
