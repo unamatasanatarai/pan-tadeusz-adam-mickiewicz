@@ -1,3 +1,4 @@
+Szczęściem, nadjechał właśnie z wizytą Kiryło\
 Gawrylicz Kozodusin, wielki łowczy dworu.\
 Pyta się o przyczynę tak złego humoru,\
 Każe wnet urzędnika przyciągnąć za uszy;\
