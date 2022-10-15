@@ -1,3 +1,4 @@
+Mazurka; potem kaszkiet na uszy nacisnął\
 I szedł w obóz, gdzie stała przy armatach warta;\
 Tam dla rozerwania się zaczął grać w drużbarta\
 Z wiarusami, kielichem osładzając żałość.\
