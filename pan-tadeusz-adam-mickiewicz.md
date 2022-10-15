@@ -1,3 +1,4 @@
+Jest świąt, na każde święto Francuzów nam wróżą:\
 Wygląda człek, wygląda, aż się oczy mrużą;\
 A Moskal jak nas trzymał, tak trzyma za szyję.\
 Pono nim słońce wnidzie, rosa oczy wyje».
