@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Toć i Bartka — rzekł Brzytwa — bracia nie odpędzą;\
 Już co wy namydlicie, to ja wszystko zgolę».\
 «I ja — przydał Konewka — z wami ruszyć wolę,\
 Gdy ich nie można zgodzić na obiór marszałka;\
