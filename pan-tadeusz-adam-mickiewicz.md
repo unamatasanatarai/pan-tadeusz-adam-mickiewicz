@@ -1,3 +1,4 @@
+Wszak to me zaręczyny: zagrajże Jankielu!\
 Wszak nie raz przyrzekałeś grać na mym weselu?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jankiel niezmiernie Zosię lubił: kiwnął brodą\
