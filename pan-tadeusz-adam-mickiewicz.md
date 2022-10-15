@@ -1,3 +1,4 @@
+I utrzymywał, że on zająca pochwycił;\
 Asesor zaś dowodził na złość Rejentowi,\
 Że ta chwała należy chartu Sokołowi.\
 Pytano zdania innych; więc wszyscy dokoła\
