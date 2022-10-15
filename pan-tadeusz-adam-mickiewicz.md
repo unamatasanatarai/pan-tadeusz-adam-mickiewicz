@@ -1,3 +1,4 @@
+Narodowym, choć naród okrzyczy cię zdrajcą!\
 Zwłaszcza, w kim taka, jaka była we mnie duma!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Imię zdrajcy przylgnęło do mnie jako dżuma.\
