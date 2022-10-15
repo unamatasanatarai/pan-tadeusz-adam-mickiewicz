@@ -1,3 +1,4 @@
+(Tu podniósł flintę starą, obwiązaną w sznurki),\
 Lecz nie ja wystrzeliłem. O, trzeba tam było\
 Odwagi; straszno wspomnieć, w oczach mi się ćmiło!\
 Bo prosto biegli ku mnie oba paniczowie,\
