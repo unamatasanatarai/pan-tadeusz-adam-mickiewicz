@@ -1,3 +1,4 @@
+Choć idą z Jagiellonów krwi, lecz do myślistwa\
 Nie są bardzo pochopni, pewno nie z lenistwa,\
 Lecz z gustów cudzoziemskich; i książę jenerał\
 Częściej do książek niźli do psiarni zazierał\
