@@ -1,3 +1,4 @@
+I oblicze różane i żywe wejrzenie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poznał ją zaraz Hrabia. Z zadziwienia blady\
 Wstał od stołu i szukał koło siebie szpady:\
