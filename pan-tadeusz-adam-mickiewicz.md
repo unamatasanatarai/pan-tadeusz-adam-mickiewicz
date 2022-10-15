@@ -1,3 +1,4 @@
+Z niej powstania istotę, duch, cel, wyprowadzę.\
 Co do władzy więc — kiedy oczyma przebiegam\
 Dzieje całej ludzkości, i cóż w nich spostrzegam?\
 Oto, ród ludzki dziki, w lasach rozpierzchniony,\
