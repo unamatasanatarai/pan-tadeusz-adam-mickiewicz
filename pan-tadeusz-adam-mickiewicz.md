@@ -1,3 +1,4 @@
+Wracała, wstrzymując się, lecz musiała wrócić,\
 Jak niechętny duch, wróżka przyzwany zaklęciem,\
 Przybiegła z najkrzykliwszym bawić się dziecięciem,\
 Siadła przy nim na ziemi, wzięła je na łono;\
