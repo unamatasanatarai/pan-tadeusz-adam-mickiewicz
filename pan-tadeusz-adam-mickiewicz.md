@@ -1,3 +1,4 @@
+Gdzieś w Sybir wywieziona, tam umarła młodo;\
 Zostawiła tę w kraju córkę, małą Zosię;\
 Kazałem ją hodować...
 
