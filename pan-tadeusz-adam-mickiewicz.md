@@ -1,3 +1,4 @@
+Ku oczom chłopca; dalej panny rwały kwiatki\
 Po ogrodzie, umyślnie odwracając głowy\
 Od kochanków, żeby im nie mieszać rozmowy.
 
