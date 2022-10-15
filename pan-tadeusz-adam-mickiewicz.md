@@ -1,3 +1,4 @@
+Wtem nagle rozeszła się wieść o strasznej bitwie.\
 Przybiegł do nas posłaniec od pana Towdena:\
 Grabowski list przeczytał, krzyknął: «Jena! Jena!\
 Zbito Prusaków na łeb, na szyję, wygrana!»\
