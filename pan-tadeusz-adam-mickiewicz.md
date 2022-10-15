@@ -1,3 +1,4 @@
+«Scyzoryk — rzecze Wojski — choć nie egzulował,\
 Ale bojąc się śledztwa, przed Moskwą się schował,\
 Całą zimę nieborak tułał się po lasach,\
 Teraz dopiero wyszedł. W tych wojennych czasach\
