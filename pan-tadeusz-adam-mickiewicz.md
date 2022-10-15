@@ -1,3 +1,4 @@
+Kibić miała wysmukłą, kształtną, pierś powabną,\
 Suknię materyjalną, różową, jedwabną,\
 Gors wycięty, kołnierzyk z koronek, rękawki\
 Krótkie; w ręku kręciła wachlarz dla zabawki\
