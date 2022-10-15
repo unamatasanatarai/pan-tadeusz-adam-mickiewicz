@@ -1,3 +1,4 @@
+Używać na wsi długo wzbronionej swobody;\
 Wiedział, że był przystojny, czuł się rześki, młody,\
 A w spadku po rodzicach wziął czerstwość i zdrowie.\
 Nazywał się Soplica: wszyscy Soplicowie\
