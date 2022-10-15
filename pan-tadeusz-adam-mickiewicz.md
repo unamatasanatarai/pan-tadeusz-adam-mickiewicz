@@ -1,3 +1,4 @@
+Jak ów Wespazyjanus nie wąchał pieniędzy\
 I nie chciał wiedzieć, skąd są, z jakich rąk i krajów,\
 Tak nie chcą znać człowieka rodu, obyczajów!\
 Dość, że ważny i że się stempel na nim widzi,\
