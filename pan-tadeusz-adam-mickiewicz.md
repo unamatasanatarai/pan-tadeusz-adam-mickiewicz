@@ -1,3 +1,4 @@
+Dostają krzywych karków, rozpuszczają grzywy,\
 Wysuwają nóg rzędy i po niebios sklepie\
 Przelatują jak tabun rumaków po stepie:\
 Wszystkie białe jak srebro, zmieszały się... nagle\
