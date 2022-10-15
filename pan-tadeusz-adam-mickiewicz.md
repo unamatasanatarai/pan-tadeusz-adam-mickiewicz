@@ -1,3 +1,4 @@
+Połyskał się wstążkami jaskrawych stokrotek;\
 Grządki, widać, że były świeżo polewane,\
 Tuż stało wody pełne naczynie blaszane,\
 Ale nigdzie nie widać było ogrodniczki;\
