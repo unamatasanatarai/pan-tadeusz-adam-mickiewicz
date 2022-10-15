@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wojski, cicho siedzący z przymrużonym okiem,\
 Zdawał się pogrążony w dumaniu głębokiem.\
 Dopiero, gdy się Hrabia z Podkomorzym skłócił:\
 I Sędziemu pogroził, Wojski głowę zwrócił,\
