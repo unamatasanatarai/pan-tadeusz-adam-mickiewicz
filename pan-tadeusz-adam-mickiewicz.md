@@ -1,3 +1,4 @@
+Pośpieszymy obadwa na miecze, na groty;\
 Walczmy z sobą stałością, żalem i cierpieniem,\
 A wrogów naszych mężnym ścigajmy ramieniem».\
 Rzekł, na Telimenę spojrzał, ale ona\
