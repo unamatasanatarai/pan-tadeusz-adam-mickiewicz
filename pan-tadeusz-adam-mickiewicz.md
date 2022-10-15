@@ -1,3 +1,4 @@
+Wiedz Zosiu, że kto rośnie na widoku ludzi,\
 Choć piękny, choć rozumny, efektów nie wzbudzi,\
 Gdy go wszyscy przywykną widzieć od maleńka;\
 Lecz niechaj ukształcona, dorosła panienka,\
