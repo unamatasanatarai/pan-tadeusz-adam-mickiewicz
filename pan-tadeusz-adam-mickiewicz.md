@@ -1,3 +1,4 @@
+Szum wielki słychać wkoło; nawet te codzienne,\
 Patrzcie państwo, te białe chmurki, jak odmienne!\
 Zrazu jak stada dzikich gęsi lub łabędzi,\
 A z tyłu wiatr jak sokół do kupy je pędzi:\
