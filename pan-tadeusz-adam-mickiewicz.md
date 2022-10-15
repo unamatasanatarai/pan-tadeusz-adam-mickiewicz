@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ale je wnet podnieśli, bo mistrz tony wznosi,\
 Natęża, takty zmienia: coś innego głosi.\
 I znowu spójrzał z góry, okiem struny zmierzył,\
