@@ -1,3 +1,4 @@
+Okręcił się jak wiatrak, oczyścił pół sieni,\
 Wziął Hrabię; i tak oba, ławą zasłonieni,\
 Cofali się ku drzwiczkom; już dochodzą progów:\
 Gerwazy stanął, jeszcze raz spojrzał na wrogów.\
