@@ -1,3 +1,4 @@
+I kończył rzecz przerwaną: «Na czym więc stanąłem?\
 Aha! na tym, że obu za słowo ująłem,\
 Iż będą strzelali się przez niedźwiedzią skórę...\
 Szlachta w krzyk: »To śmierć pewna! Prawie rura w rurę!«\
