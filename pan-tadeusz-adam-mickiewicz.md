@@ -1,3 +1,4 @@
+Gdy inna szlachta była, zwyczajem powstania,\
 Burzliwa i niezmiernie skora do wieszania.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia miał czas ostygnąć z zapału i gniewu,\
