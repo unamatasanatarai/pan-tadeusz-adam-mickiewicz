@@ -1,3 +1,4 @@
+I okiem łowił wszystkie jej wzroku promienie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem pomiędzy ich usta mignęła znienacka\
 Naprzód mucha, a za nią tuż Wojskiego placka.
