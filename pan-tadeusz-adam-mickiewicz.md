@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Co potem dokazywał, jakie klęski szerzył,\
 Daremnie śpiewać: nikt by muzie nie uwierzył;\
 Jak nie wierzono w Wilnie ubogiej kobiécie,\
 Która stojąc na świętej Ostrej Bramy szczycie,\
