@@ -1,3 +1,4 @@
+Z nami kwita, — zostawmy resztę Panu Bogu».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jacek rękę wyciągnął, — cofnął się Gerwazy,\
 «Nie mogę — rzekł — bez mego szlachectwa obrazy\
