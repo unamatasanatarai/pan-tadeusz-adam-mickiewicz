@@ -1,3 +1,4 @@
+I często zarywał się:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wszak sam wiesz, Gerwazeńku, jak Stolnik zapraszał\
 Często mnie na biesiady, zdrowie moje wnaszał,\
