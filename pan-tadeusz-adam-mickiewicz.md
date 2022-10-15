@@ -1,3 +1,4 @@
+Ledwie będzie gotowa na godzinę czwartą.
 
 
 
