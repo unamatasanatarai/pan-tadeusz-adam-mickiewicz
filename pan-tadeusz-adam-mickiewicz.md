@@ -1,3 +1,4 @@
+Co to było, nie wiedział, ale miał przeczucie,\
 Że to był Hrabia w długim, angielskim surducie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wieczerzano w zamczysku. Uparty Protazy,\
