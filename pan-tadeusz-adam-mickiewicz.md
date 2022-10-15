@@ -1,3 +1,4 @@
+Bronią się; bieży Klucznik, oni stoją śmiele,\
 Dziewięć rur wymierzyli prosto w łeb Klucznika;\
 On leci na strzał, kręcąc ostrze Scyzoryka.\
 Widzi to ksiądz: zabiega Klucznikowi drogę,\
