@@ -1,3 +1,4 @@
+Byłem sierżantem — wysiekł mój pluton kosami:\
 I cóż stąd? To ja znowu u Maciejowiców\
 Zabiłem własnym sztykiem dwóch dzielnych szlachciców:\
 Jeden był Mokronowski, szedł z kosą przed frontem,\
