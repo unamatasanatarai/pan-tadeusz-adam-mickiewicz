@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nigdy się odpowiedzi takiej nie spodziewał\
 Podkomorzy. Właśnie swój kieliszek nalewał;\
 Gdy zuchwalstwem Hrabiego rażony jak gromem,\
 Oparłszy się o kielich butlem nieruchomym,\
