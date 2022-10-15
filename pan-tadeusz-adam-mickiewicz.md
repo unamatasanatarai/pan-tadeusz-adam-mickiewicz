@@ -1,3 +1,4 @@
+Ci spać do domu, tamci w stodole na sianie;\
 Sędzia szedł podróżnemu dawać posłuchanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Inni już śpią. Tadeusz po sieniach się zwija,\
