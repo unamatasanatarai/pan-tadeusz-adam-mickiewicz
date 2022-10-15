@@ -1,3 +1,4 @@
+Runie nań z góry jako gwiazda spadająca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedyż nam Pan Bóg wrócić z wędrówki dozwoli,\
 I znowu dom zamieszkać na ojczystej roli,\
