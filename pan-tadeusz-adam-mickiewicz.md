@@ -1,3 +1,4 @@
+Starzy Litwini wiedzą o rydwanie owym,\
 Że niesłusznie pospólstwo zwie go Dawidowym:\
 Gdyż to jest wóz Anielski. Na nim to przed czasy\
 Jechał Lucyper, Boga gdy wyzwał w zapasy,\
