@@ -1,3 +1,4 @@
+Nigdy jeden drugiemu nie zachodzić w drogę,\
 Nigdy we dwóch nie strzelać do jednej źwierzyny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie Wojski wymawiał to słowo: *źwierzyny*,\
