@@ -1,3 +1,4 @@
+Pytając komu serwis ustawiać rozkaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski odszedł, a starcy zaczerpnąwszy miodu,\
 Zadumani zwrócili oczy w głąb ogrodu,\
