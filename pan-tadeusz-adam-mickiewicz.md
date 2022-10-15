@@ -1,3 +1,4 @@
+«Na twój honor! — krzyknęła przeraźliwym głosem,\
 Z głową w tył wychyloną, z rozpuszczonym włosem —\
 Przez wszystko co jest świętym, na klęczkach błagamy!\
 Hrabio, śmieszże odmówić? proszą ciebie damy;\
