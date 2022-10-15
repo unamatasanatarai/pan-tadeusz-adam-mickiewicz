@@ -1,3 +1,4 @@
+Stąd się zbogacił i on, i jego rodzina,\
 Ba, nawet wszyscy, ilu was tu jest z Dobrzyna.\
 Bo pamiętacie starzy, słyszeliście młodzi,\
 Że Stolnik był was wszystkich ojciec i dobrodziéj:\
