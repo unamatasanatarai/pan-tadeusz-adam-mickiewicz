@@ -1,3 +1,4 @@
+I bekając raz po raz, jak w bębenki biją.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na finał szmerów muszych i ptaszęcej wrzawy\
 Odezwały się chórem podwójnym dwa stawy:\
