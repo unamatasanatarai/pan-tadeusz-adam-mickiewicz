@@ -1,3 +1,4 @@
+Każdy ptak chłopcu jedno pióro rzucił:\
 On zrobił skrzydła i do swoich wrócił...
 
 &nbsp;&nbsp;&nbsp;&nbsp;O, gdybym kiedyś dożył tej pociechy,\
