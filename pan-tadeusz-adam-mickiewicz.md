@@ -1,3 +1,4 @@
+I krwią Horeszków; w panu krew Horeszków płynie,\
 Jesteś krewnym Stolnika, po matce łowczynie,\
 Która się rodzi z drugiej córki kasztelana,\
 Który był, jak wiadomo, wujem mego pana.\
