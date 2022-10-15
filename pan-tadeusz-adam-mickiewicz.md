@@ -1,3 +1,4 @@
+I żądają, ażeby Polskę przywrócono.\
 Tymczasem, bracie, z Hrabią trzeba przyjść do zgody.\
 Jest to dziwak, fantastyk trochę, ale młody,\
 Poczciwy, dobry Polak: potrzebny nam taki.\
