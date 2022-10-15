@@ -1,3 +1,4 @@
+Drugi rękaw i poły u szyi sfałdował\
 I pierś surdutem, jakby płaszczem udrapował.\
 Gerwazy chodził kroki wielkimi po sali;\
 Obadwa zamyśleni, do siebie gadali:\
