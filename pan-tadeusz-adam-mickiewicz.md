@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jacek, słuchając, cicho odmówił modlitwy;\
 Przycisnąwszy do piersi święconą gromnicę,\
 Podniósł w niebo zatlone nadzieją źrenice,\
