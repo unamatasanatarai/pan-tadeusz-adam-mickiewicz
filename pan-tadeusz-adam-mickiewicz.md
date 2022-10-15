@@ -1,3 +1,4 @@
+I kiwając głowami w dwie przeciwne strony,\
 Tamci: «Nie pozwalamy!» — ci krzyczą: «Prosiemy!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Maciek stary w pośrodku jeden siedział niemy,\
