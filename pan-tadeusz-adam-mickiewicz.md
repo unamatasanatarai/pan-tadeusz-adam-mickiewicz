@@ -1,3 +1,4 @@
+Psów goniących zająca, lisa albo łanie;\
 Lecz wciąż wrzask krótki, częsty, ucinany, zjadły;\
 To nie na ślad daleki ogary napadły:\
 Na oko gonią. Nagle ustał krzyk pogoni,\
