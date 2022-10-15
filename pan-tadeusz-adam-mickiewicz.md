@@ -1,3 +1,4 @@
+Która jako wieśniaczka, kiedy płacze syna,\
 Lub wdowa męża, ręce załamie, roztoczy\
 Po ramionach do ziemi strumienie warkoczy!\
 Niema z żalu, postawą jak wymownie szlocha!\
