@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wszyscy odgadli, że to wjazd księdza kwestarza.\
 Więc pan Sędzia, powinność znając gospodarza,\
 Stał w progu witać gościa. Ksiądz na pierwszej bryce\
 Jechał, kapturem na wpół zasłoniwszy lice,\
