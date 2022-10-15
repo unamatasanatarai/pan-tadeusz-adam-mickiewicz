@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ale rzeź najstraszniejsza, chociaż najmniej krzyku,\
 Między kurami. Młody Sak wpadł do kurniku\
 I z drabinek, stryczkami łowiąc, ciągnie z góry\
 Kogutki i szurpate, i czubate kury,\
