@@ -1,3 +1,4 @@
+Krzycząc: «Stój! głupstwo! kochaj czy nie! żeń się sobie\
 Czy jedź! tylko stój!» Ale on już szybkim biegiem\
 Wyprzedził ją daleko; już stanął nad brzegiem.
 
