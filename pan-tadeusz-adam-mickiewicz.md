@@ -1,3 +1,4 @@
+Po ojcu Podkomorzy godnie ją piastował;\
 Gdy w nią dzwonił, znak dawał, że miał głos zabierać.\
 Umilkli wszyscy i ust nie śmieli otwierać.\
 On rzekł: «Wielmożni szlachta bracia dobrodzieje,\
