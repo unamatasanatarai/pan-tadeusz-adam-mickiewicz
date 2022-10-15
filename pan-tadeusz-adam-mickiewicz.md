@@ -1,3 +1,4 @@
+Chwyta w lot migające orzechy dziewczyna.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem, usłyszeli odgłos rogów i psów granie:\
 Zgadują, że się ku nim zbliża polowanie,\
