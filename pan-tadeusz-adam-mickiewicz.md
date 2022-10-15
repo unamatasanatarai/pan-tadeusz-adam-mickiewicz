@@ -1,3 +1,4 @@
+«Majorze! jeśli jesteś tak śmiałym rycerzem,\
 A czegoż ty się chowasz za jegrów kołnierzem?\
 Nie tchórzę ja przed tobą: wynidź no zza płotów;\
 Dostałeś w twarz, jam przecie bić się z tobą gotów!\
