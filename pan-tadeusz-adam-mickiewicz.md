@@ -1,3 +1,4 @@
+Spędzić szlachtę z dziedzińca i dworem owładać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Formuj się do ataku! — zawołał — na sztyki!\
 Naprzód!» Wnet szereg rury wytknąwszy jak tyki,\
