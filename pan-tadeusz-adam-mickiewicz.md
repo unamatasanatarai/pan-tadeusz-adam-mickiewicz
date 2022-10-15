@@ -1,3 +1,4 @@
+Syna, który by zemstę poprzysiągł na grobie!\
 Ale miał sługi wierne. Ja w krew jego rany\
 Obmoczyłem mój rapier Scyzorykiem zwany\
 (Zapewne pan o moim słyszał Scyzoryku,\
