@@ -1,3 +1,4 @@
+Tyle w pieśniach litewskich sławione *lisice*,\
 Co są godłem panieństwa: bo czerw ich nie zjada,\
 I dziwna, żaden owad na nich nie usiada.\
 Panienki za wysmukłym gonią *borowikiem*,\
