@@ -1,3 +1,4 @@
+Napełnił wnet, ożywił knieje i dąbrowy,\
 Jakby psiarnię w nie wpuścił i rozpoczął łowy.\
 Bo w graniu była łowów historyja krótka:\
 Zrazu odzew dźwięczący, rześki — to pobudka;\
