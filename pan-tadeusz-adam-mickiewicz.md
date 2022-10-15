@@ -1,3 +1,4 @@
+I pieśniami, bo biegle i uczenie śpiewał.\
 Chociaż Żyd, dosyć czystą miał polską wymowę,\
 Szczególniej zaś polubił pieśni narodowe;\
 Przywoził mnóstwo z każdej za Niemen wyprawy,\
