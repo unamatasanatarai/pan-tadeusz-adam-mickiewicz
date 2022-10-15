@@ -1,3 +1,4 @@
+Orzeł, gdy mu dziób stary tak się w kabłąk skrzywi,\
 Że zamknięty na wieki już gardła nie żywi,\
 Idą na cmentarz. Nawet mniejszy zwierz, raniony\
 Lub chory, bieży umrzeć w swe ojczyste strony.\
