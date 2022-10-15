@@ -1,3 +1,4 @@
+Zaraz, dziś?... jeśli zechcesz, odstąpię Rejenta».\
 Hrabia rzekł: «O kobieto dla mnie niepojęta!\
 Dawniej w uczuciach twoich byłaś poetyczną,\
 A teraz mi się zdajesz całkiem prozaiczną!\
