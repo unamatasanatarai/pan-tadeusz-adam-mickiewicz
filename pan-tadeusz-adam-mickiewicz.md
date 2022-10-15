@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Co się tycze legiji honorowej krzyża,\
 Że późno przyszedł, nic to sławie nie ubliża;\
 Jeśli Jackowi nie mógł służyć ku ozdobie,\
 Niech służy ku pamiątce: wieszam go na grobie.\
