@@ -1,3 +1,4 @@
+A gdzież to asan chodził onegdaj wieczorem,\
 Czego asan jak wyżeł tropił pode dworem?\
 O Tadeuszku! jeśli może asan Zosię\
 Zbałamucił i teraz uciekasz, młokosie,\
