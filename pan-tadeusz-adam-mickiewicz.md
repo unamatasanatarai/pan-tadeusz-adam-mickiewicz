@@ -1,3 +1,4 @@
+Suknię materyjalną, różową, jedwabną,\
 Gors wycięty, kołnierzyk z koronek, rękawki\
 Krótkie; w ręku kręciła wachlarz dla zabawki\
 (Bo nie było gorąco); wachlarz pozłocisty\
