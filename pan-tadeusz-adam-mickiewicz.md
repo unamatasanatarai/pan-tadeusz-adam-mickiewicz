@@ -1,3 +1,4 @@
+Każe przywieść Rykowa, potem drzwi zamyka.\
 Godzinę całą trwały tajemne rozmowy,\
 Aż je przerwał kapitan Ryków tymi słowy,\
 Rzucając na stół kiesę ciężką dukatami:\
