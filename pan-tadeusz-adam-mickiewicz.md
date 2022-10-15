@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem do Podkomorzego skoczą przyjaciele;\
 Sędzia porwał mu rękę: «Stój pan, to rzecz nasza,\
 Mnie tu naprzód wyzwano. Protazy, pałasza!\
