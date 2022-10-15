@@ -1,3 +1,4 @@
+Czekając uczty, wkoło stołu rozmawiali,\
 Gdy pan Sędzia w mundurze wojewódzkim wchodzi\
 I pana Tadeusza z Zofią przywodzi.\
 Tadeusz lewą dłonią dotykając głowy,\
