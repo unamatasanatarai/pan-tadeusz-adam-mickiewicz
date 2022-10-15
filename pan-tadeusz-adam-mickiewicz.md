@@ -1,3 +1,4 @@
+Zbożami i trawami, a ludźmi błyszcząca,\
 Obfita we zdarzenia, nadzieją brzemienna!\
 Ja ciebie dotąd widzę, piękna maro senna!\
 Urodzony w niewoli, okuty w powiciu,\
