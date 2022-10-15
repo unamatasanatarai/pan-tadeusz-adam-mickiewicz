@@ -1,3 +1,4 @@
+Całą tę powieść, chociaż splątaną bezładnie,\
 Porządkował w pamięci i dopełniać umiał;\
 Lecz Sędzia wielu rzeczy zgoła nie rozumiał.\
 Oba pilnie słuchali pochyliwszy głowy,\
