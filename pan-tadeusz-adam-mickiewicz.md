@@ -1,3 +1,4 @@
+Gość niespodziany, szybko wpadając, gajowy;\
 Nie zważał nawet, że czas właśnie obiadowy,\
 Pobiegł do pana; widać z postawy i z miny,\
 Że ważnej i niezwykłej jest posłem nowiny.\
