@@ -1,3 +1,4 @@
+Bo wtenczas sprawy skończyć nie można małżeństwem.\
 Stąd to Lachy z Rusami w sporach nieskończonych,\
 Idąc z Lecha i Rusa, dwu braci rodzonych;\
 Stąd się tyle procesów litewskich ciągnęło\
