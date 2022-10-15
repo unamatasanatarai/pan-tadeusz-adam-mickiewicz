@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Co mi? — odmruknął Hrabia — dość już tej gawędy;\
 Nudźcie drugich waszymi względy i urzędy!\
 Dość już głupstwa zrobiłem, wdając się z waćpaństwem\
