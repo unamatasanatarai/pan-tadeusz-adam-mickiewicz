@@ -1,3 +1,4 @@
+Mierzy, na północ, prosto w gwiazdę biegunową.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z niewymownym przeczuciem cały lud litewski\
 Poglądał każdej nocy na ten cud niebieski,\
