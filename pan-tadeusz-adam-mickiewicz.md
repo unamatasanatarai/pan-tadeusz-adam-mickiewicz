@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Po wieczerzy i Sędzia, i goście ze dworu\
 Wychodzą na dziedziniec używać wieczoru;\
 Zasiadają na przyzbach wysłanych murawą.\
 Całe grono z posępną i cichą postawą\
