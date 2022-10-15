@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Pierwsza z nim po francusku zaczęła rozmowę.\
 Wracał z miasta, ze szkoły: więc o książki nowe,\
 O autorów pytała Tadeusza zdania\
