@@ -1,3 +1,4 @@
+Ale ta broń ognista... dosyć zamek imać,\
 Chwila, jedna iskierka...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czyż uciekałem, kiedyś mierzył do mnie z góry?\
