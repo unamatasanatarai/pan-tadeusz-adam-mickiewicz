@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Dalej niebieskiej *Wagi* dwie szale błyskają:\
 Na nich Bóg w dniu stworzenia (starzy powiadają)\
 Ważył z kolei wszystkie planety i ziemię,\
