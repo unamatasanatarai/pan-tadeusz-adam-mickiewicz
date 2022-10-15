@@ -1,3 +1,4 @@
+Na końcu wiszą gałki, coś na kształt guzików,\
 Które Żydzi modląc się na łbach zawieszają\
 I które po swojemu cyces nazywają.\
 Słowem, z daleka karczma chwiejąca się, krzywa,\
