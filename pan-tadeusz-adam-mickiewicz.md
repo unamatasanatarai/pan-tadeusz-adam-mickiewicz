@@ -1,3 +1,4 @@
+Wielmożny Podkomorzy, czyż się państwu godzi\
 Wdawać się z tym fircykiem; czy tu nie ma młodzi?\
 Na mnie to zdajcie: ja go należycie skarcę.\
 A waszeć, panie śmiałku, co wyzywasz starce,\
