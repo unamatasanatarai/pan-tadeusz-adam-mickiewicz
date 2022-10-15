@@ -1,3 +1,4 @@
+Tam różne są zwierzęta, konie, krowy, woły,\
 Kozy brodate; w górze zaś ptactwa gromady,\
 I płazów choć po parze, są też i owady.\
 Część tylna, na kształt dziwnej świątyni stawiona,\
