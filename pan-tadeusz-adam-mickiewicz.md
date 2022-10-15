@@ -1,3 +1,4 @@
+I z umurzaną dziatwą chłopską już do woli\
 Napieściłaś się! Zosiu, patrząc serce boli:\
 Opaliłaś okropnie płeć, czysta Cyganka,\
 A chodzisz i ruszasz się jak parafijanka.\
