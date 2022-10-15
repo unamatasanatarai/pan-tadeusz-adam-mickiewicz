@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz spał pod oknem; sam ukryty w cieniu,\
 Leżąc na wznak, cudnemu dziwił się zjawieniu\
 I miał je tuż nad sobą, ledwie nie na twarzy:\
