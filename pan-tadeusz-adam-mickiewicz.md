@@ -1,3 +1,4 @@
+Nie działo się w Dobrzynie nic bez Maćka rady.\
 Wpływu takiego starzec bynajmniej nie szukał;\
 Owszem, chciał się go pozbyć, klientów swych fukał,\
 I najczęściej wypychał milczkiem za drzwi domu.\
