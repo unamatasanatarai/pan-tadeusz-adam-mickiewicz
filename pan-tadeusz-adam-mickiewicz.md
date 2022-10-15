@@ -1,3 +1,4 @@
+Wpadam do Soplicowa jak w centrum polszczyzny;\
 Tam się człowiek napije, nadysze ojczyzny!\
 Dalbóg Dobrzyńscy! ja wasz brat, ale Sędziego\
 Nie pozwolę pokrzywdzić; nie będzie nic z tego.\
