@@ -1,3 +1,4 @@
+Powstanie jako pożar wkoło rozpostarło,\
 Gdybyśmy my, nabrawszy Moskwie harmat, znaków,\
 Zwycięzcy szli powitać wybawców rodaków?...\
 Ciągniemy! Napoleon, widząc nasze lance,\
