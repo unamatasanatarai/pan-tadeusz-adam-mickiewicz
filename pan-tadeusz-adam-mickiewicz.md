@@ -1,3 +1,4 @@
+Jedni zostali wierni przyjaciele,\
 Jedni dotychczas sprzymierzeńcy pewni!\
 Bo któż tam mieszkał? Matka, bracia, krewni,\
 Sąsiedzi dobrzy!... Kogo z nich ubyło,\
