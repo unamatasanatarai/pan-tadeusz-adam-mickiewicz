@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Maciej dotąd z Rejentem żył w wielkiej przyjaźni;\
 Teraz wzrok nań obrócił tak ostry i dziki,\
 Że Rejent zbladnął, zaczął zapinać guziki,\
