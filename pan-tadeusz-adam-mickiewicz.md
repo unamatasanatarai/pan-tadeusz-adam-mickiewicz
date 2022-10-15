@@ -1,3 +1,4 @@
+Wypuszczenia z obławy, że oba panicze\
 Zwierzowi jak należy kroku nie dostali,\
 Choć mieli oszczep w ręku: tego nikt nie chwali\
 Ani gani. Bo zmykać, mając nabój w rurze,\
