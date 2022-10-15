@@ -1,3 +1,4 @@
+Ryknął niedźwiedź i echem napełnił las cały.\
 Ryk okropny, boleści, wściekłości, rozpaczy;\
 Za nim wrzask psów, krzyk strzelców, trąby dojeżdżaczy\
 Grzmiały ze środka puszczy. Strzelcy — ci w las śpieszą,\
