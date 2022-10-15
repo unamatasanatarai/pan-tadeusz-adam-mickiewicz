@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, widząc że tak płacze i tak błaga\
 Czule, i tylko takiej drobnostki wymaga,\
 Wzruszył się, przejęły go szczery żal i litość,\
 I jeżeliby badał serca swego skrytość,\
