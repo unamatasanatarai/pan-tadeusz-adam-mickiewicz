@@ -1,3 +1,4 @@
+U nas dość głowę podnieść: ileż to widoków!\
 Ileż scen i obrazów z samej gry obłoków!\
 Bo każda chmura inna: na przykład jesienna\
 Pełznie jak żółw leniwa, ulewą brzemienna,\
