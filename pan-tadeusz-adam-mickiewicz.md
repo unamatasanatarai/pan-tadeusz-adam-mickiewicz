@@ -1,3 +1,4 @@
+Cesarz go pułkownikiem dziś właśnie mianował;\
 Więc Sędzia witał Hrabię i rangi winszował,\
 Ale Hrabia nie słuchał, a pilnie rysował.
 
