@@ -1,3 +1,4 @@
+Tak Hrabia był ostrożny, choć go nikt nie śledził;\
 Patrzył w stronę przeciwną ogrodu, na prawo.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Był gaj z rzadka zarosły, wysłany murawą.\
