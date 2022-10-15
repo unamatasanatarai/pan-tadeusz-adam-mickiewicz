@@ -1,3 +1,4 @@
+Jedna już tylko dziś kraina taka,\
 W której jest trochę szczęścia dla Polaka:\
 Kraj lat dziecinnych! On zawsze zostanie\
 Święty i czysty jak pierwsze kochanie,\
