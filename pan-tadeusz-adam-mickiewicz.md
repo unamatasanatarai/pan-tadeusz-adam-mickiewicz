@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Za tymi jeziorkami już nie tylko krokiem,\
 Ale daremnie nawet zapuszczać się okiem,\
 Bo tam już wszystko mglistym zakryte obłokiem,\
 Co się wiecznie ze trzęskich oparzelisk wznosi.\
