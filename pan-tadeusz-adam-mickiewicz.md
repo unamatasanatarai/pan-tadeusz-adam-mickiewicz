@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Bigos już gotów. Strzelcy z trzykrotnym wiwatem,\
 Zbrojni łyżkami, biegą i bodą naczynie;\
 Miedź grzmi, dym bucha, bigos jak kamfora ginie;\
