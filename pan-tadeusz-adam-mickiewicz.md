@@ -1,3 +1,4 @@
+Lecz kto w niej jechał? po co? co z królem rozmawiał?\
 Czy król posła z pokojem czy z wojną wyprawiał?\
 O to ani pytają. Pomnę za mych czasów,\
 Gdy Branecki karetą swą ruszył do Jassów\
