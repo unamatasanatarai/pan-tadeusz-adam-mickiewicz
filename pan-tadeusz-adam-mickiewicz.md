@@ -1,3 +1,4 @@
+Niby gniazdo bocianie. Stary słup dębowy\
 Pochylił się, bo już był wygnił do połowy,\
 Groził upadkiem. Nieraz Sędziemu radzono,\
 Aby zrzucił budowę wiekiem nadwątloną;\
