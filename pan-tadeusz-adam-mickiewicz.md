@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Te pokolenia żałobami czarne,\
 Powietrze tylą klątwami ciężarne,\
 Tam myśl nie śmiała swoich zwrócić lotów,\
