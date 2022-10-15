@@ -1,3 +1,4 @@
+Na snopek uwiązanej trawami mietlicy,\
 Którą brał za pęk strusich piór w ręku dziewicy.\
 Nie zapomniał naczynia: złocista konewka,\
 Ów rożek Amaltei, była to marchewka!\
