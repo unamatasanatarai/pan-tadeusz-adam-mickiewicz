@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie dniało, już z jednej strony taradejką\
 Jedzie Doweyko, z drugiej na koniu Domeyko.\
 Patrzą, aż tu przez rzekę leży most kosmaty,\
