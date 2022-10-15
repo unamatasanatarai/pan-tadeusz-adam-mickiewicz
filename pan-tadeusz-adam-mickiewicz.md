@@ -1,3 +1,4 @@
+Papiery, i szlachectwa papierem próbować».\
 «Jeszcze Waszeci mniejsza — zawołał Juraha —\
 Waszeć z pradziadów chłopów uszlachcony szlacha;\
 Ale ja, z kniaziów! Pytać u mnie o patenta,\
