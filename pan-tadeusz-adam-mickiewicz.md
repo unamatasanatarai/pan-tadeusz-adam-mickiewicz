@@ -1,3 +1,4 @@
+Ten ręce za pas zatknął i przyłożył ucha,\
 Ów dłoń przy uchu trzyma i milczkiem wąs kręci,\
 Zapewne słowa zbiera i niże w pamięci;\
 Cieszy się mówca widząc, że są nawróceni,\
