@@ -1,3 +1,4 @@
+Gdzie czeladź i wieśniacy stali natłoczeni,\
 A nad wszystkich głowami łysina błyszcząca\
 Ukazała się nagle jak pełnia miesiąca;\
 Trzykroć weszła i trzykroć znikła w głów obłoku.\
