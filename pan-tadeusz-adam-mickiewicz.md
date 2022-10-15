@@ -1,3 +1,4 @@
+Nic nie mówiąc — szerokie, obłędne źrenice\
 Obracał to na ciotkę, to na siostrzenicę.\
 Dostrzegła Telimena, iż pierwsze spojrzenie\
 Zosi tak wielkie na nim zrobiło wrażenie;\
