@@ -1,3 +1,4 @@
+Zdaje się, że naczynie do karmienia dzieci:\
 Bo je zbliżała dzieciom do ust po kolei;\
 Miało zaś kształt złotego rogu Amaltei.
 
