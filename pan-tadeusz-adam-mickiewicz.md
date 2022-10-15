@@ -1,3 +1,4 @@
+Poddaj się Sędzio, to są moi sprzymierzeńcy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem Asesor nadbiegał, krzycząc: «Areszt kładę\
 W imię Imperatorskiej Mości; oddaj szpadę,\
