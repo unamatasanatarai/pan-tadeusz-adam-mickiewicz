@@ -1,3 +1,4 @@
+Nie dziw tedy, że czy to siejbę rozpoczynać,\
 Czy wiciny wyprawiać, czy zboże zażynać,\
 Czy procesować, czyli zawierać układy:\
 Nie działo się w Dobrzynie nic bez Maćka rady.\
