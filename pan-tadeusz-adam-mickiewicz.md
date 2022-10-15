@@ -1,3 +1,4 @@
+I z marszałkiem Sanguszką księciem, z jenerałem\
 Mejenem, i gdy wszystkich na charty wyzwałem.\
 Tam, bezprzykładną w dziejach polowania sztuką,\
 Uszczułem sześć zajęcy pojedynczą suką.\
