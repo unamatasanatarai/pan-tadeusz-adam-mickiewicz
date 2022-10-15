@@ -1,3 +1,4 @@
+I trzewiki warszawskie białe, atłasowe.\
 Tymczasem pokojowa sznurowała stanik,\
 Potem rzuciła na gors pannie pudermanik;\
 Zaczęto przypieczone zbierać papiloty,\
