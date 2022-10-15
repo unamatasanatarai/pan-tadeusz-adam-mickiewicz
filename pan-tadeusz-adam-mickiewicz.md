@@ -1,3 +1,4 @@
+Odwykł od grania, nie śmie i panów się wstydzi;\
 Kłaniając się umyka. Gdy to Zosia widzi,\
 Podbiega i na białej podaje mu dłoni\
 Drążki, którymi zwykle mistrz we struny dzwoni;\
