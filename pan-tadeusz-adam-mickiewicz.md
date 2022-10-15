@@ -1,3 +1,4 @@
+Na lewej siadł Kniaziewicz, Pac i Małachowski;\
 Śród nich Podkomorzyna, dalej inne panie,\
 Oficerowie, pany, szlachta i ziemianie,\
 Mężczyźni i kobiety, na przemian po parze,\
