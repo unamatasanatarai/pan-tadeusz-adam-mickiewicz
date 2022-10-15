@@ -1,3 +1,4 @@
+Zosia, jak wróbel w piasku, trzepioce się, myje\
 Z pomocą sługi ręce, oblicze i szyję.\
 Telimena otwiera petersburskie składy,\
 Dobywa flaszki perfum, słoiki pomady,\
