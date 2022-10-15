@@ -1,3 +1,4 @@
+Poglądając na zamek prędko na koń wsiadał,\
 Tak samotną rozmowę kończąc roztargniony:\
 «Szkoda, że ten Soplica stary nie ma żony\
 Lub córki pięknej, której ubóstwiałbym wdzięki!\
