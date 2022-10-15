@@ -1,3 +1,4 @@
+Telimena musiała uciekać, otrząsać,\
 Na koniec na murawie siąść i owad łowić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nie mógł jej swej pomocy Tadeusz odmówić:\
