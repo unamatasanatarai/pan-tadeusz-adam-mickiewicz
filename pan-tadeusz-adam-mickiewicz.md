@@ -1,3 +1,4 @@
+Nigdy nie dbałem bardzo o pochwały świata:\
 Bóg świadkiem, żem niewinien grzechów mego brata;\
 W politykę jam nigdy bardzo się nie wdawał,\
 Urzędując i orząc mojej ziemi kawał.\
