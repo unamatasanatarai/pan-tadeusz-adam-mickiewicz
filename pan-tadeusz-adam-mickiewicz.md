@@ -1,3 +1,4 @@
+Że przed ganek zajechał któryś z nowych gości.\
 Już konie w stajnią wzięto, już im hojnie dano,\
 Jako w porządnym domu, i obrok, i siano:\
 Bo Sędzia nigdy nie chciał, według nowej mody,\
