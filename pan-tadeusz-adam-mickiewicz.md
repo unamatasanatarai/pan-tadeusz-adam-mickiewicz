@@ -1,3 +1,4 @@
+Ścięło usta i wzniosło duchy w kraje marzeń.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po wieczerzy i Sędzia, i goście ze dworu\
 Wychodzą na dziedziniec używać wieczoru;\
