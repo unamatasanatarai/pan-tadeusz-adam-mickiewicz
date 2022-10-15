@@ -1,3 +1,4 @@
+I niech prędko szczęśliwie do nas odprowadzi».\
 Umilkła i spuściła głowę; oczki modre\
 Ledwie stuliła, z rzęsów pobiegły łzy szczodre;\
 A Zosia z zamkniętymi stojąc powiekami,\
