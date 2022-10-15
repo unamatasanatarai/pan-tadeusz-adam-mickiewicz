@@ -1,3 +1,4 @@
+Gołębie, gdy nie mogą schronić się na dachu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Teraz w niebie żadnego nie widziano wroga;\
 Tylko skwarzyła słońca letniego pożoga.\
