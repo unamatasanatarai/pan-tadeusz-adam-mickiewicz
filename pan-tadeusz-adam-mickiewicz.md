@@ -1,3 +1,4 @@
+Ówdzie orzeł szerokim skrzydłem przez obszary\
 Zaszumiał, strasząc wróble, jak kometa cary;\
 Zaś jastrząb, pod jasnymi wiszący błękity,\
 Trzepie skrzydłem jak motyl na szpilce przybity,\
