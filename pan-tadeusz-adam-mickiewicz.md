@@ -1,3 +1,4 @@
+Okręca broń i ciska wrogowi pod nogi.\
 Skruszył kość; już Proporszczyk szponton z rąk upuszcza,\
 Słania się: wpada Chrzciciel, za nim szlachty tłuszcza,\
 A za szlachtą Moskale od lewego skrzydła\
