@@ -1,3 +1,4 @@
+Palce drobne, zwrócone na światło różowe,\
 Czerwieniły się na wskroś jakby rubinowe.\
 Usta widział ciekawe, roztulone nieco,\
 I ząbki, co jak perły śród koralów świecą,\
