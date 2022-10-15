@@ -1,3 +1,4 @@
+Schylił się, bieży, rzekłbyś iż derkacza tropi:\
 Aż nagle skoczył przez płot i wpadł do konopi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W tej zielonej, pachnącej i gęstej krzewinie\
