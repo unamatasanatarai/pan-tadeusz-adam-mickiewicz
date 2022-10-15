@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Te wszystkie Tadeusza cnoty i zalety\
 Ściągnęły wzrok sąsiadki, uważnej kobiety.\
 Zmierzyła jego postać kształtną i wysoką,\
 Jego ramiona silne, jego pierś szeroką,\
