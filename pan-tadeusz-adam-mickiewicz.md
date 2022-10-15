@@ -1,3 +1,4 @@
+Tymczasem słonko z góry tysiącem promieni\
 Tło przetyka, pośrebrza, wyzłaca, rumieni.\
 Jak para mistrzów w Słucku lity pas wyrabia:\
 Dziewica siedząc w dole krośny ujedwabia\
