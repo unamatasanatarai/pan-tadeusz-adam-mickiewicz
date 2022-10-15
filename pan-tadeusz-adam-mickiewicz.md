@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jako wilk, obskoczony znienacka przy ścierwie,\
 Rzuca się oślep w zgraję, co mu ucztę przerwie;\
 Już goni, ma ją szarpać: wtem śród psiego wrzasku\
 Trzasło ciche półkurcze; wilk zna je po trzasku,\
