@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Goście pijący wino zaczęli gałązki\
 Pnie i korzenie zrywać i gryźć dla zakąski.\
 Wojski obchodził serwis i pełen radości,\
