@@ -1,3 +1,4 @@
+Lecz obce mu ich wnętrzne serca tajemnice;\
 Wieść tylko albo bajka wie, co się w nich dzieje.\
 Bo gdybyś przeszedł bory i podszyte knieje,\
 Trafisz w głębi na wielki wał pniów, kłód, korzeni,\
