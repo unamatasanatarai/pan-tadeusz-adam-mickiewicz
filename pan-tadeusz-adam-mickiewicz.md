@@ -1,3 +1,4 @@
+Wszedł służący i raptem boczne drzwi otwarto.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Weszła nowa osoba przystojna i młoda.\
 Jej zjawienie się nagłe, jej wzrost i uroda,\
