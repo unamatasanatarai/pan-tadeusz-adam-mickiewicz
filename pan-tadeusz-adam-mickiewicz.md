@@ -1,3 +1,4 @@
+Których przywiódł jenerał ruski Wojniłowicz\
 I łotr, przyjaciel jego, pan Wołk z Łogomowicz.\
 Pamiętacie, jak Wołka wzięliśmy w niewolę,\
 Jak chcieliśmy go wieszać na belce w stodole,\
