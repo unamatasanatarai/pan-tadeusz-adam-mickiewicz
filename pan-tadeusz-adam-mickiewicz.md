@@ -1,3 +1,4 @@
+Tadeusz.— Ja żenić się nie mam teraz zgoła\
 Zamiaru, ni kochać się. Fraszki! dajmy pokój!\
 Proszę cię, moja droga, rozmyśl się! uspokój!\
 Ja jestem tobie wdzięczen, ale niepodobna\
