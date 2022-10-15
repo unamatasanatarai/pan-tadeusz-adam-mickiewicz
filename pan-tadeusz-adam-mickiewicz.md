@@ -1,3 +1,4 @@
+Wbiegły, gęsto zaczęły łaskotać i kąsać,\
 Telimena musiała uciekać, otrząsać,\
 Na koniec na murawie siąść i owad łowić.
 
