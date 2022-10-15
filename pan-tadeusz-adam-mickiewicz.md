@@ -1,3 +1,4 @@
+Dotknęli wszystkich punktów stanowczych i głownych,\
 Dyskusyją na wyższe wznieśli stanowisko;\
 Mnie tylko pozostaje, w jedno zjąć ognisko\
 Rzucone trafne myśli i rozumowania:\
