@@ -1,3 +1,4 @@
+Zgrzytnęły wyszczerbionym zębem koła rdzawe,\
 Wzdrygnął się Podkomorzy i przerwał rozprawę.\
 «Bracie — rzekł — odłóż nieco twą pilną robotę»\
 I kończył plan zamiany. Lecz Klucznik na psotę\
