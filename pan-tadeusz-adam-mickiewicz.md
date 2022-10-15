@@ -1,3 +1,4 @@
+Wojski powstał, zrozumiał towarzyszów wolę,\
 I uderzywszy ręką poważnie po stole,\
 Pociągnął złocistego z zanadrza łańcuszka,\
 Na którym wisiał gruby zegarek jak gruszka:\
