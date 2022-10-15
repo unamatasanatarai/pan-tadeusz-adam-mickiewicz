@@ -1,3 +1,4 @@
+Wielki jako chrząszcz, siedział, pewnie wódz orszaku;\
 Spinał konia, jak gdyby chciał skakać w niebiosa,\
 Jedną rękę na cuglach, drugą miał u nosa:\
 «Przypatrzcie się — rzekł Robak — tej groźnej postawie:\
