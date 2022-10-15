@@ -1,3 +1,4 @@
+A niedźwiedź z tyłu już, już na Hrabiego głowie,\
 Ostatniego z Horeszków!... chociaż po kądzieli.\
 »Jezus Maria!« krzyknąłem i Pańscy anieli\
 Zesłali mi na pomoc księdza bernardyna.\
