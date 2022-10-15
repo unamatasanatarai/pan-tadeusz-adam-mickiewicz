@@ -1,3 +1,4 @@
+Ów Jacek, vulgo Wąsal — nazwiska nie wspomnę...\
 Ale mu nie czas teraz dojeżdżać niedźwiedzi;\
 Pewnie po same wąsy hultaj w piekle siedzi.\
 Chwała księdzu! dwom ludziom on życie ocalił —\
