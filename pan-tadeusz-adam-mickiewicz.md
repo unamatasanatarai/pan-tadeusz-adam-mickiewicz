@@ -1,3 +1,4 @@
+«Czy ty oszalał, Ryków? To służba cesarska:\
 A służba nie jest drużba, stary, głupi Ryków!\
 Czy ty oszalał? Ja mam puszczać buntowników!\
 W takim wojennym czasie! Ha, pany Polaki,\
