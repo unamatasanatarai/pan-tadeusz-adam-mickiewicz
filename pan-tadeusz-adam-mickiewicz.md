@@ -1,3 +1,4 @@
+Spod ramion wytknął palce i długie paznokcie,\
 Przedstawiając dwa smycze chartów tym obrazem:\
 Właśnie rzecz kończył. «Wyczha! puściliśmy razem\
 Ja i Asesor, razem, jakoby dwa kurki\
