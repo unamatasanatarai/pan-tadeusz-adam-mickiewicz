@@ -1,3 +1,4 @@
+Gdy mię tak ściskał i o przyjaźni zapewniał,\
 Potrzebując mej szabli lub kreski na sejmie,\
 Gdy musiałem nawzajem ściskać go uprzejmie:\
 To tak we mnie złość wrzała, że ja obracałem\
