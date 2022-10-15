@@ -1,3 +1,4 @@
+Już co wy namydlicie, to ja wszystko zgolę».\
 «I ja — przydał Konewka — z wami ruszyć wolę,\
 Gdy ich nie można zgodzić na obiór marszałka;\
 Co mi tam głosy, gałki! U mnie insza gałka.\
