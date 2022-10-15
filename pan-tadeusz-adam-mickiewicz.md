@@ -1,3 +1,4 @@
+Chociaż tak osłoniona, dokoła spoziera,\
 Dostrzegłszy gościa, skacze gajów tanecznica\
 Z drzew na drzewa, miga się jako błyskawica;\
 Na koniec w niewidzialny otwór pnia przepada,\
