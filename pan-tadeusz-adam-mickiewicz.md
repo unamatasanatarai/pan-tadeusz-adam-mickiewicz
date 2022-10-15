@@ -1,3 +1,4 @@
+«Gdy cesarz Napoleon w potyczce zażywa\
 Raz po raz, to znak pewny, że bitwę wygrywa.\
 Na przykład pod Austerlitz: Francuzi tak stali\
 Z armatami, a na nich biegła ćma Moskali.\
