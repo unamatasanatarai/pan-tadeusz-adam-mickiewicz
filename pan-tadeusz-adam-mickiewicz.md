@@ -1,3 +1,4 @@
+Hrabia siedział na dzielnym koniu, w czarnym stroju;\
 Na sukni orzechowy płaszcz włoskiego kroju,\
 Szeroki, bez rękawów, jak wielka opona,\
 Spięty klamrą u szyi, spadał przez ramiona;\
