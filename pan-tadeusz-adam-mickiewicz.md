@@ -1,3 +1,4 @@
+Bracie, póki Ponarom stać, Niemnowi płynąć,\
 Póty w Litwie Sopliców imieniowi słynąć;\
 Wnuków, prawnuków będzie Jagiełłów stolica\
 Wskazywać palcem, mówiąc: oto jest Soplica,\
