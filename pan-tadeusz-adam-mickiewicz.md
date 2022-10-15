@@ -1,3 +1,4 @@
+Wiesz także, że część gruntów od zamku dziedzica\
 Zabrała i Soplicom dała Targowica...\
 Jacek, za grzech żałując, musiał był ślubować\
 Pod absolucją, dobra te restytuować:\
