@@ -1,3 +1,4 @@
+Podróżny zląkł się, spojrzał; lecz już jej nie było.\
 Wyszedł zmieszany i czuł, że mu serce biło\
 Głośno, i sam nie wiedział, czy go miało śmieszyć\
 To dziwaczne spotkanie, czy wstydzić, czy cieszyć.
