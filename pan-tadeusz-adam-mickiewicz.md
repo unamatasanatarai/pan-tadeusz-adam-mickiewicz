@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Ryków z częścią jegrów pobiegł, gdzie stodoła\
 Tyka płotów; tam staje, na żołnierzy woła,\
 Ażeby zaprzestali bitwę tak bezładną,\
