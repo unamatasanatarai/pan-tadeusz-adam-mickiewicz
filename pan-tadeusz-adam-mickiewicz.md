@@ -1,3 +1,4 @@
+A charty mu sierść białą targają spod brzucha.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szczwacze pogłaskali psy, a Wojski tymczasem\
 Dobył nożyk strzelecki wiszący za pasem,\
