@@ -1,3 +1,4 @@
+I stąd był nazywany powszechnie *Zabokiem*).\
 Już wzniósł głowę; słuchają w milczeniu głębokiem.\
 Maciej oczekiwanie powszechne omylił,\
 Nachmurzył brwi i znowu głowę na pierś schylił.\
