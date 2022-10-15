@@ -1,3 +1,4 @@
+Świecił się jako gwiazda w komety warkoczu:\
 Słowem, ubiór galowy; szeptali niejedni,\
 Że zbyt wykwintny na wieś i na dzień powszedni.\
 Nóżek, choć suknia krótka, oko nie zobaczy,\
