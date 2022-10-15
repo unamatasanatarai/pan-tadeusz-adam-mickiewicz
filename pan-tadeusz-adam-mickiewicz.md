@@ -1,3 +1,4 @@
+Rade, że mistrz na koniec strunami wszystkiemi\
 Zagrzmiał, i głosy zdusił, jakby wbił do ziemi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie słuchacze mieli czas wyjść z zadziwienia,\
