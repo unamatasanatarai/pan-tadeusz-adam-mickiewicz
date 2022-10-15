@@ -1,3 +1,4 @@
+Konstantym i z niemieckim cesarzem Franciszkiem,\
 W nogi z pola; więc cesarz, widząc, że po walce,\
 Spojrzał na nich, zaśmiał się i otrząsnął palce.\
 Otóż, jeśli kto z panów, coście tu przytomni,\
