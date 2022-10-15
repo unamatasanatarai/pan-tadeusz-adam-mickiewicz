@@ -1,3 +1,4 @@
+Jeszcze nie mogło ptastwem zakwitnąć na nowo\
 Sławne niegdyś ze drobiu swego Soplicowo.\
 Zresztą zaś miąs wszelakich był wielki dostatek,\
 Co się zgromadzić dało i z domu, i z jatek,\
