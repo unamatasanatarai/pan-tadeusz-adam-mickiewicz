@@ -1,3 +1,4 @@
+Nieraz takie słyszałem i czytam podania;\
 W Anglii i w Szkocyi każdy zamek lordów,\
 W Niemczech każdy dwór grafów był teatrem mordów.\
 W każdej dawnej, szlachetnej, potężnej rodzinie\
