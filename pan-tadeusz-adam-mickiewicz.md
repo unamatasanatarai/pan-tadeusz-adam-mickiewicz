@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Uciekłem z kraju!...\
 Gdziem nie był! com nie cierpiał!...
 
