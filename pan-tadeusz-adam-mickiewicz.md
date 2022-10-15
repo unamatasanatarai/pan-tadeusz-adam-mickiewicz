@@ -1,3 +1,4 @@
+Jak po linie, ni w prawo, ni w lewo nie zboczy;\
 Wszyscy zaś ciągle w różne schylają się strony\
 Aż do ziemi, jak gdyby wybijać pokłony.\
 Jeżeli się przybliżą albo się spotkają,\
