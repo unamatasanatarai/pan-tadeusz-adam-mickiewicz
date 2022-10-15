@@ -1,3 +1,4 @@
+Mówiono, że Dembiński, sławny ręki siłą,\
 Podźwignąłby szablicę, lecz go tam nie było.\
 Z obecnych zaś tylko szef szwadronu Dwernicki\
 I dowódca plutonu, porucznik Różycki\
