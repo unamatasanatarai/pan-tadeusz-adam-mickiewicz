@@ -1,3 +1,4 @@
+Szlachta głodna plądruje, zabiera co może:\
 Kropiciel, stanowisko zająwszy w oborze,\
 Jednego wołu i dwa cielce w łby zakropił,\
 A Brzytewka im szable w gardzielach utopił;\
