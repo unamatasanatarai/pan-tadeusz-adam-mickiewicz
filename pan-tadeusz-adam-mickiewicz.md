@@ -1,3 +1,4 @@
+Odtąd jego dowcipnych żartów nie słyszano,\
 I uśmiechu na jego twarzy nie widziano.\
 Zawsze nosił Horeszków liberyją dawną;\
 Kurtę z połami żółtą, galonem oprawną,\
