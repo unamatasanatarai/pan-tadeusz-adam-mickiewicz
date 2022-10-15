@@ -1,3 +1,4 @@
+I odszedł. Hrabia jeszcze chwilę w miejscu bawił,\
 Śmiejąc się i klnąc razem tej nagłej przeszkodzie.\
 Okiem powrócił w ogród, ale już w ogrodzie\
 Nie było jej; mignęła tylko śród okienka\
