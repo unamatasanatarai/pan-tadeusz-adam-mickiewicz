@@ -1,3 +1,4 @@
+I były tam potrzebne: kiedy w reszcie kraju\
 Głupim naśladownictwem weszły do zwyczaju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc Matyjasz Dobrzyński, który stał na czele\
