@@ -1,3 +1,4 @@
+I znowu w górę trzęsąc kłosami złotemi\
 Wrzały jak fale, teraz stoją nieruchome\
 I poglądają w niebo najeżywszy słomę.\
 I zielone przy drogach wierzby i topole,\
