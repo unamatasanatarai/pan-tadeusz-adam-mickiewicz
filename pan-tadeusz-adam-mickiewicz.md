@@ -1,3 +1,4 @@
+W domu, a w lasach wielkie robiono obławy.\
 Wiadomo zaś waszmościom jest, że prawie wszyscy,\
 Ile ich zapamiętać można, Czartoryscy,\
 Choć idą z Jagiellonów krwi, lecz do myślistwa\
