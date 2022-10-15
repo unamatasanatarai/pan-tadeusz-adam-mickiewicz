@@ -1,3 +1,4 @@
+Żeby na polowaniu tak się wydarzyło,\
 Że stali blisko siebie oba imiennicy,\
 I do jednej strzelili razem niedźwiedzicy.\
 Prawda, że po ich strzale upadła bez duchu;\
