@@ -1,3 +1,4 @@
+Którzy wpadli na szlachtę jak pająki ścienne,\
 Nazwane *kosarzami*, na muchy wpółsenne:\
 Zaledwie która bzyknie, już długimi nogi\
 Obejmuje ją wkoło i dusi mistrz srogi.\
