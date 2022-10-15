@@ -1,3 +1,4 @@
+A wrogów naszych mężnym ścigajmy ramieniem».\
 Rzekł, na Telimenę spojrzał, ale ona\
 Nic nie odpowiadała, strasznie zadziwiona.
 
