@@ -1,3 +1,4 @@
+Słychać, że Francuz stoi nad rzeką Łososną,\
 A wojna jeśli będzie, to chyba aż wiosną.\
 Nu, mówię tak: czekajcie; wszak dwór Soplicowa\
 Nie budka kramna, co się rozbierze, w wóz schowa\
