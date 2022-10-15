@@ -1,3 +1,4 @@
+Dwóch kuchcików przy piecu siedzi, w mieszki dmucha,\
 Wojski, ażeby ogień tym łacniej rozpalać,\
 Rozkazał stopionego masła na drwa nalać\
 (Zbytek ten dozwolony jest w dostatnim domu).\
