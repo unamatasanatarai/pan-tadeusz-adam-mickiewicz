@@ -1,3 +1,4 @@
+Wojski głos zabrał: «Teraz jest przynajmniej za co;\
 Bo to, panowie, nie jest ów szarak ladaco,\
 To niedźwiedź; tu już nie żal poszukać odwetu,\
 Czy szerpentyną, czyli nawet z pistoletu.\
