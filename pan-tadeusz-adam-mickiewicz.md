@@ -1,3 +1,4 @@
+Gdyby też wzięły wieśniaczki do ręki\
 Te księgi proste jako ich piosenki!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak za dni moich przy wiejskiej zabawie,\
