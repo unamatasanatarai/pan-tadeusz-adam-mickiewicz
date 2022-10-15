@@ -1,3 +1,4 @@
+Bo serce nie jest sługa, nie zna co to pany,\
 I nie da się przemocą okuwać w kajdany».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym Sędzia, powstawszy, odszedł zamyślony.\
