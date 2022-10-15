@@ -1,3 +1,4 @@
+I wyśpi się, bo jutro będzie wielka praca;\
 Pan spać lubi, już późno, drugi kur już pieje.\
 Ja tu będę pilnować zamku, aż rozdnieje,\
 A ze słoneczkiem stanę w Dobrzyńskim zaścianku».
