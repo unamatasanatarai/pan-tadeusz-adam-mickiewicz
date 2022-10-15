@@ -1,3 +1,4 @@
+Który nocną modlitwą ludzi przytrzymany\
 Spóźnił się, śpieszy wracać między spółniebiany.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już ostatnie perły gwiazd zamierzchły i na dnie\
