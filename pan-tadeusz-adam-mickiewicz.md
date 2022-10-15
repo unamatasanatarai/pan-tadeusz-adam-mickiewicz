@@ -1,3 +1,4 @@
+I chcąc Hrabiego nieco ułagodzić smutek,\
 Podała mu urwany kwiatek niezabudek.\
 Hrabia go ucałował i na pierś przyszpilał;\
 Tadeusz z drugiej strony krzak ziela rozchylał,\
