@@ -1,3 +1,4 @@
+Czy aloes z długimi jak konduktor pałki?\
 Czy cytryna, karlica z złocistymi gałki,\
 Z liściem lakierowanym, krótka i pękata,\
 Jako kobieta mała, brzydka, lecz bogata?\
