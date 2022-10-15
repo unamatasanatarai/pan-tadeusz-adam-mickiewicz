@@ -1,3 +1,4 @@
+O pierwszeństwo w strzelectwie? Myślili więc nad tem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaś Asesor i Rejent, prócz wspólnych niechęci,\
 Świeżą hańbę swych chartów mieli na pamięci.\
