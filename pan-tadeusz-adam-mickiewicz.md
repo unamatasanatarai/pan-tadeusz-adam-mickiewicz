@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Jam jest Jacek Soplica...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Klucznik na to słowo\
