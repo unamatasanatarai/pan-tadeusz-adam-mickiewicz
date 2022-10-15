@@ -1,3 +1,4 @@
+Że ma początki suchot, że ustawnie szlocha;\
 Zgadywano, że kogoś potajemnie kocha. —\
 Ale Stolnik, jak zawsze spokojny, wesoły,\
 Dawał na zamku bale, zbierał przyjacioły.\
