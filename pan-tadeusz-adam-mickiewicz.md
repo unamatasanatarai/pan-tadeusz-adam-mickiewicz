@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Mowy starca krążyły we wsi po kryjomu;\
 Chłopiec, co je posłyszał, znikał nagle z domu,\
 Lasami i bagnami skradał się tajemnie,\
