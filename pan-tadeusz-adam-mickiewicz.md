@@ -1,3 +1,4 @@
+Że niesłusznie pospólstwo zwie go Dawidowym:\
 Gdyż to jest wóz Anielski. Na nim to przed czasy\
 Jechał Lucyper, Boga gdy wyzwał w zapasy,\
 Mlecznym gościńcem pędząc cwał w niebieskie progi,\
