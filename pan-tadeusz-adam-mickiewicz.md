@@ -1,3 +1,4 @@
+Jeśli tego szlachcica kto inny zabije,\
 To Major widzi, Major hańby swej nie zmyje.\
 Trzeba tego szlachcica na pole wywabić;\
 Nie można z karabina, to choć szpadą zabić.\
