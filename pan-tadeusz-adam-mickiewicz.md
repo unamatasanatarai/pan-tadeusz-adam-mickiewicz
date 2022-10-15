@@ -1,3 +1,4 @@
+Konny posłaniec; biega od chaty do chaty,\
 Budzi jak na pańszczyznę. Wstają szlachta braty,\
 Napełniają się ciżbą zaścianku ulice,\
 Słychać krzyk w karczmie, widać w plebanii świéce.\
