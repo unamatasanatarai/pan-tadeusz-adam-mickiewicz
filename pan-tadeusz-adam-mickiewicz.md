@@ -1,3 +1,4 @@
+Drugi bałabanowskiej swej Sagalasówki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Sędzio sąsiedzie — wreszcie wyrzekł Podkomorzy —\
 Pierwszą nagrodę słusznie zyskał sługa boży;\
