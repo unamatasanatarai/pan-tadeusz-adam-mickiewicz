@@ -1,3 +1,4 @@
+I ciągnie je za sobą, a sam wyżej głową\
 Mierzy, na północ, prosto w gwiazdę biegunową.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z niewymownym przeczuciem cały lud litewski\
