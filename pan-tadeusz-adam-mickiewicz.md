@@ -1,3 +1,4 @@
+Gadali o nim, świeżą obławą zajęci.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski ledwie raz okiem za zającem rzucił;\
 Widząc, że uciekł, głowę obojętnie zwrócił\
