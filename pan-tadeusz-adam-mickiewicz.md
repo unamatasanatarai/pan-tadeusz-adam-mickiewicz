@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Konia — zawołał Rejent — stawię konia z rzędem,\
 I opiszę się jeszcze przed ziemskim urzędem,\
 Iż ten pierścień Sędziemu w salarijum złożę».\
