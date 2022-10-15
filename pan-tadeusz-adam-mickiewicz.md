@@ -1,3 +1,4 @@
+Na roli, gdzie psom chyba trzeba by wdziać buty,\
 Tak pełno wszędzie głazów i ostrych kamieni...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mądrze rzecz wyłuszczali szczwacze doświadczeni;\
