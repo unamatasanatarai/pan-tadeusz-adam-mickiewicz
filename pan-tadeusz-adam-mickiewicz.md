@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A jeśli czasem i Moskal się zjawił,\
 Tyle nam tylko pamiątki zostawił,\
 Że był w błyszczącym i pięknym mundurze:\
 Bo węża tylko znaliśmy po skórze.
