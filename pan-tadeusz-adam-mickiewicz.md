@@ -1,3 +1,4 @@
+Sierp krzywy, świeżym żęciem traw oszlifowany,\
 Jasny jak nów miesięczny nad czołem Dyjany.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wszyscy chwalą, klaskają. Jeden z oficerów\
