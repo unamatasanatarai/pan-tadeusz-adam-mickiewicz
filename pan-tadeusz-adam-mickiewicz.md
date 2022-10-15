@@ -1,3 +1,4 @@
+Postaramy się przecież za proch mu zapłacić:\
 Uręczamy, że niedźwiedź zabity dziś w boru\
 Przez dwa lata wystarczy na kuchnię klasztoru.\
 Lecz skóry księdzu nie dam: lub gwałtem zabiorę,\
