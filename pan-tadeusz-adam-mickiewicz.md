@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na te słowa pan Hrabia ustąpił z krużganku;\
 Ale nim odszedł, spojrzał przez otwór strzelnicy,\
 I widząc świateł mnóstwo w domostwie Soplicy:\
