@@ -1,3 +1,4 @@
+Kraśniejsze od jarzębin zajaśniały lica:\
 To jagód lub orzechów zbieraczka, dziewica.\
 W krobeczce z prostej kory podaje zebrane\
 Bruśnice świeże jako jej usta rumiane.\
