@@ -1,3 +1,4 @@
+«I tyżeś to! — zawołał — czy mnie oczy łudzą?\
 Ty? w obecności mojej ściskasz rękę cudzą?\
 O niewierna istoto, o duszo zmiennicza!\
 I nie skryjesz ze wstydu pod ziemię oblicza?\
