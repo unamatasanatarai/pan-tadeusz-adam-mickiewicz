@@ -1,3 +1,4 @@
+Byliśmy zaręczeni; Bóg nie błogosławił\
 Związkowi temu i mnie sierotą zostawił,\
 Wziąwszy do chwały swojej nadobną Wojszczankę,\
 Przyjaciela mojego córę Hreczeszankę.\
