@@ -1,3 +1,4 @@
+Pódźże panienko! nie bądź taka narowista!\
 Bo ja po oficersku ukarzę panienkę...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;To mówiąc skoczył, chwycił Telimeny rękę,\
