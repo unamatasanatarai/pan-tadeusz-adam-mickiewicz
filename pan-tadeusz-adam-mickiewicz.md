@@ -1,3 +1,4 @@
+A gdyby z tyłu zrobić powstanie narodu?\
 Co myślisz? Niech no Pogoń zarży, niech na Żmudzi\
 Niedźwiedź ryknie! Ach, gdyby jakie tysiąc ludzi,\
 Gdyby choć pięćset z tyłu na Moskwę natarło,\
