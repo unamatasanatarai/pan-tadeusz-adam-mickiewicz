@@ -1,3 +1,4 @@
+To nieraz tak się zręcznie skręcił jednym razem,\
 Jakby prawo w tył robił za wodza rozkazem,\
 I słowa liturgii takim wyrzekł tonem\
 Do ludu, jak oficer stojąc przed szwadronem:\
