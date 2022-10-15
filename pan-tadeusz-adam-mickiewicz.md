@@ -1,3 +1,4 @@
+I rąk skinieniem swoje rozkazy tłumaczył.\
 Pojęli wszyscy: stoją, a środkiem po roli\
 Asesor i pan Rejent kłusują powoli.\
 Tadeusz, będąc bliższy, obydwu wyprzedził,\
