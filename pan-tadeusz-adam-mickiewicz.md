@@ -1,3 +1,4 @@
+Skąd w królestwie skrzydlatym tyle zamieszania,\
 Jaka burza te ptaki tak wcześnie wygania?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Aż oto nowe stada: jakby gilów, siewek\
