@@ -1,3 +1,4 @@
+Dziatwę małą, przelękłą i samą porzucić:\
 Wracała, wstrzymując się, lecz musiała wrócić,\
 Jak niechętny duch, wróżka przyzwany zaklęciem,\
 Przybiegła z najkrzykliwszym bawić się dziecięciem,\
