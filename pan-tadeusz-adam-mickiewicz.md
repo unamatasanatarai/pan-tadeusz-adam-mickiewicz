@@ -1,3 +1,4 @@
+Mając to w głowie, często też miałam na ustach\
 Imię pana — było to w Wilnie na zapustach;\
 Panny mówiły, że ja jestem zakochana:\
 Jużci, jeżeli kocham, to już chyba pana».\
