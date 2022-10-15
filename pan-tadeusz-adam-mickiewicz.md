@@ -1,3 +1,4 @@
+Spór był wielki, już potraw ostatnich nie jedli;\
 Stojąc i pijąc obie kłóciły się strony,\
 A najstraszniej pan Rejent był zacietrzewiony:\
 Jak raz zaczął, bez przerwy rzecz swoją tokował,\
