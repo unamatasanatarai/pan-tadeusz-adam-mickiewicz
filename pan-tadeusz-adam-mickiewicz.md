@@ -1,3 +1,4 @@
+Ścieśniać i coraz bardziej ku ziemi przybliżać,\
 Aż oboje, skrywszy się pod zasłonę ciemną\
 Jak kochankowie, wszczęli rozmowę tajemną,\
 Tłumacząc swe uczucia w westchnieniach tłumionych,\
