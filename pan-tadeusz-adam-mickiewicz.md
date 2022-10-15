@@ -1,3 +1,4 @@
+Wielką by klęskę zadał, uderzając z góry:\
 Ale już goście tłumnie wychodzili z sieni;\
 Nie śmieli kroku dostać słudzy potrwożeni\
 I chwytając naczynia w ślad panów uciekli,\
