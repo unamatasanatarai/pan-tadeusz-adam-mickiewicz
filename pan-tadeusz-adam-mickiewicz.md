@@ -1,3 +1,4 @@
+«Jenerale — rzekł — ciebie długo Litwa nasza\
 Czekała — długo, jak my Żydzi Mesyjasza...\
 Ciebie prorokowali dawno między ludem\
 Śpiewaki, ciebie niebo obwieściło cudem,\
