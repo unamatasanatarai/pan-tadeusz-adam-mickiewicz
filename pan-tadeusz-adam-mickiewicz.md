@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;I wieśniacy, ciągnący na jarzynę pługi,\
 Nie cieszą się jak zwykle z końca zimy długiéj,\
 Nie śpiewają piosenek: pracują leniwo,\
 Jakby nie pamiętali na zasiew i żniwo.\
