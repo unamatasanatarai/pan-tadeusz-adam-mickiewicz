@@ -1,3 +1,4 @@
+Śmiech i urąganie się nad ojczystym krajem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A przecież wokoło nich ciągnęły się lasy\
 Litewskie, tak poważne i tak pełne krasy!\
