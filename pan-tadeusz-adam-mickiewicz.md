@@ -1,3 +1,4 @@
+Poduszeczka z rubrontu wyścieła siedzenie;\
 A kiedy na łęk wskoczysz, na tym miękkim puszku\
 Między kulami siedzisz wygodnie jak w łóżku;\
 A gdy w galop puścisz się (tu Rejent Bolesta,\
