@@ -1,3 +1,4 @@
+A pan Sędzia, to nie jest Żydek na arendzie:\
 Nie uciecze, to jego można znaleźć wiosną.\
 A teraz rozejdźcie się, a nie gadać głośno\
 O tym, co było; bo to gadać, to daremno!\
