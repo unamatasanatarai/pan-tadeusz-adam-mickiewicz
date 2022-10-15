@@ -1,3 +1,4 @@
+Każdy sobą zajęty śpieszył, gdzie kazano;\
 O towarzyszu sennym całkiem zapomniano.
 
 &nbsp;&nbsp;&nbsp;&nbsp;On chrapał. Słońce w otwór, co śród okienicy\
