@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Skończył. Czekają wszyscy Macieja wyroku.\
 Maciej głowy nie ruszył ani podniósł wzroku,\
 Tylko ręką kilkakroć uderzył po boku,\
