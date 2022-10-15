@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Jenerale — rzekł Sędzia — po owym zwycięstwie,\
 Prawie wszyscy Dobrzyńscy schronili się w Księstwie;\
 Zapewne do którego weszli legionu».\
 «W istocie — odpowiedział młody Szef szwadronu —\
