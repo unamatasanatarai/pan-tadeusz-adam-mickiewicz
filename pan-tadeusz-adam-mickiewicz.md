@@ -1,3 +1,4 @@
+Ja sama! Że pan Jacek dawał był pieniądze\
 Na wychowanie Zosi, i że jej wyznaczył\
 Małą pensyjkę roczną, więcej przyrzec raczył,\
 Toć jej jeszcze nie kupił. Zresztą, państwo wiecie,\
