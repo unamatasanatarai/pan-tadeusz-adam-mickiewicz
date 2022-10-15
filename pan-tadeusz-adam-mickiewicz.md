@@ -1,3 +1,4 @@
+Wznowić koncept, który ja lat temu czterdzieście\
 Wymyśliłem — przedziwny! Wy młodzi jesteście,\
 Nie pamiętacie o nim; lecz za moich czasów,\
 Głośny był od tej puszczy do poleskich lasów.
