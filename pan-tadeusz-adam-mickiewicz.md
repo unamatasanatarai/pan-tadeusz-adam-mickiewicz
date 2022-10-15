@@ -1,3 +1,4 @@
+Ale goście tymczasem skończyli jeść lody\
 I z zamku na dziedziniec wyszli dla ochłody.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tam włość już kończy ucztę: krążą miodu dzbany.\
