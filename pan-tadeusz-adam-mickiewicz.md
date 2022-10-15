@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Mądrze rzecz wyłuszczali szczwacze doświadczeni;\
 Myśliwi z tych mów wiele mogliby korzystać,\
 Lecz nie słuchali pilnie. Ci zaczęli świstać,\
