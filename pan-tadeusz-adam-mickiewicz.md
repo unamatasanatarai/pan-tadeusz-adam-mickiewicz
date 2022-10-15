@@ -1,3 +1,4 @@
+Pierwszy wiwat za zdrowie Króla Jegomości,\
 Potem prymasa, potem Królowej Jejmości,\
 Potem szlachty i całej Rzeczypospolitej,\
 A na koniec po piątej szklanicy wypitej,\
