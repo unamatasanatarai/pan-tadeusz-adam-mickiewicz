@@ -1,3 +1,4 @@
+Dano hasło, zaczęto taniec: on prowadzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nad murawą czerwone połyskają buty,\
 Bije blask z karabeli, świeci się pas suty,\
