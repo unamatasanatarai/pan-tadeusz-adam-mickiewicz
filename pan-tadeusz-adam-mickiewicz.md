@@ -1,3 +1,4 @@
+Nawet lada chłop, lada Żyd, choć się pokłonił,\
 To mię zboku szyderskim przebijał uśmiechem.\
 Wyraz zdrajca brzmiał w uszach, odbijał się echem\
 W domu, w polu. Ten wyraz od rana do zmroku\
