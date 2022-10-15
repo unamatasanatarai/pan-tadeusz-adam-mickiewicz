@@ -1,3 +1,4 @@
+A że teraz jest równość, więc artykuł trzeci\
 Obowiązuje równie i mieszczan, i kmieci.\
 Ten wyrok marszałkowski pan pisarz umieści,\
 W aktach jeneralności, a Woźny obwieści.
