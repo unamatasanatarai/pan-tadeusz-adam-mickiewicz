@@ -1,3 +1,4 @@
+Stanął za nią, na gałce zwiesił ręce obie,\
 Na ręku oparł brodę, krzycząc: «Czekać! zwlekać!\
 Sejmikować! Hem, trem, brem, a potem uciekać!\
 Ja w Prusach nie bywałem; rozum królewiecki\
