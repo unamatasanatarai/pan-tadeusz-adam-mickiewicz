@@ -1,3 +1,4 @@
+Jak do tańca stające panny i młodzieńce\
 Wkoło pary małżonków. Stoi pośród grona\
 Para, nad całą leśną gromadą wzniesiona\
 Wysmukłością kibici i barwy powabem:\
