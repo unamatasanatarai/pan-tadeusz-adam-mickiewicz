@@ -1,3 +1,4 @@
+Wskazywać palcem, mówiąc: oto jest Soplica,\
 Z tych Sopliców, co pierwsi zrobili powstanie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;A na to Sędzia: «Mniejsza o ludzkie gadanie;\
