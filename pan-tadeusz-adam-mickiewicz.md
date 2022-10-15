@@ -1,3 +1,4 @@
+Znajdziesz wybawiciela. Odtąd twym skinieniem,\
 Jak rządzisz sercem moim, tak rządź mym ramieniem».\
 Wyciągnął ramię.
 
