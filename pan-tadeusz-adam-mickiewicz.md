@@ -1,3 +1,4 @@
+Nie wszystko, co jest piękne, wymalować da się!\
 Dowiesz się o tym wszystkim z książek w swoim czasie.\
 Co się tyczy malarstwa: do obrazu trzeba\
 Punktów widzenia, grupy, ansamblu i nieba,\
