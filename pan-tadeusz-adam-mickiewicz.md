@@ -1,3 +1,4 @@
+Mścił się otwarcie — ale tak chytrze śmierć zadać,\
 Panu polskiemu, w Polszcze — i w zmowie z Moskalem!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Nie byłem w zmowie — Jacek odpowiedział z żalem. —\
