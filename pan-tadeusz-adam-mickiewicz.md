@@ -1,3 +1,4 @@
+Błysła zakapturzona, chuda twarz Robaka;\
 Tadeusz widział dobrze, jak mu raz i drugi\
 Pokazał się na lewo cień biały i długi,\
 Co to było, nie wiedział, ale miał przeczucie,\
