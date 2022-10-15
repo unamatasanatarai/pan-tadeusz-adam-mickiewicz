@@ -1,3 +1,4 @@
+Wreszcie nowym zalotom Hrabiego dość rada,\
 Zwróciła się do swego drugiego sąsiada.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz też posępny, nic nie jadł, nic nie pił,\
