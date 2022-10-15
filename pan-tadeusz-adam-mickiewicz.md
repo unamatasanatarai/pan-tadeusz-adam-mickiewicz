@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Więc ku nim z drugiej izby wszyscy się porwali,\
 I tocząc się przeze drzwi na kształt bystrej fali,\
 Unieśli młodą parę stojącą na progu,\
 Podobną Janusowi, dwulicemu bogu.
