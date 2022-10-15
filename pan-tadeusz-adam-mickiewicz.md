@@ -1,3 +1,4 @@
+I puszczał na przemiany dym i komplementy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tańczyć! — zawołał Robak — gdy wychylę flaszę,\
 To i ja, choć ksiądz, habit czasami podkaszę\
