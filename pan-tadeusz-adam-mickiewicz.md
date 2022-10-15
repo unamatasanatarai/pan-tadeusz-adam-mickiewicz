@@ -1,3 +1,4 @@
+Na dziedziniec.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tam jeszcze więcej zamieszania.\
 Tam stronnicy Sopliców pracują w zawody\
