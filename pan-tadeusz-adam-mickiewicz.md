@@ -1,3 +1,4 @@
+Abyś raczył przed szlachtą bracią wnet ogłosić\
 Intromisyją Hrabi do zamku, do dworu\
 Sopliców, do wsi, gruntów zasianych, ugoru,\
 Słowem, cum gais, boris et graniciebus,\
