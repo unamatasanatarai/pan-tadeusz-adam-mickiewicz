@@ -1,3 +1,4 @@
+Słaba, lękliwa! był to robaczek motyli,\
 Wiosenna gąsiennica! i tak ją zagrabić,\
 Dotknąć ją zbrojną ręką, byłoby ją zabić;\
 Nie mogłem, nie.
