@@ -1,3 +1,4 @@
+Cofnęli się, wydawszy przeraźliwe głosy;\
 Lecz jedna ręka, mocniej wplątana we włosy,\
 Została się wisząca i krwią buchająca.\
 Tak orlik, jedną szponę gdy wbije w zająca,\
