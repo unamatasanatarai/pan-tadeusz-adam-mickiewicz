@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ćwierć godziny wrzał hałas, gdy nad tłum wrzeszczący,\
 Ze środka głów, wyskoczył w góre słup błyszczący:\
 Był to rapier sążnistej długości, szeroki\
 Na całą piędź, a sieczny na obadwa boki,\
