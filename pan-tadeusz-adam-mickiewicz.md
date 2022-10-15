@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Z kolei Bartek poseł rzecz swą wyprowadzał.\
 Ten, że często na strugach do Królewca chadzał,\
 Nazwany był Prusakiem od swych spółrodaków:\
