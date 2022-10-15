@@ -1,3 +1,4 @@
+Że Hrabia z Zosią jakieś ma porozumienie,\
 I cóż stąd? Może Hrabia kocha Zosię szczerze,\
 Może go ona kocha, za męża wybierze?\
 Jakimże prawem chciałbym zerwać to zamęście,\
