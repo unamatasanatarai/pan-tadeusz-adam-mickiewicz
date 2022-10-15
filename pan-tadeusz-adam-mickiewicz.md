@@ -1,3 +1,4 @@
+Choć przed nim uciekała, choć mu ojciec bronił:\
 On jeszcze! ile razy na parkanie siadał,\
 By ją dojrzeć przez okna, w konopie się wkradał,\
 Żeby patrzeć, jak ona pleła swe ogródki,\
