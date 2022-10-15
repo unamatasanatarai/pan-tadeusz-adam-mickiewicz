@@ -1,3 +1,4 @@
+W sadzie, na brzegu niegdyś zarosłym pokrzywą,\
 Był maleńki ogródek ścieżkami porznięty,\
 Pełen bukietów trawy angielskiej i mięty.\
 Drewniany, drobny, w cyfrę powiązany płotek\
