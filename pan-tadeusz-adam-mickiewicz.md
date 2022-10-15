@@ -1,3 +1,4 @@
+I naszej Litwy! Wszak to jak małżonków dwoje!\
 Bóg złączył, a czart dzieli; Bóg swoje, czart swoje!\
 Ach, bracie Protazeńku! że to oczy nasze\
 Widzą! że znowu do nas ci Koronijasze\
