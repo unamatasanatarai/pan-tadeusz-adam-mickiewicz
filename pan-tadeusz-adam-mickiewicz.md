@@ -1,3 +1,4 @@
+A mówią, że stryj dla mnie za żonę przeznacza\
 Podkomorzankę, piękną i córkę bogacza.\
 Teraz nie mógłbym z panną Różą się ożenić,\
 Kiedy kocham tę Zosię; trudno serce zmienić!\
