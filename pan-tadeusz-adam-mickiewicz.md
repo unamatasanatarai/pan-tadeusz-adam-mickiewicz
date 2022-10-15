@@ -1,3 +1,4 @@
+Bo biegła bardzo szybko, suwała się raczéj\
 Jako osóbki, które na trzykrólskie święta\
 Przesuwają w jasełkach ukryte chłopięta.\
 Biegła i wszystkich lekkim witając ukłonem,\
