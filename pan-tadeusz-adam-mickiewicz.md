@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ocenił przeciwnika zręczność Maciek stary\
 I lewą ręką włożył na nos okulary,\
 Prawą, rękojeść Rózgi tuż przy piersiach trzyma,\
