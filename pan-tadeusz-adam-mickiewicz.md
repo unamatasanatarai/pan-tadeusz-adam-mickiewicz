@@ -1,3 +1,4 @@
+Trzeba czekać, a szlachta pono nie dotrzyma.\
 Możem zanadto czynnie z powstaniem się krzątał!\
 Pono źle zrozumieli! Klucznik wszystko splątał!\
 Ten wariat Hrabia, słyszę, pobiegł do Dobrzyna,\
