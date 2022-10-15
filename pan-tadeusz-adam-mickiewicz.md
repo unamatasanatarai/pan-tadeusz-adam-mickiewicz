@@ -1,3 +1,4 @@
+Brzydzi się trunkiem, którym nazbyt się zalewa.\
 Wszystko to Telimena dokładnie wiedziała,\
 Bo i rozum, i wielkie doświadczenie miała.
 
