@@ -1,3 +1,4 @@
+To wyrzekłszy, przewrócił talerz dnem do góry,\
 Na znak że jeść nie będzie, i milczał ponury.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Dobrzyński — rzekł mu jenerał Dąbrowski,\
