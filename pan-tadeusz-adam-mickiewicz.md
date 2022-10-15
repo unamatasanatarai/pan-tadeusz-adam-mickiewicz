@@ -1,3 +1,4 @@
+Wszak nie raz przyrzekałeś grać na mym weselu?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jankiel niezmiernie Zosię lubił: kiwnął brodą\
 Na znak, że nie odmawia; więc go w środek wiodą,\
