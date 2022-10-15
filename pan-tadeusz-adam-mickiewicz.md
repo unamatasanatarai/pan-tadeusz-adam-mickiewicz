@@ -1,3 +1,4 @@
+Gdy im prędkiego zgonu życzą straże,\
 Wrogi ich wabią z dala jak grabarze,\
 Gdy w niebie nawet nadziei nie widzą...\
 Nie dziw, że ludzi, świat, siebie ohydzą,\
