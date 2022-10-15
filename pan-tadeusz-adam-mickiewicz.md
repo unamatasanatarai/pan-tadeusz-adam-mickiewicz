@@ -1,3 +1,4 @@
+Pan godził spory włościan lub w dobrym humorze\
 Gościom różne ciekawe historyje prawił,\
 Albo ich powieściami i żarty się bawił,\
 A młodzież na dziedzińcu biła się w palcaty,\
