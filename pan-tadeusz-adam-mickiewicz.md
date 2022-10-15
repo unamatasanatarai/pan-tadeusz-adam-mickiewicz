@@ -1,3 +1,4 @@
+Szukała kogoś okiem, daleko, na dole;\
 Ujrzała, zaśmiała się i klasnęła w dłonie,\
 Jak biały ptak zleciała z parkanu na błonie,\
 I wionęła ogrodem, przez płotki, przez kwiaty,\
