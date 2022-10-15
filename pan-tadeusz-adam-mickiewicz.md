@@ -1,3 +1,4 @@
+Poję, nie chce pić, mówi: »Nie piję tak wiele\
 Jak wy szlachta; wy szlachta ciągniecie jak bąki«.\
 Ot magnat! delikacik z marymonckiej mąki!\
 Nie pił; leliśmy w gardło, krzyczał: »Gwałt się dzieje!«\
