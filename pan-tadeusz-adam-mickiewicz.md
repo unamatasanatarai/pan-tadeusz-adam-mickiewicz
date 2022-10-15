@@ -1,3 +1,4 @@
+Co mnie mówiono niegdyś małemu dziecięciu,\
 Pamiętam, choć nie miałem wówczas lat dziesięciu,\
 Kiedy widziałem w domu naszym nieboszczyka\
 Sapiehę, pancernego znaku porucznika,\
