@@ -1,3 +1,4 @@
+I stają mu przed oczy sąd, strony i świadki;\
 I ogląda sam siebie, jak w żupanie białym,\
 W granatowym kontuszu stał przed trybunałem,\
 Jedna ręka na szabli, a druga do stoła,\
