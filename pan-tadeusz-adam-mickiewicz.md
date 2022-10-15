@@ -1,3 +1,4 @@
+Ale to rzecz nie moja, wiele o tym gadać!\
 On tu nie przyjdzie; próżno wzywać bernardyna.\
 Jeśli od niego wyszła ta cała nowina,\
 To kto wie, w jakim celu: bo to bies księżyna!\
