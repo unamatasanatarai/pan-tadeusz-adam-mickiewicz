@@ -1,3 +1,4 @@
+Tylko się wachlowała, to wachlarza trzonek\
 Kręciła, to kołnierzyk z brabanckich koronek\
 Poprawiała, to lekkim dotknięciem się ręki\
 Muskała włosów pukle i wstąg jasnych pęki.
