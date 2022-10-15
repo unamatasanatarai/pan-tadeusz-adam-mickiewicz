@@ -1,3 +1,4 @@
+«Prosiłbym — rzecze Major — lecz w tym nie ma musu».\
 «Daj Sędzio — szepnął Robak — beczkę spirytusu».\
 I tak, kiedy we dworze sztab wesoły łyka,\
 Za domem zaczęła się w wojsku pijatyka.
