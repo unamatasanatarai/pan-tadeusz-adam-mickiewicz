@@ -1,3 +1,4 @@
+A jeżeli się chybią, rzuci negatywę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na lewej druga scena; refektarz klasztoru\
 Obrócony na salę szlacheckiego zboru.\
