@@ -1,3 +1,4 @@
+Co mi tam Robak: otóż, my będziem robaki,\
 I dalej Moskwę toczyć! Trem, brem, szpiegi, wzwiady;\
 Wiecie wy, co to znaczy? Oto, że wy dziady,\
 Niedołęgi! He, bracia, to wyżła rzecz tropić,\
