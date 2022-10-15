@@ -1,3 +1,4 @@
+Jak dziecię lubi widzieć obrazki jaskrawe\
 I w liczmanach błyszczących znajduje zabawę,\
 Nim rozezna ich wartość: tak się słuch jej pieści\
 Z dźwięcznymi słowy, których nie pojęła treści.\
