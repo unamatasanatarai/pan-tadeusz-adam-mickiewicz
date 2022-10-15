@@ -1,3 +1,4 @@
+Wieleby gadać — jest to ani to, ni owo!\
 Szlachta mnie obaczyła i gwałtem tu wiedzie,\
 A Waszeć za stół sadzasz — dziękuję, sąsiedzie».\
 To wyrzekłszy, przewrócił talerz dnem do góry,\
