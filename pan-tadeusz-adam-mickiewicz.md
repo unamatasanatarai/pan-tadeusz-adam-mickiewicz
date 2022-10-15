@@ -1,3 +1,4 @@
+Sam szarzał się nad rolą długi, wyciągnięty,\
 Skoki pod nim sterczały jakby cztery pręty,\
 Rzekłbyś, że ich nie rusza, tylko ziemię trąca\
 Po wierzchu, jak jaskółka wodę całująca.\
