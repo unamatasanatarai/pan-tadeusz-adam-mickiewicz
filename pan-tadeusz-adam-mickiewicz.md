@@ -1,3 +1,4 @@
+Więc szanują przyjaciół jak pieniądze Żydzi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;To mówiąc, Sędzia gości obejrzał porządkiem;\
 Bo choć zawsze i płynnie mówił, i z rozsądkiem,\
