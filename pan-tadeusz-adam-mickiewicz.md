@@ -1,3 +1,4 @@
+Rachował się ostrożnie, lecz bez oszukaństwa,\
 Ochoty nie zabraniał, nie cierpiał pijaństwa,\
 Zabaw wielki miłośnik: u niego wesele\
 I chrzciny obchodzono, on w każdą niedzielę\
