@@ -1,3 +1,4 @@
+Inni z kątów wtórują. Nareszcie głos gruby\
 Ozwał się przybyłego szlachcica Skołuby:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż to, Państwo Dobrzyńscy! A to co się święci?\
