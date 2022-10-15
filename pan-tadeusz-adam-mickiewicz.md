@@ -1,3 +1,4 @@
+Nazywał się (jak słychać) po polsku Płutowicz,\
 Lecz przechrzcił się; łotr wielki, jak się zwykle dzieje\
 Z Polakiem, który w carskiej służbie zmoskwicieje.\
 Płut stał z fajką przed frontem, w boki się podpierał\
