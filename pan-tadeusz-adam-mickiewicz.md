@@ -1,3 +1,4 @@
+Nad rozkuciem Dobrzyńskich, rozrywają kłody.\
 Widząc to, jegry za broń porywają, biegą.\
 Sierżant wpadłszy bagnetem przebił Podhajskiego,\
 Dwóch drugich szlachty zranił, do trzeciego strzela:\
