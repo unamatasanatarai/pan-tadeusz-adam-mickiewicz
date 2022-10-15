@@ -1,3 +1,4 @@
+Czyś gotów, żebyś ze mną zaraz się ożenił,\
 Zaraz, dziś?... jeśli zechcesz, odstąpię Rejenta».\
 Hrabia rzekł: «O kobieto dla mnie niepojęta!\
 Dawniej w uczuciach twoich byłaś poetyczną,\
