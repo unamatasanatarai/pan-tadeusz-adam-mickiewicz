@@ -1,3 +1,4 @@
+Jak czeladnika, który terminuje lata,\
 Ażeby nabył trochę znajomości świata.\
 Nie dla rang ni orderów! Proszę uniżenie,\
 Ranga moskiewska, order: cóż to za znaczenie?\
