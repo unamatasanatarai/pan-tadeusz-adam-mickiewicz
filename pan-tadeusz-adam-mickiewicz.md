@@ -1,3 +1,4 @@
+Już był w połowie rzeczy: gdy ruch niespodziany\
 Wszczął się na końcu stoła. Jedni coś postrzegli,\
 Wskazują palcem; drudzy oczyma tam biegli,\
 Aż wreszcie wszystkie głowy, jak kłosy schylone\
