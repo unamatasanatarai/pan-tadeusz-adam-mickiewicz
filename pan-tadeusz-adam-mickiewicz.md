@@ -1,3 +1,4 @@
+Powrócili z ostępu dosyć gadatliwi,\
 Lecz gdy zapał ochłonął, myśląc nad obławą,\
 Postrzegają, że wyszli z niej z niewielką sławą:\
 Trzebaż było, ażeby jeden kaptur popi,\
