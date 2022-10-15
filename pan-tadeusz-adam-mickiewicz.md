@@ -1,3 +1,4 @@
+Winszuję ci Majorze, żeś złowił Hrabika:\
 To tłuścioszek, to bogacz, panicz z antenatów;\
 Nie wypuszczaj go z klatki bez trzysta dukatów.\
 A jak weźmiesz, na klasztor daj jakie trzy grosze,\
