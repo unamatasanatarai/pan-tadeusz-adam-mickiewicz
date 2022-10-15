@@ -1,3 +1,4 @@
+Porzuca prymy, bieży z drążkami do basów,\
 Słychać tysiące coraz głośniejszych hałasów;\
 Takt marszu, wojna, atak, szturm; słychać wystrzały,\
 Jęk dzieci, płacze matek. — Tak mistrz doskonały\
