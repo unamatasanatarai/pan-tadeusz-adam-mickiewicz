@@ -1,3 +1,4 @@
+Ani groził kłótnikom więcej, ani fukał;\
 Tylko poprawił kaptur, i ręce za pasem\
 Zatknąwszy, wyszedł cicho z pokoju.
 
