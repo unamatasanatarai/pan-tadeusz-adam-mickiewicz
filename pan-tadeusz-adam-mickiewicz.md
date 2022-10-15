@@ -1,3 +1,4 @@
+Uzbrajamy i szlachtę, i włościan gromadę;\
 Gotowi, Dąbrowskiego czekamy rozkazu;\
 Na koniec, hejże na koń! powstajem od razu!»
 
