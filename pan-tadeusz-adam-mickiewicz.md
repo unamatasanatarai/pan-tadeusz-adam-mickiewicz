@@ -1,3 +1,4 @@
+Jak wielki żagiel, biorąc wszystkie wiatry w siebie,\
 Od południa na zachód leciała po niebie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I była chwila ciszy; i powietrze stało\
