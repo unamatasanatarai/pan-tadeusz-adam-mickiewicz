@@ -1,3 +1,4 @@
+Lub wymowy uczyć się w paryskich kawiarniach.\
 Bo teraz Napoleon, człek mądry a prędki,\
 Nie daje czasu szukać mody i gawędki.\
 Teraz grzmi oręż, a nam starym serca rosną,\
