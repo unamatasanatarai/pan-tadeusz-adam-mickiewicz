@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Maciek stary w pośrodku jeden siedział niemy,\
 I jedna głowa jego była nieruchoma.\
 Przeciw niemu stał Chrzciciel zwieszony rękoma\
