@@ -1,3 +1,4 @@
+Ani gani. Bo zmykać, mając nabój w rurze,\
 Znaczyło po staremu być tchórzem nad tchórze;\
 Toż wystrzelić na oślep (jak to robi wielu),\
 Nie przypuściwszy źwierza, nie wziąwszy do celu,\
