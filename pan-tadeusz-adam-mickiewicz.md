@@ -1,3 +1,4 @@
+Ci chłopi są nie moi, lecz twoi poddani:\
 Nie śmiałbym ich urządzić bez woli ich pani.\
 Teraz, kiedy już mamy Ojczyznę kochaną:\
 Czyliż wieśniacy zyszczą z tą szczęśliwą zmianą\
