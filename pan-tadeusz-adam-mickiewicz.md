@@ -1,3 +1,4 @@
+Wicher kędyś nad sklepem szalał nieruchomym,\
 Jękiem, szumami, wyciem, łoskotami, gromem:\
 Dziwny, odurzający hałas! Mnie się zdało,\
 Że tam nad głową morze wiszące szalało.
