@@ -1,3 +1,4 @@
+Tam, gdzie do pana przywiązańszy sługa\
 Niż w innych krajach małżonka do męża;\
 Gdzie żołnierz dłużej żałuje oręża\
 Niż tu syn ojca; po psie płaczą szczerze\
