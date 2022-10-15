@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na gościńcu i drogach od samego ranka\
 Panuje ruch niezwykły. Stąd chłopska furmanka\
 Skrzypi, lecąc jak poczta; stąd szlachecka bryka\
