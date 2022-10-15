@@ -1,3 +1,4 @@
+Bo już był skrępowany we swym własnym pasie.\
 Przecież zwinął się i tak sprężyście podskoczył,\
 Że padł na piersi sennych, po głowach się toczył,\
 Miotał się jako szczupak, gdy się w piasku rzuca,\
