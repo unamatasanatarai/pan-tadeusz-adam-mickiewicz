@@ -1,3 +1,4 @@
+Lub z wicin bierze ziarna w najlepszym gatunku\
 I zna tajne sposoby gotowania trunku,\
 Który ma czarność węgla, przejrzystość bursztynu,\
 Zapach moki i gęstość miodowego płynu.\
