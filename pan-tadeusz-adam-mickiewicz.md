@@ -1,3 +1,4 @@
+Dyszą nad nim, ust jego tykają wąsami,\
 I czworgiem rąk wokoło wiją jak skrzydłami.\
 Zląkł się, chciał przeżegnać się: darmo rękę chwyta,\
 Ręka prawa jak gdyby do boku przybita;\
