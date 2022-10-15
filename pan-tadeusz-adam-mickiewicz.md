@@ -1,3 +1,4 @@
+Zadrżał Tadeusz, twarz mu pobladła jak trupia,\
 Tupnąwszy nogą, usta ścisnąwszy, rzekł: «Głupia!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Odszedł; lecz wyraz «podłość» echem się powtórzył\
