@@ -1,3 +1,4 @@
+Daje rozkazy, Sędzia wypełnia je ściśle.\
 Prosi Podkomorzego, przyzywa Klucznika,\
 Każe przywieść Rykowa, potem drzwi zamyka.\
 Godzinę całą trwały tajemne rozmowy,\
