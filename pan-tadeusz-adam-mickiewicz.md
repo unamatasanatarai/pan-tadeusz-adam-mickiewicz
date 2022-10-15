@@ -1,3 +1,4 @@
+Stąd ją Sędzia szanował bardzo i przed światem\
 Lubił, może z próżności, nazywać się bratem,\
 Czego mu Telimena przez przyjaźń nie wzbrania.\
 Ulżyły Tadeusza sercu te wyznania.\
