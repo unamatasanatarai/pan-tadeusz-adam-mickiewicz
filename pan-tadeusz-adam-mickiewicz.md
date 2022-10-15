@@ -1,3 +1,4 @@
+Bagnet o szablę, kosa o gifes się łamie,\
 Pięść spotyka się z pięścią i z ramieniem ramię.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Ryków z częścią jegrów pobiegł, gdzie stodoła\
