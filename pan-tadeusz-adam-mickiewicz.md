@@ -1,3 +1,4 @@
+Przecież powiem otwarcie: dziś, te zaręczyny\
 Do skutku przyjść nie mogą; są różne przyczyny...\
 Nie pytaj więcej; jeśli Zosia czekać raczy,\
 Może mnie wkrótce lepszym, godniejszym obaczy,\
