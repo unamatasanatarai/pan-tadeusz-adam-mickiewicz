@@ -1,3 +1,4 @@
+Lub śród zielonej łąki w drobną wody szybę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia zsiadł z konia, sługi odprawił do domu,\
 A sam ku ogrodowi ruszył po kryjomu.\
