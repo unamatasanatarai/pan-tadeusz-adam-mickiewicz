@@ -1,3 +1,4 @@
+I Telimena łączy prośby do łez Zosi,\
 Ażeby miano większy wzgląd na niewolników.\
 Wprawdzie oficer rotny, pan Nikita Ryków,\
 Moskal, lecz dobry człowiek, dał się udobruchać:\
