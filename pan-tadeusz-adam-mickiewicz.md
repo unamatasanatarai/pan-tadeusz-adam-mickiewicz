@@ -1,3 +1,4 @@
+Skąd jest przysłowie: większy Pan Bóg niż pan Rymsza;\
 Ja zaś dołożę, lepszy miód od Scyzoryka».\
 To mówiąc, półgarcówką przepił do Klucznika.
 
