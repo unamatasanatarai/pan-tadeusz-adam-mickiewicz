@@ -1,3 +1,4 @@
+Płuta, adiutant sztabu przyjechał zawczora:\
 Gotować się do marszu! Pójdziem, czy pod Turka,\
 Czy na Francuza; oj ten Bonapart figurka!\
 Bez Suwarowa to on może nas wytuza.\
