@@ -1,3 +1,4 @@
+Że szkło dźwięknąwszy pękło, płyn w oczy mu prysnął.\
 Rzekłbyś, że z winem ognia w duszę się nalało:\
 Tak oblicze spłonęło, tak oko pałało.\
 Zerwał się mówić; pierwsze słowo niewyraźnie\
