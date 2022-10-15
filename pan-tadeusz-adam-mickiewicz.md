@@ -1,3 +1,4 @@
+Choć pani Telimena mieszkała w stolicy\
 I bawi się niedawno w naszej okolicy,\
 Lepiej zna się na łowach niż myśliwi młodzi:\
 Tak to nauka sama z latami przychodzi».
