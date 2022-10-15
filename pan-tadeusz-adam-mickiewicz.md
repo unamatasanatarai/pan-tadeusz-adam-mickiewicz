@@ -1,3 +1,4 @@
+W biegu dotknęła blisko naszego młodziana;\
 Uczepiwszy falbaną o czyjeś kolana,\
 Pośliznęła się nieco i w tym roztargnieniu\
 Na pana Tadeusza wsparła się ramieniu.\
