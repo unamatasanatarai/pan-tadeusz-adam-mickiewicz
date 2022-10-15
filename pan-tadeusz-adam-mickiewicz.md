@@ -1,3 +1,4 @@
+To oni na się jeszcze zapalczywiej godzą.\
 Zmienili broń: od szabel szło na pistolety;\
 Stają, krzyczym, że nadto przybliżyli mety;\
 Oni na złość, przysięgli przez niedźwiedzią skórę\
