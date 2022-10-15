@@ -1,3 +1,4 @@
+Pokazał mu pan Sędzia; siedział biedny zając,\
 Płaszcząc się pod kamieniem, uszy nadstawiając,\
 Okiem czerwonym spotkał myśliwców wejrzenie\
 I jakby urzeczony, czując przeznaczenie,\
