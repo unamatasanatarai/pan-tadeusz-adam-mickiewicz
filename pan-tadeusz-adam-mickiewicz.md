@@ -1,3 +1,4 @@
+I widać z liczby kopic, co wzdłuż i wszerz smugów\
 Świecą gęsto jak gwiazdy, widać z liczby pługów\
 Orzących wcześnie łany ogromne ugoru,\
 Czarnoziemne, zapewne należne do dworu,\
