@@ -1,3 +1,4 @@
+Zasunął wpół powieki, wciągnął w głąb pół brzucha\
 I do płuc wysłał z niego cały zapas ducha,\
 I zagrał: róg jak wicher wirowatym dechem,\
 Niesie w puszczę muzykę i podwaja echem.\
