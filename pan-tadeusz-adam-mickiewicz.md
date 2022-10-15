@@ -1,3 +1,4 @@
+Przewrócił się i w ziemię schowawszy twarz gniewną,\
 Zamknąwszy oczy, leżał nieczuły jak drewno.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem ozwały się bębny; naprzód z rzadka, potem\
