@@ -1,3 +1,4 @@
+A za żonę nie pojmę, tylko równą sobie.\
 Przecież, bodły mi duszę do żywca te żarty:\
 Byłem młody, odważny, świat był mnie otwarty\
 W kraju, gdzie, jako wiecie, szlachcic urodzony\
