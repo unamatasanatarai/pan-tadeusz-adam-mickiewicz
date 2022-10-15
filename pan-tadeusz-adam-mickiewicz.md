@@ -1,3 +1,4 @@
+I dozór policyi, i na winnych kara».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena ku lewej izbie obrócona\
 Wachlując batystową chusteczką ramiona:\
