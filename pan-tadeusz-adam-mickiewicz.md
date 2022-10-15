@@ -1,3 +1,4 @@
+Najjaśniejszy Cesarzu! Litwa ochotnicy!«\
 Pyta: pod czyją wodzą? — »Sędziego Soplicy!«\
 Ach, któż by potem pisnąć śmiał o Targowicy?...\
 Bracie, póki Ponarom stać, Niemnowi płynąć,\
