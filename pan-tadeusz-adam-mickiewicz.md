@@ -1,3 +1,4 @@
+Pan Sędzia go przez grzeczność prosił na wieczerzę.\
 Ryków jadł smaczno, mało wdawał się w rozmowę,\
 Lecz na wzmiankę Warszawy, rzekł podniósłszy głowę:\
 «Pan Podkomorzy! Oj wy! Pan zawsze ciekawy\
