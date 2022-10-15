@@ -1,3 +1,4 @@
+Podkomorzy-Marszałek wziął miejsce zaszczytne:\
 Ze słoniowym poręczem krzesło aksamitne;\
 Obok na prawej stronie jenerał Dąbrowski,\
 Na lewej siadł Kniaziewicz, Pac i Małachowski;\
