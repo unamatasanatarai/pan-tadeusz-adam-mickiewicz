@@ -1,3 +1,4 @@
+Łączą się w Soplicowie: dostatek i sztuka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już wschodził uroczysty dzień *Najświętszej Panny*\
 *Kwietnej*. Pogoda była prześliczna, czas ranny;\
