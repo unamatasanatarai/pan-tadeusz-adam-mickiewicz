@@ -1,3 +1,4 @@
+Z ingrediencyjami pomuchl, figatelów,\
 Cybetów, piżm, dragantów, pinelów, brunelów;\
 Owe ryby: łososie suche, dunajeckie,\
 Wyżyny i kawijary weneckie, tureckie,\
