@@ -1,3 +1,4 @@
+Kto z najpiękniejszym rydzem do stołu przybędzie,\
 Ten obok najpiękniejszej panienki usiędzie:\
 Sam ją sobie wybierze. Jeśli znajdzie dama,\
 Najpiękniejszego chłopca weźmie sobie sama».
