@@ -1,3 +1,4 @@
+Ku pożytecznym oka nie odwrócił.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ten kraj szczęśliwy, ubogi i ciasny,\
 Jak świat jest boży, tak on był nasz własny!\
