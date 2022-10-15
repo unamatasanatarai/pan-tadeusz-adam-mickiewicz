@@ -1,3 +1,4 @@
+To stojąc w kątkach jakby mruki, nie gadają\
 Do siebie, czasem nawet w pole uciekają.\
 Jeżeli na was raptus podobny napada,\
 Bądźcie tylko cierpliwi, już jest na to rada;\
