@@ -1,3 +1,4 @@
+Że znajdą dzisiaj to czarowne słowo,\
 Które rozczuli rozpacz marmurową,\
 Które z serc wieko podejmie kamienne,\
 Rozwiąże oczy, tylą łez brzemienne\
