@@ -1,3 +1,4 @@
+Rejent kłócił się z rana z panem Asesorem,\
 A pan Tadeusz wyzwał Hrabiego wieczorem.\
 Pono spór ten ze skóry niedźwiedziej pochodził;\
 I gdyby mnie Dobrodziej Sędzia nie przeszkodził,\
