@@ -1,3 +1,4 @@
+I spojrzał na plac boju. Widzi, że błyszcząca\
 Fala bagnetów szlachtę bije i roztrąca:\
 Przeciw tej fali płynie; schyla się do ziemi\
 I nurkuje pomiędzy trawami gęstemi,\
