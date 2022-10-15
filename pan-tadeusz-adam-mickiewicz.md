@@ -1,3 +1,4 @@
+Tak rozmyślając smutnie pochylili głowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale je wnet podnieśli, bo mistrz tony wznosi,\
 Natęża, takty zmienia: coś innego głosi.\
