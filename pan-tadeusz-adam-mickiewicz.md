@@ -1,3 +1,4 @@
+Oboje w tym odwrocie mieli nieco trwogi:\
 Telimenie zdało się, że raz spoza krzaka\
 Błysła zakapturzona, chuda twarz Robaka;\
 Tadeusz widział dobrze, jak mu raz i drugi\
