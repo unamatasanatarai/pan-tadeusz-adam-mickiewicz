@@ -1,3 +1,4 @@
+Półgęski tłuste, kumpie, skrzydliki ozoru,\
 Wszystkie wyborne, wszystkie sposobem domowym\
 Uwędzone w kominie dymem jałowcowym;\
 W końcu wniesiono zrazy na ostatnie danie:\
