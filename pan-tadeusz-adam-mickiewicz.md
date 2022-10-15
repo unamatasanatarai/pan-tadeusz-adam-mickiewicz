@@ -1,3 +1,4 @@
+Dzik, niedźwiedź, łoś, wilk, zwany był zwierzem szlacheckim\
 A zwierzę niemające kłów, rogów, pazurów,\
 Zostawiano dla płatnych sług i dworskich ciurów;\
 Żaden pan nigdy przyjąć nie chciałby do ręki\
