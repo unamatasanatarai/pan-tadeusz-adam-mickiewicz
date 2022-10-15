@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tak zginął pan potężny, pobożny i prawy,\
 Który miał w domu krzesła, wstęgi i buławy,\
 Ojciec włościan, brat szlachty; i nie miał po sobie\
