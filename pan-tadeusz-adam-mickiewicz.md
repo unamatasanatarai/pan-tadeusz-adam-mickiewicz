@@ -1,3 +1,4 @@
+Co każdy miał na sercu; nagany, pochwały\
 Strzelców i obławników, ogary, wystrzały\
 Wywoływano na plac; powstawała wrzawa,\
 Miła uchu myśliwców jak druga obława.\
