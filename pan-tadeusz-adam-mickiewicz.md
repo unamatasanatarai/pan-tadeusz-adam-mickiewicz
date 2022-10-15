@@ -1,3 +1,4 @@
+Pan Sędzia nawet mówi, że to źle na zdrowie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Sędzia! — przerwała ciotka — ciągle mi dokuczał\
 Żeby cię na świat wywieść, ciągle pod nos mruczał\
