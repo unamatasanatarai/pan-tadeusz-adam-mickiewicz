@@ -1,3 +1,4 @@
+Słychać, że lud dał imię miotły tej komecie\
 I powiada, że ona milijon wymiecie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;A na to rzekł z ukłonem Wojski: «Prawda, Jaśnie\
