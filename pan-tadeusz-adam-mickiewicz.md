@@ -1,3 +1,4 @@
+Gdy nie widział we dworze rosyjskich żołnierzy\
 Ani jarmułek, ani czerwonych kołnierzy,\
 Wtenczas kim był, wyznawał: był legijonistą,\
 Przynosi kości stare na ziemię ojczystą,\
