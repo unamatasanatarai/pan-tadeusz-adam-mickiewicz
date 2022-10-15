@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Wprawdzie tam, w drugiej kupie, szlachta pilnie słucha.\
 Ten ręce za pas zatknął i przyłożył ucha,\
 Ów dłoń przy uchu trzyma i milczkiem wąs kręci,\
