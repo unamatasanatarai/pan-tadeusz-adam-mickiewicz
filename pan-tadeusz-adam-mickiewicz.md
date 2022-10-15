@@ -1,3 +1,4 @@
+Walczy; zawołał: «Jezus Maryja! Scyzoryku!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Klucznik, trwogę Chrzciciela poznawszy po krzyku,\
 Odwrócił się, i spuścił ostrze płytkiej stali\
