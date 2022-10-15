@@ -1,3 +1,4 @@
+Bo po śmierci Stolnika stałem bezprzytomnie,\
 I nie widziałem, co się działo wokoło mnie.\
 Szczęściem, na odsiecz przyszedł nam Parafianowicz,\
 Przywiódłszy Mickiewiczów dwiestu z Horbatowicz,\
