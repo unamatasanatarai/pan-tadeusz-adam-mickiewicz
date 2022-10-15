@@ -1,3 +1,4 @@
+Prawi tysiąc grzeczności, kłania się, uśmiécha,\
 Czasem oczy wywraca i głęboko wzdycha.\
 Widać przecież, pomimo tak zręczne łudzenie,\
 Że umizgał się tylko na złość Telimenie:\
