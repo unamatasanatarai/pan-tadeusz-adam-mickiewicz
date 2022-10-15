@@ -1,3 +1,4 @@
+Chcecie zostać w pokoju, ja idę na rydze;\
 Kto łaska, proszę za mną» — rzekła, koło głowy\
 Obwijając czerwony szal kaszemirowy;\
 Córeczkę Podkomorstwa wzięła w jedną rękę,\
