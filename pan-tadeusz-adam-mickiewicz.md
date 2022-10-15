@@ -1,3 +1,4 @@
+Głowa niknie; raz jeszcze jakby kto kutasem\
 Mignął: w las wpadła; ogon urwał się pod lasem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biedne psy, ogłupiałe, biegały pod gajem,\
