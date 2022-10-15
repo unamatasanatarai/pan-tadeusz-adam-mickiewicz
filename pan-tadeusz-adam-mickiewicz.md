@@ -1,3 +1,4 @@
+Nie uwierzyli nigdy w te Wojskiego wnioski\
 I trzymali inaczej o muszym rodzaju;\
 Lecz Wojski nie odstąpił dawnego zwyczaju:\
 Ledwo dostrzegł takową muchę, wnet ją gonił.\
