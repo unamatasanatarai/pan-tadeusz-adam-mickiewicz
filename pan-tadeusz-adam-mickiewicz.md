@@ -1,3 +1,4 @@
+Przypominając sobie ze łzami boleści\
 *Rzeź Pragi*, którą znały z pieśni i z powieści,\
 Rade, że mistrz na koniec strunami wszystkiemi\
 Zagrzmiał, i głosy zdusił, jakby wbił do ziemi.
