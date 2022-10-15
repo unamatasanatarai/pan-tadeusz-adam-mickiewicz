@@ -1,3 +1,4 @@
+Ciągle od Kropiciela do Macieja ławy.\
 Konewka zaś powoli wszerz izbę przechodził\
 Od Dobrzyńskich do szlachty: niby to ich godził;\
 Jeden wciąż wołał «Golić» a drugi «Zalewać!»\
