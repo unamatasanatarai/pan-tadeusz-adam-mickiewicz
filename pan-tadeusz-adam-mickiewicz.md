@@ -1,3 +1,4 @@
+Goszcząc, polował niegdyś z królmi murzyńskiemi\
 I tam tygrysa spisą w ręcznym boju zwalił,\
 Z czego się bardzo książę ów Denassów chwalił.\
 U nas zaś polowano na dziki w tę porę;\
