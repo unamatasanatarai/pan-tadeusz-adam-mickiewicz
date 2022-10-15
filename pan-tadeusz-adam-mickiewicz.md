@@ -1,3 +1,4 @@
+Tyle wdzięków w tajemnej nimfie upatrywał,\
 W tyle ją cudów ubrał, tyle odgadywał!\
 Wszystko znalazł inaczej: prawda, że twarz ładną,\
 Kibić miała wysmukłą, ale jak nieskładną!\
