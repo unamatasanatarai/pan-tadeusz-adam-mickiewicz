@@ -1,3 +1,4 @@
+Do tych pól malowanych zbożem rozmaitem,\
 Wyzłacanych pszenicą, posrebrzanych żytem;\
 Gdzie bursztynowy świerzop, gryka jak śnieg biała,\
 Gdzie panieńskim rumieńcem dzięcielina pała,\
