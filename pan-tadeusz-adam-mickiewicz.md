@@ -1,3 +1,4 @@
+I złożywszy ojcowski całus na jej czole,\
 Podniósł w górę dziewczynę, postawił na stole,\
 A wszyscy klaszcząc w dłonie zawołali: «Brawo!»\
 Zachwyceni dziewczyny urodą, postawą,\
