@@ -1,3 +1,4 @@
+Która ma wsławiać nasze ostępy i knieje,\
 Która niestety, i tak zaniedbuje łowy,\
 Może do ich wzgardzenia weźmie pochop nowy.\
 Widząc, że ci, co innym mają dać przykłady,\
