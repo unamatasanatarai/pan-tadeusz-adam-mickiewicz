@@ -1,3 +1,4 @@
+Umilkli strzelcy, stali szczwacze zadziwieni\
 Mocą, czystością, dziwną harmoniją pieni.\
 Starzec cały kunszt, którym niegdyś w lasach słynął,\
 Jeszcze raz przed uszami myśliwców rozwinął;\
