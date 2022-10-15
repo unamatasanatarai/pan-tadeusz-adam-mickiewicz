@@ -1,3 +1,4 @@
+Gdy wnuki ciężki jego miecz ciągną ze ściany,\
 Dziad śmieje się, choć miecza dawno nie miał w dłoni,\
 Lecz uczuł, że dłoń jeszcze nie zawiedzie broni.
 
