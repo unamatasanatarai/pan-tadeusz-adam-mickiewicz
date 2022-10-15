@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Między stawami w rowie młyn ukryty siedzi.\
 Jako stary opiekun, co kochanków śledzi,\
 Podsłuchał ich rozmowę, gniewa się, szamoce,\
