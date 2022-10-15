@@ -1,3 +1,4 @@
+Masz ludzkie serce!
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Stolnik rzekł: »Panie Soplica,\
 Właśnie przyjechał do mnie swat kasztelanica;\
