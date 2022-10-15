@@ -1,3 +1,4 @@
+Nazajutrz daremnie go szukano we dworze,\
 Daremnie wyznaczano za trupa nagrodę:\
 Major zginął bez śladu, jak gdyby wpadł w wodę.\
 Co się z nim stało, różnie powiadano o tem,\
