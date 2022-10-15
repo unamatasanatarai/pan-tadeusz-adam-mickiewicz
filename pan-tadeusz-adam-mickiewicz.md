@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wyleciawszy przez bramę, biegł prosto na pole.\
 Jak szczupak, gdy mu oścień skróś piersi przekole,\
 Pluska się i nurtuje, myśląc że uciecze,\
