@@ -1,3 +1,4 @@
+Trochę z ludźmi, obaczysz, jak się ja poprawię».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Już — rzekła ciotka — z dwojga złego, lepiej z ptastwem,\
 Niż z tym, co u nas dotąd gościło plugastwem;\
