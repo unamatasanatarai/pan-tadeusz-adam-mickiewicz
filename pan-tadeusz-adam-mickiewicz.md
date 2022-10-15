@@ -1,3 +1,4 @@
+Jakiej człowiek nie widział i dzieje nie pomną;\
 Obok Francuzów ciągnie polskie wojsko całe,\
 Nasz Józef, nasz Dąbrowski, nasze orły białe!\
 Już są w drodze; na pierwszy znak Napoleona\
