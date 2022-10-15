@@ -1,3 +1,4 @@
+Zapłoniwszy się, gości witała dygnieniem\
 (Od Telimeny pięknie dygać wyuczona).\
 Miała wianek na głowie jako narzeczona,\
 Zresztą ubiór ten samy, w jakim dziś w kaplicy\
