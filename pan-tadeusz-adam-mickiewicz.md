@@ -1,3 +1,4 @@
+Nie szukać prawodawstwa w drukarskich kramarniach\
 Lub wymowy uczyć się w paryskich kawiarniach.\
 Bo teraz Napoleon, człek mądry a prędki,\
 Nie daje czasu szukać mody i gawędki.\
