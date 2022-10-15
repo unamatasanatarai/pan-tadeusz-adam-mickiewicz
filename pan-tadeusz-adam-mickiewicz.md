@@ -1,3 +1,4 @@
+Hrabia rzekł: «O kobieto dla mnie niepojęta!\
 Dawniej w uczuciach twoich byłaś poetyczną,\
 A teraz mi się zdajesz całkiem prozaiczną!\
 Cóż są wasze małżeństwa, jeśli nie łańcuchy,\
