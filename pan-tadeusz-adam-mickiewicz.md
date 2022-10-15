@@ -1,3 +1,4 @@
+I lał srebrzysty likwor w kolej, aż na końcu\
 Zaczęło złoto kapać i błyskać na słońcu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W kociołkach bigos grzano. W słowach wydać trudno\
