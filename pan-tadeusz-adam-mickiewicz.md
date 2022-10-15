@@ -1,3 +1,4 @@
+Sam pada i podbija Gerwazemu nogę:\
 Upadli, właśnie kiedy pluton ognia dawał.\
 Ledwie ołów prześwisnął, już Gerwazy wstawał,\
 Już wskoczył w dym, dwóm jegrom zaraz głowy zmiata\
