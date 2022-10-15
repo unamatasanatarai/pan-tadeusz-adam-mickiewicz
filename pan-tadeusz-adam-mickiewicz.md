@@ -1,3 +1,4 @@
+Aż na dygnienie Zosi krzyknęła z rozpaczy:\
 «Ja nieszczęśliwa! Zosiu, widzisz co to znaczy\
 Żyć z gęśmi, z pastuchami! Tak nogi rozszerzasz\
 Jak chłopiec, okiem w prawo i w lewo uderzasz,\
