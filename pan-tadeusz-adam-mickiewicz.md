@@ -1,3 +1,4 @@
+Pogubiwszy owoce na liściach zawisał,\
 I wśród fali zielonej jeszcze się kołysał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po chwili wszędzie było samotnie i głucho.\
