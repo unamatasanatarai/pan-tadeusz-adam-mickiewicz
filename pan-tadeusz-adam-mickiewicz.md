@@ -1,3 +1,4 @@
+Iż ten pierścień Sędziemu w salarijum złożę».\
 «Ja — rzekł Asesor — stawię me złote obroże,\
 Jaszczurem wykładane, z kółkami ze złota,\
 I smycz tkany jedwabny, którego robota\
