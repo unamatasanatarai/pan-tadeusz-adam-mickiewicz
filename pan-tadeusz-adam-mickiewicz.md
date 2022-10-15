@@ -1,3 +1,4 @@
+A lewą wziął się pod bok. Tak oburącz wsparty,\
 «Podkomorzeńku! — krzyknął — wolne pańskie żarty,\
 Wróbel mniejszy niż puszczyk, a na swoich wiorach\
 Śmielszy jest aniżeli puszczyk w cudzych dworach:\
