@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem rzekł Rejent: «Stawiłem niegdyś konia z rzędem,\
 Opisałem się także przed ziemskim urzędem,\
 Iż pierścień mój sędziemu w salarijum złożę:\
