@@ -1,3 +1,4 @@
+Nie zaś o Tadeuszu».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na to Klucznik rzecze:\
 «Dziwne są sprawy w świecie, kto wszystko dociecze!\
