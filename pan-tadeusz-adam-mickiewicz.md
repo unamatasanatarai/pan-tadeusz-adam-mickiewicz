@@ -1,3 +1,4 @@
+Ani był na kiermaszu, ani na weselu;\
 Odtąd jego dowcipnych żartów nie słyszano,\
 I uśmiechu na jego twarzy nie widziano.\
 Zawsze nosił Horeszków liberyją dawną;\
