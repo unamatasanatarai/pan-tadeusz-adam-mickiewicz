@@ -1,3 +1,4 @@
+Przejdą Niemen i — bracie! Ojczyzna wskrzeszona!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia, słuchając, z wolna okulary składał\
 I, wpatrując się mocno w księdza, nic nie gadał,\
