@@ -1,3 +1,4 @@
+Tu ich strach zdjął; dziwią się, że o klęsce owej\
 Już wiemy; krzyczą Niemcy: «Achary Got! o wej!»\
 Spuściwszy nos, do domów, z domów dalej w nogi —\
 O, to był rwetes! Wszystkie wielkopolskie drogi\
