@@ -1,3 +1,4 @@
+Bydło pasą nie w łapciach z kory, lecz w trzewiczkach,\
 I żną zboże, a nawet przędzą w rękawiczkach.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Różnili się Dobrzyńscy między Litwą bracią\
