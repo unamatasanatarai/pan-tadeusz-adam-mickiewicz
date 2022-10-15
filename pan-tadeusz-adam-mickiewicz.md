@@ -1,3 +1,4 @@
+Wrócili oba, każdy pokłuty jak sito.\
 Pan Pociej, zacny człowiek, chciał zaraz po wojnie\
 Obrońcę Dobrzyńskiego wynagrodzić hojnie;\
 Dawał mu folwark pięciu dymów w dożywocie\
