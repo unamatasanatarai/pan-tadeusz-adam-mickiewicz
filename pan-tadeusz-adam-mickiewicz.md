@@ -1,3 +1,4 @@
+Darmo się Podkomorzy zostać przy niej sili:\
 Zazdrośnicy już z pierwszej pary go odbili;\
 I szczęśliwy Dąbrowski niedługo się cieszył,\
 Ustąpił ją drugiemu; a już trzeci spieszył;\
