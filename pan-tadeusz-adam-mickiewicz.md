@@ -1,3 +1,4 @@
+Miejcie też wzgląd powinny dla mych włosów siwych;\
 Bo znałem większych dawniej niźli wy myśliwych,\
 A sądziłem ich nieraz sądem polubownym.\
 Któż był w lasach litewskich Rejtanowi równym?\
