@@ -1,3 +1,4 @@
+Z wieku mu i z urzędu ten zaszczyt należy,\
 Idąc kłaniał się damom, starcom i młodzieży;\
 Za nim szedł kwestarz, Sędzia tuż przy bernardynie.\
 Sędzia u progu rękę dał Podkomorzynie,\
