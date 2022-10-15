@@ -1,3 +1,4 @@
+Tamten psiarnię zawołał, ów źwierza nawrócił\
 Znowu w ostęp. Asesor z Rejentem się kłócił,\
 Jeden wielbiąc przymioty swojej Sanguszkówki,\
 Drugi bałabanowskiej swej Sagalasówki.
