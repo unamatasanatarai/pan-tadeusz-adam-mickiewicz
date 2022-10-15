@@ -1,3 +1,4 @@
+Teraz zbiega się tłumnie, pasterzy nie czeka\
 I opuszczając strawę do domu ucieka.\
 Buhaj racicą ziemię kopie, orze rogiem,\
 I całą trzodę straszy ryczeniem złowrogiem;\
