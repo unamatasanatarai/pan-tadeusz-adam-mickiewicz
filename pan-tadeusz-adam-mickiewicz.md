@@ -1,3 +1,4 @@
+Zawitali! Służyłem ja z nimi przed laty;\
 Pamiętam, dzielne były z nich konfederaty!\
 Gdyby nieboszczyk pan mój Stolnik dożył chwili!\
 O Jacku! Jacku!... lecz cóż będziemy kwilili?\
