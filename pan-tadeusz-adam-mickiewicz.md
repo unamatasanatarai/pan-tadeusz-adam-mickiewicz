@@ -1,3 +1,4 @@
+Tam siedzi: wystraszyć go łacno z rozsadniku\
 I uszczuć, postawiwszy charty na przesmyku.\
 Bieży Asesor, ciągnąc za obróż Sokoła;\
 Pośpiesza za nim Rejent i Kusego woła.\
