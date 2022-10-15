@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nad Soplicowem słońce weszło i już padło\
 Na strzechy i przez szpary w stodołę się wkradło;\
 I po ciemnozielonym, świeżym, wonnym sianie,\
