@@ -1,3 +1,4 @@
+Mając już i znaczenie, i znajomość świata.\
 I cóż brat myśli o tym?» — «Jużci, w młode lata —\
 Rzekł Sędzia — nieźle chłopcu trochę się przewietrzyć,\
 Obejrzeć się na świecie, między ludźmi przetrzéć;\
