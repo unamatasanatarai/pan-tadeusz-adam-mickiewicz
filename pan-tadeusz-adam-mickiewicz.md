@@ -1,3 +1,4 @@
+Tak pełno wszędzie głazów i ostrych kamieni...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mądrze rzecz wyłuszczali szczwacze doświadczeni;\
 Myśliwi z tych mów wiele mogliby korzystać,\
