@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Karczma z przodu jak korab, z tyłu jak świątynia:\
 Korab, istna Noego czworogranna skrzynia,\
 Znany dziś pod prostackim nazwiskiem stodoły;\
 Tam różne są zwierzęta, konie, krowy, woły,\
