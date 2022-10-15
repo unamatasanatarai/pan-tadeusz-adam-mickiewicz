@@ -1,3 +1,4 @@
+Aż, gdy zaczęto sławić cudzoziemskie gaje,\
 I wyliczać z kolei wszystkich drzew rodzaje:\
 Pomarańcze, cyprysy, oliwki, migdały,\
 Kaktusy, aloesy, mahonie, sandały,\
