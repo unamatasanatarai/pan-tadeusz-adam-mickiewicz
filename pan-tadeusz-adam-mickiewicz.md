@@ -1,3 +1,4 @@
+Ja wtenczas, zły i pjany, milczał jak owieczka,\
 Jak gdybym Sanktissimum ujrzał!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ileż to razy chciałem serce me otworzyć,\
