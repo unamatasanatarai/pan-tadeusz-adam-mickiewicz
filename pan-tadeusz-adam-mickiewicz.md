@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski stary od izby do izby przechodził,\
 Po obu stronach oczy roztargnione wodził,\
 Nie mieszał się w myśliwych ni w starców rozmowę\
