@@ -1,3 +1,4 @@
+Lub wiesz co, wyszlem kogo z naszych poruczników.\
 Ja, major, ja nie mogę odstąpić żołnierzy,\
 Do mnie batalijonu komenda należy».\
 Słysząc to Ryków, szpadę podniósł, wyszedł śmiało,\
