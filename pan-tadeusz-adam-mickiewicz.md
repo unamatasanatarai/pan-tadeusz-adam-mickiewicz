@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena zdziwiona i prawie wylękła\
 Podnosiła się coraz, na szalu uklękła;\
 Zrazu słuchała pilnie, potem dłoni ruchem\
