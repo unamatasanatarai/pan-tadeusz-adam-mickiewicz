@@ -1,3 +1,4 @@
+Sędzia porwał mu rękę: «Stój pan, to rzecz nasza,\
 Mnie tu naprzód wyzwano. Protazy, pałasza!\
 Puszczę go w taniec jako niedźwiadka na kiju».\
 Lecz Tadeusz Sędziego wstrzymał: «Panie stryju,\
