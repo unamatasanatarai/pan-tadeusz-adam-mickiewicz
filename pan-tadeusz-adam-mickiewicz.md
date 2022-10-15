@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gerwazego nie było; ruszył na obławę,\
 Nie chcąc, aby tak ważną i trudną wyprawę\
 Odbył sam Hrabia, młody i niedoświadczony;\
 Poszedł więc z nim dla rady tudzież dla obrony.
