@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Tymczasem\
 Podkomorzy i Sędzia między dwiema strony\
 Plac zajęli. Pan Wojski, jakby przebudzony\
 Z głębokiego dumania, w środku się postawił,\
