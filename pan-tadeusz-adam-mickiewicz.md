@@ -1,3 +1,4 @@
+Asesor zaś dowodził na złość Rejentowi,\
 Że ta chwała należy chartu Sokołowi.\
 Pytano zdania innych; więc wszyscy dokoła\
 Brali stronę Kusego albo też Sokoła,\
