@@ -1,3 +1,4 @@
+Krzyknął: «Cel!» — rury rzędem zabłysnęły długim;\
 Krzyknął: «Ognia koleją!» — grzmią jeden po drugim.\
 Ten strzela, ten nabija, ten chwyta do ręki,\
 Słychać świsty kul, zamków chrzęsty, sztenflów dźwięki:\
