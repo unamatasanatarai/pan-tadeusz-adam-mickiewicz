@@ -1,3 +1,4 @@
+Przerwał je starzec, trzęsąc wzniesioną prawicą:\
 «Nie masz zgody, mopanku, pomiędzy Soplicą\
 I krwią Horeszków; w panu krew Horeszków płynie,\
 Jesteś krewnym Stolnika, po matce łowczynie,\
