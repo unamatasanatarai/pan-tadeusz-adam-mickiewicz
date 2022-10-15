@@ -1,3 +1,4 @@
+Odmieniwszy przydomek, ochrzcił się *Zabokiem*;\
 Toż *Królikiem* Dobrzyńscy mianują go sami,\
 A Litwini nazwali *Maćkiem nad Maćkami*.
 
