@@ -1,3 +1,4 @@
+Kity bogate, rzędy, cudne karabele.\
 Skarbczyk Stolnika, w ziemi skryty od grabieży,\
 Pani Zofii jako dziedziczce należy;\
 Pilnowałem go w zamku jako oka w głowie,\
