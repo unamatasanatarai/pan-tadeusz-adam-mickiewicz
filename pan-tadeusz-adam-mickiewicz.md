@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Rejent spuścił ku piersiom zasępione czoło,\
 Asesor rzucał okiem, ale niewesoło;\
 Potem zaczęli oba słuchaczom wywodzić:\
