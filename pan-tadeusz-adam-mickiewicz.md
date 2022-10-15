@@ -1,3 +1,4 @@
+Zagaimy swatowstwo i resztę ułożym».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przez ten czas Telimena ostygła z zapału:\
 «Ja nic nie rekuzuję, braciszku, pomału!\
