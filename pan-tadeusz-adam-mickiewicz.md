@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nieco wyżej *Dawida wóz*, gotów do jazdy,\
 Długi dyszel kieruje od polarnej gwiazdy.\
 Starzy Litwini wiedzą o rydwanie owym,\
