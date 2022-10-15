@@ -1,3 +1,4 @@
+Głosiła, że on pierwszy przywiózł z zagranicy\
 I upowszechnił wówczas, w tamecznym powiecie,\
 Ową piosenkę, sławną dziś na całym świecie,\
 A którą po raz pierwszy na ziemi Auzonów\
