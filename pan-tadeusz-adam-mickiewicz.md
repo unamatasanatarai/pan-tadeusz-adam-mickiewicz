@@ -1,3 +1,4 @@
+Nigdy we dwóch nie strzelać do jednej źwierzyny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie Wojski wymawiał to słowo: *źwierzyny*,\
 Gdy Asesor półgębkiem podszepnął: *dziewczyny*;\
