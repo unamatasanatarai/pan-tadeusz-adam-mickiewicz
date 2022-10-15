@@ -1,3 +1,4 @@
+Panicz bogaty, krewny Horeszków daleki,\
 Przyjechawszy z wojażu upodobał mury,\
 Tłumacząc, że gotyckiej są architektury;\
 Choć Sędzia z dokumentów przekonywał o tem,\
