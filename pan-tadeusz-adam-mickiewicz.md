@@ -1,3 +1,4 @@
+A drugie żywcem wiąże do pasa kontusza.\
 Próżno gęsi szyjami wywijając, chrypią,\
 Próżno gęsiory sycząc, napastnika szczypią;\
 On bieży osypany iskrzącym się puchem,\
