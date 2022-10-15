@@ -1,3 +1,4 @@
+I zgasło. I wnet sierpy gromadnie dzwoniące\
 We zbożach, i grabliska suwane po łące,\
 Ucichły i stanęły: tak pan Sędzia każe,\
 U niego ze dniem kończą pracę gospodarze.\
