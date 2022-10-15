@@ -1,3 +1,4 @@
+Tak ów młyn nagle zatrząsł mchem obrosłe czoło\
 I palczastą swą pięścią wykręcając wkoło,\
 Ledwo klęknął i szczęki zębowate ruszył,\
 Zaraz miłośną stawów rozmowę zagłuszył\
