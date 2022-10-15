@@ -1,3 +1,4 @@
+Świeciły jak korona na świętych obrazku.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zerwał się i widzenie zaraz uleciało\
 Przestraszone łoskotem; czekał, nie wracało!\
