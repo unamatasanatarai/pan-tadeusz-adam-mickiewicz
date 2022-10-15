@@ -1,3 +1,4 @@
+Za Podkomorzym szereg w pary się gromadzi,\
 Dano hasło, zaczęto taniec: on prowadzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nad murawą czerwone połyskają buty,\
