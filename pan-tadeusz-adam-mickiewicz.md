@@ -1,3 +1,4 @@
+«Piję zdrowie Robaka, Wojski, w ręce wasze!\
 Jeśli datkiem nie możem kwestarza zbogacić,\
 Postaramy się przecież za proch mu zapłacić:\
 Uręczamy, że niedźwiedź zabity dziś w boru\
