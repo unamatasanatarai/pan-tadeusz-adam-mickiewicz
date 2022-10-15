@@ -1,3 +1,4 @@
+Chwyta wszystkich za serca, myśl wszystkich odmienia,\
 Studzi gniewy, zapala potrzebę jedzenia.\
 Marszem i całodziennym znużeni sejmikiem,\
 «Jeść! jeść!» po trzykroć zgodnym wezwali okrzykiem,\
