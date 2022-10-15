@@ -1,3 +1,4 @@
+Beczki starej siwuchy, dębniaku i piwa.\
 Jedne wnet odgwożdżono, a drugie ochoczo\
 Szlachta, gęsta jak mrowie, porywają, toczą\
 Do zamku; tam na nocleg cały tłum się zbiera,\
