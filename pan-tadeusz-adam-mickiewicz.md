@@ -1,3 +1,4 @@
+Skarbcem ojczyzny zawsze są Jego ołtarze.\
 Wszakże w Warszawskim Księstwie mamy sto tysięcy\
 Wojska polskiego, może wkrótce będzie więcéj:\
 A któż wojsko opłaci? czy nie wy, Litwini?\
