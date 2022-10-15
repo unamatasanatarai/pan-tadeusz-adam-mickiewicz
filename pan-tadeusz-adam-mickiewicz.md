@@ -1,3 +1,4 @@
+A idźże mi waść wreszcie z tą zgodą do licha! —\
 Przerwał Sędzia, tupnąwszy nogą — patrzcie mnicha!\
 Że go przyjmuję grzecznie, chce mnie za nos wodzić!\
 Wiedz wasze, że Soplice nie zwykli się godzić:\
