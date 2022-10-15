@@ -1,3 +1,4 @@
+A jak się popisała? To jej nie nowina:\
 Nie puści ona na wiatr żadnego ładunku.\
 Od książęcia Sanguszki mam ją w podarunku».\
 Tu pokazywał strzelbę przedziwnej roboty,\
