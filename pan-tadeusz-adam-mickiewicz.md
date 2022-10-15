@@ -1,3 +1,4 @@
+Wychodzą na dziedziniec używać wieczoru;\
 Zasiadają na przyzbach wysłanych murawą.\
 Całe grono z posępną i cichą postawą\
 Pogląda w niebo, które zdawało się zniżać,\
