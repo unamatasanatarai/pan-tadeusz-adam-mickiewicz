@@ -1,3 +1,4 @@
+Czy szerpentyną, czyli nawet z pistoletu.\
 Spór wasz trudno pogodzić, więc dawnym zwyczajem,\
 Na pojedynek nasze pozwolenie dajem.\
 Pamiętam, za mych czasów żyło dwóch sąsiadów,\
