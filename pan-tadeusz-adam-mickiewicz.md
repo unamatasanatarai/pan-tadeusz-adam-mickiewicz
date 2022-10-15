@@ -1,3 +1,4 @@
+Ostatniego z rodziny Horeszków Stolnika,\
 Z małych drzwiczek, ukrytych pomiędzy filary,\
 Wysunęła się cicho postać, na kształt mary:\
 Gerwazy; poznano go po wzroście, po licach,\
