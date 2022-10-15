@@ -1,3 +1,4 @@
+A wszyscy klaszcząc w dłonie zawołali: «Brawo!»\
 Zachwyceni dziewczyny urodą, postawą,\
 A szczególniej jej strojem litewskim, prostaczym.\
 Bo dla tych wodzów, którzy w swym życiu tułaczym\
