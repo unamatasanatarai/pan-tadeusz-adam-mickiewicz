@@ -1,3 +1,4 @@
+Okręcił się Tadeusz: aż Kropiciel wpada\
 Na Rykowa, a za nim szlachta krzycząc: «Zdrada!»\
 Tadeusz go zasłania. Ledwie zdołał Ryków\
 Zrejterować się i wpaść we środek swych szyków.
