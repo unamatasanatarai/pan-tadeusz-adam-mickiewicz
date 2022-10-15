@@ -1,3 +1,4 @@
+U niego ze dniem kończą pracę gospodarze.\
 «Pan świata wie, jak długo pracować potrzeba;\
 Słońce, Jego robotnik, kiedy znijdzie z nieba,\
 Czas i ziemianinowi ustępować z pola».\
