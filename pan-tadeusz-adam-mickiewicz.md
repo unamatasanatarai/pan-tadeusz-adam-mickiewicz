@@ -1,3 +1,4 @@
+On, poznałem Rykowa, wiązał mych dżokejów.\
 Skarzę, go, jakom zbójców skarał pod opoką,\
 Którą Sycylijanie zwą Birbante-rokko».
 
