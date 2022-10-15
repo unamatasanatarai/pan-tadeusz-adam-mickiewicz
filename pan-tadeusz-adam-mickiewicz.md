@@ -1,3 +1,4 @@
+Stoją na szańcach Pragi, na stosach Moskali,\
 Siekąc wrogów, a Praga już się wkoło pali.\
 Nawet stary stojący zegar kurantowy\
 W drewnianej szafie poznał, u wniścia alkowy;\
