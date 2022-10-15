@@ -1,3 +1,4 @@
+Bo młodzieńcowi młodą jest każda kobiéta,\
 Chłopcowi każda piękność zda się rówiennicą,\
 A niewinnemu każda kochanka dziewicą.
 
