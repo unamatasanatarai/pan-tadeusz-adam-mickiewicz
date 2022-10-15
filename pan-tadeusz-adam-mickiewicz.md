@@ -1,3 +1,4 @@
+Dla wieku, urodzenia, rozumu, urzędu.\
 Tym ładem, mawiał, domy i narody słyną,\
 Z jego upadkiem domy i narody giną.\
 Więc do porządku wykli domowi i słudzy;\
