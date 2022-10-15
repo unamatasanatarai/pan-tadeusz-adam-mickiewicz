@@ -1,3 +1,4 @@
+Pobudkę Kościuszkowską trąbią ci nad uchem?\
 Maćku, myśliłem że ty większym jesteś zuchem!\
 Jeśli szabli nie weźmiesz i na koń nie siędziesz,\
 Przynajmniej z kolegami wesoło pić będziesz\
