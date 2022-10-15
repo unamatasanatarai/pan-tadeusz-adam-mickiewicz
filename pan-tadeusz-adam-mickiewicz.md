@@ -1,3 +1,4 @@
+Gdy nagle Telimena zrywa się z siedzenia,\
 Rzuca się w prawo, w lewo, skacze skróś strumienia,\
 Rozkrzyżowana, z włosem rozpuszczonym, blada,\
 Pędzi w las, podskakuje, przyklęka, upada,\
