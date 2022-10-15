@@ -1,3 +1,4 @@
+Leżą, podobne uczcie nocnej, gdzie na Dziady\
 Zgromadzać się zaklęte mają nieboszczyki.\
 Już na poddaszu trzykroć krzyknęły puszczyki\
 Jak guślarze: zdają się witać wschód miesiąca,\
