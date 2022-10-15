@@ -1,3 +1,4 @@
+A wtem dojeżdżacz dzika ruszył niespodzianie,\
 Dał znak i wrzask powstaje w strzelców i psów tłuszczy,\
 Jak gdyby się ozwały wszystkie drzewa puszczy:\
 Tak dzieje się z rozmową. Z wolna się pomyka:\
