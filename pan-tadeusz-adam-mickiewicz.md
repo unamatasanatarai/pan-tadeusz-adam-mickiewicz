@@ -1,3 +1,4 @@
+Pojedynek ten wiele narobił hałasu;\
 Pieśni o nim śpiewano za owego czasu.\
 Ja byłem sekundantem; jak się wszystko działo,\
 Opowiem od początku historyję całą...»
