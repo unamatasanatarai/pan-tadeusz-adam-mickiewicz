@@ -1,3 +1,4 @@
+Przygotujemy wszystko; lecz wyjść nie czas jeszcze:\
 Ja sam wyznaczę miejsce i czas wam obwieszczę.\
 Wiem, że car wysiał gońców do Napoleona\
 Prosić o pokój; wojna nie jest ogłoszona:\
