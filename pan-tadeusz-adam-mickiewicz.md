@@ -1,3 +1,4 @@
+Wszak wolność nie jest chłopska rzecz, ale szlachecka!\
 Prawda, że się wywodzim wszyscy od Adama,\
 Alem słyszał, że chłopi pochodzą od Chama,\
 Żydowie od Jafeta, my szlachta od Sema,\
