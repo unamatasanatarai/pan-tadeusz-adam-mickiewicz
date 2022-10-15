@@ -1,3 +1,4 @@
+Podają krzesło, usiadł, cymbały przynoszą,\
 Kładą mu na kolanach. On patrzy z rozkoszą\
 I z dumą: jak weteran w służbę powołany,\
 Gdy wnuki ciężki jego miecz ciągną ze ściany,\
