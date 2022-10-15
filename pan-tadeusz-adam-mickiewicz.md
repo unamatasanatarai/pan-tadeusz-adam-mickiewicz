@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem Rejenta nadobna kochanka,\
 Telimena, roztacza blaski swej urody,\
 I ubiór, od stóp do głów co najświeższej mody.\
