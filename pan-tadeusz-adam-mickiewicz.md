@@ -1,3 +1,4 @@
+Co krok wszerz wydyma się, roztwiera ku górze,\
 I ogromną swą trąbą otrębuje burzę.\
 Aż z całym tym chaosem wody i kurzawy,\
 Słomy, liścia, gałęzi, wydartej murawy,\
