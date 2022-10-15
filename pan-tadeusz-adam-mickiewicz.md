@@ -1,3 +1,4 @@
+Rumienił się, serce mu biło nadzwyczajnie:\
 Więc rozwiązane widział swych domysłów tajnie!\
 Więc było przeznaczono, by przy jego boku\
 Usiadła owa piękność widziana w pomroku!\
