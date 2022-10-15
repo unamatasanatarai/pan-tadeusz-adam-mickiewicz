@@ -1,3 +1,4 @@
+Taka była zawziętość w tym maleńkim lichu.\
 Baby patrząc na Zosię, gadały po cichu,\
 Że pewnie przeznaczeniem będzie tej dziewczyny\
 Pogodzić dwie od dawna zwaśnione rodziny.\
