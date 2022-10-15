@@ -1,3 +1,4 @@
+Dla swego drobiu, szkodę w gospodarstwie czyni.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Usłyszała wołanie: «Zosiu!» To głos cioci!\
 Sypnęła razem ptastwu ostatek łakoci,\
