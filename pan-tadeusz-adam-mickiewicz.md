@@ -1,3 +1,4 @@
+Jeśli dziób twój szanujesz, dość mi tego krzyku».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Gerwazy groźbą wcale się nie strwożył;\
 Prawą rękę poważnie na zegar położył,\
