@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Lecz tam na korytarzu, Państwo uważacie\
 Tego starego księdza, co idzie w ornacie:\
 To przeor; Sanktissimum z ołtarza wynosi,\
 A chłopiec w komży dzwoni i na ustęp prosi.\
