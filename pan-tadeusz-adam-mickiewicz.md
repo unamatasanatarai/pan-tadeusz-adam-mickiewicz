@@ -1,3 +1,4 @@
+Telimena uważa znawczyni oczyma,\
 Musztruje siostrzenicę, gniewa się i zżyma;\
 Aż na dygnienie Zosi krzyknęła z rozpaczy:\
 «Ja nieszczęśliwa! Zosiu, widzisz co to znaczy\
