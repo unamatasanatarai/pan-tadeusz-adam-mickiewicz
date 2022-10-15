@@ -1,3 +1,4 @@
+Znowu jakby w niedźwiedzie rozwarłszy się gardło,\
 Ryknął; potem beczenie żubra wiatr rozdarło.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu przerwał, lecz róg trzymał; wszystkim się zdawało,\
