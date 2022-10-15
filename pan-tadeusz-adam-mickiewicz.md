@@ -1,3 +1,4 @@
+Podzielili majątek na dwie części równe,\
 A w miejscu, gdzie się zdarzył tak dziwny przypadek,\
 Pobudowawszy karczmę, nazwali Niedźwiadek».
 
