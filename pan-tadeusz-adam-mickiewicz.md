@@ -1,3 +1,4 @@
+Z kobietą kilku laty starszą! niebogatą!\
 Czy mu krewni pozwolą? co świat powie na to?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena, tak myśląc, z sofy się podniosła\
