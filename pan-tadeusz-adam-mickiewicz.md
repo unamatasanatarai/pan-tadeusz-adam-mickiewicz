@@ -1,3 +1,4 @@
+Widać, że kreskę swoją kabale powierzy;\
 Jeśli palce trafią się, da afirmatywę,\
 A jeżeli się chybią, rzuci negatywę.
 
