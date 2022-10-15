@@ -1,3 +1,4 @@
+I przednimi łapami to drzewa korzenie,\
 To pniaki osmalone, to wrosłe kamienie\
 Rwał, waląc w psów i w ludzi, aż wyłamał drzewo.\
 Kręcąc nim jak maczugą na prawo, na lewo,\
