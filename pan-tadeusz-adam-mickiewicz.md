@@ -1,3 +1,4 @@
+Czysta rozwódka!... Dygnij, patrz, jaka niezwinna!»\
 «Ach ciociu — rzekła smutnie Zosia — cóż ja winna!\
 Ciotka mnie zamykała; nie było z kim tańczyć,\
 Lubiłam z nudy ptastwo paść i dzieci niańczyć.\
