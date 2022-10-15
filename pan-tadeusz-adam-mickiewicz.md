@@ -1,3 +1,4 @@
+Na ziemi nieświęconej: znać, że tu chowano\
 Poległych śmiercią nagłą i niespodziewaną.\
 Kto by uważał z bliska lamus, spichrz i chatę,\
 Ujrzy ściany od ziemi do szczytu pstrokate\
