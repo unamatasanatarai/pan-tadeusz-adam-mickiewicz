@@ -1,3 +1,4 @@
+Woli w kuchennej słuchać ochmistrzyni krzyków,\
 Gróźb i razów kucharza, hałasu kuchcików:\
 Aż go powoli wprawił w przyjemne marzenie,\
 Ruch jednostajny rożnów kręcących pieczenie.
