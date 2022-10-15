@@ -1,3 +1,4 @@
+Wlepiwszy oczy w Sędzię, ruszywszy ramiony,\
 Rzekł : «To gdy Napoleon wolność Litwie niesie,\
 Gdy świat drży cały, to ty myślisz o procesie?\
 I jeszczeż po tym wszystkim, com tobie powiedział,\
