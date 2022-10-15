@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wtem pomiędzy ich usta mignęła znienacka\
 Naprzód mucha, a za nią tuż Wojskiego placka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na Litwie much dostatek. Jest pomiędzy nimi\
