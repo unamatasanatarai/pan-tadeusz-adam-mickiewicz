@@ -1,3 +1,4 @@
+Pluskać» dodał Kropiciel. «I wykalać Szydłem»\
 Krzyknął Bartek Szydełko, dobywszy swej szpadki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wszystkich was — kończył Klucznik — biorę tu na świadki,\
