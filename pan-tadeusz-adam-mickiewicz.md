@@ -1,3 +1,4 @@
+Gdy Konew ruszył cyngla i z paszczy garłacza\
 Tuzin kul rozsiekanych puszcza śród Moskali,\
 Sak puszcza drugi tuzin. Jegry się zmieszali.\
 Przerażony zasadzką szereg w kłąb się zwija,\
