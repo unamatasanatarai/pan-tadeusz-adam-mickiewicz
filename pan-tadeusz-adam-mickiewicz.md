@@ -1,3 +1,4 @@
+Szkoda tylko, że trochę przyciśniony wiekiem.\
 Lecz owóż on!...» Tu Wojski palcem wskazał w sieni,\
 Gdzie czeladź i wieśniacy stali natłoczeni,\
 A nad wszystkich głowami łysina błyszcząca\
