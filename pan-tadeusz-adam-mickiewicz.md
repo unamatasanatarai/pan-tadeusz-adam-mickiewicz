@@ -1,3 +1,4 @@
+Zbrojni łyżkami, biegą i bodą naczynie;\
 Miedź grzmi, dym bucha, bigos jak kamfora ginie;\
 Zniknął, uleciał; tylko w czeluściach saganów\
 Wre para jak w kraterze zagasłych wulkanów.
