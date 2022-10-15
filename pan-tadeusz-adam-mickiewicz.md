@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Kiedyż nam Pan Bóg wrócić z wędrówki dozwoli,\
 I znowu dom zamieszkać na ojczystej roli,\
 I służyć w jeździe, która wojuje szaraki,\
 Albo w piechocie, która nosi broń na ptaki,\
