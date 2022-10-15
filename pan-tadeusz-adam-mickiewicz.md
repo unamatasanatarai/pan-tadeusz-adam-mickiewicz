@@ -1,3 +1,4 @@
+Stąd biali wyglądają jak czyśćcowe dusze.\
 Młodzież także przebrana, oprócz Telimeny\
 I kilku po francusku chodzących.
 
