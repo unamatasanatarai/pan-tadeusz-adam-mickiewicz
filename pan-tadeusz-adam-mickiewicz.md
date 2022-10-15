@@ -1,3 +1,4 @@
+Choćby do pistoletów przyszło lub do szpady!\
 Honor każe». Rzekł, ruszył uroczystym krokiem,\
 A Gerwazy szedł z tyłu w milczeniu głębokiem.\
 Przed bramą stanął Hrabia, sam do siebie gadał,\
