@@ -1,3 +1,4 @@
+Zamknąwszy oczy, leżał nieczuły jak drewno.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem ozwały się bębny; naprzód z rzadka, potem\
 Coraz gęstszym i coraz głośniejszym łoskotem.\
