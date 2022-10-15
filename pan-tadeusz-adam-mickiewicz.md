@@ -1,3 +1,4 @@
+Pustej i słownej tylko, jako za Moskali,\
 Kiedy pan Karp nieboszczyk włościan wyswobodził ,\
 A Moskal ich podatkiem potrójnym ogłodził.\
 Radzę więc, aby chłopów starym obyczajem,\
