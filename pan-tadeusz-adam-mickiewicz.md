@@ -1,3 +1,4 @@
+A zawsze o tym, co się w cudzych krajach działo.\
 Teraz Sędziego, który już spał od godziny,\
 Przychodzi budzić; pewnie ma jakieś nowiny.
 
