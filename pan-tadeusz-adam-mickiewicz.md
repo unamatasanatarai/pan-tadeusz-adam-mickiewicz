@@ -1,3 +1,4 @@
+«Jestem kobietą, rządy nie należą do mnie,\
 Wszakże pan będziesz mężem; ja do rady młoda,\
 Co pan urządzisz, na to całym sercem zgoda!\
 Jeśli, włość uwalniając, zostaniesz uboższy,\
