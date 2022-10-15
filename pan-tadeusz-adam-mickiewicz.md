@@ -1,3 +1,4 @@
+Grom taki, wstał zmieszany, chwilę nic nie gadał,\
 Lecz patrzał na rywala coraz straszniej, srożej...\
 Wtem, wielkim szczęściem, dwakroć kichnął Podkomorzy\
 «Wiwat!» krzyknęli wszyscy; on się wszystkim skłonił\
