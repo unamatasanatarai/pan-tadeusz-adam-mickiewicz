@@ -1,3 +1,4 @@
+Z którymi się zabawiać lubił od powicia,\
 Lecz mniej wielkie, mniej piękne niż się dawniej zdały.\
 I też same portrety na ścianach wisiały:\
 Tu Kościuszko w czamarce krakowskiej, z oczyma\
