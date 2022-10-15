@@ -1,3 +1,4 @@
+Podoba się mi lepiej niż spór adwokacki.\
 Wiesz co? na całej Litwie narobim hałasu\
 Wyprawą niesłychaną od dawnego czasu.\
 I sami się zabawim. Dwa lata tu siedzę,\
