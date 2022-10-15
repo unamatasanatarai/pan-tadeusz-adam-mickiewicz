@@ -1,3 +1,4 @@
+Prawda! o tobie niegdyś śpiewały szlachcianki:\
 *Oto Jacek wąs kreci, trzęsą się zaścianki,*\
 *A komu na swym wąsie węzełek zawiąże,*\
 *Ten zadrży, choćby to był sam Radziwiłł książę.*\
