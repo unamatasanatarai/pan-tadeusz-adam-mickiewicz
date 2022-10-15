@@ -1,3 +1,4 @@
+Wszczął się naprzód szmer, potem gwar i krzyk wesoły\
 Jak w ulu pustym, kiedy weń wlatują pszczoły.\
 Był to znak, że wracali goście z polowania,\
 I krzątała się służba około śniadania.
