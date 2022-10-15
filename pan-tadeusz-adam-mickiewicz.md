@@ -1,3 +1,4 @@
+Mieszkają Dziki, Wilki i Łosie rogale.\
 Nad głowami Sokoły i Orłowie dzicy,\
 Żyjący z pańskich stołów dworscy zausznicy.\
 Te pary zwierząt główne i patryjarchalne,\
