@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Już zaczęły żniwiarki swą piosnkę zwyczajną,\
 Jak dzień słotny ponurą, tęskną, jednostajną,\
 Tym smutniejszą, że dźwięk jej w mgłę bez echa wsiąka.\
