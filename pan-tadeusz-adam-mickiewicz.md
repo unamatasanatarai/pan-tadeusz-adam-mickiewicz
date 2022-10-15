@@ -1,3 +1,4 @@
+Zniknęli nagle z oczu jako leśne bogi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W Soplicowie ruch wielki. Lecz ni psów hałasy,\
 Ani rżące rumaki, skrzypiące kolasy,\
