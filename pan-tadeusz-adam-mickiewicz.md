@@ -1,3 +1,4 @@
+Rzekłbyś, ptasiego tylko nie dostaje mleka.\
 Dwie rzeczy, których hojny pan do uczty szuka,\
 Łączą się w Soplicowie: dostatek i sztuka.
 
