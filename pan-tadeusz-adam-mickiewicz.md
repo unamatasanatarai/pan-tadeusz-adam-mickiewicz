@@ -1,3 +1,4 @@
+Podniosła jedno dziecię zwisłe na ramieniu,\
 Drugie wzięła za rękę, a kilkoro przodem\
 Zaganiając jak gąski, szła dalej ogrodem.
 
