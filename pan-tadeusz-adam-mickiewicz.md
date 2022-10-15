@@ -1,3 +1,4 @@
+Choć o tym dawno w Pańskim pisano Zakonie,\
 I każdy ksiądz toż samo gada na ambonie.\
 Nauka dawną była, szło o jej pełnienie!\
 Lecz wtenczas panowało takie oślepienie,\
