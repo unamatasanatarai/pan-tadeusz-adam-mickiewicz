@@ -1,3 +1,4 @@
+Usiadł przed Telimeną na wielkim kamieniu,\
 I, wsparłszy się oburącz na gałkę słoniową\
 Trzciny ogromnej, z taką ozwał się przemową:
 
