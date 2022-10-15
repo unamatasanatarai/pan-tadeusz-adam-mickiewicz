@@ -1,3 +1,4 @@
+Ciągnie się wielonożny stół wąski, drewniany;\
 Przy nim stołki, choć niższe, podobne do stoła,\
 Jako dzieci do ojca.
 
