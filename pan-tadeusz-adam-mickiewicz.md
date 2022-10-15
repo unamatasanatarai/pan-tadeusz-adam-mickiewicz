@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym Wojski rozkazał kij żelazny włożyć\
 Psom między zęby i tak paszczęki roztworzyć.\
 Kolbami przewrócono na wznak zwierza zwłoki\
