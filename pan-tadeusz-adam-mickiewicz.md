@@ -1,3 +1,4 @@
+»Zgoda!« — wrzaśli; czas? — jutro; miejsce? — karczma Usza.\
 Rozjechali się. Ja zaś do Wirgilijusza...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Wojskiemu przerwał krzyk: «Wyczha!» Tuż spod koni\
