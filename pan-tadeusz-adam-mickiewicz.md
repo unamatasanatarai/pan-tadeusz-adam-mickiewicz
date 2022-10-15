@@ -1,3 +1,4 @@
+Ustąpić musiał przez wzgląd dla Hrabiowskiej warty.\
 Więc nie mogąc zemścić się na nieprzyjacielu,\
 Myślił o drugim wielkim tej wyprawy celu.\
 Jako człek doświadczony i biegły w prawnictwie,\
