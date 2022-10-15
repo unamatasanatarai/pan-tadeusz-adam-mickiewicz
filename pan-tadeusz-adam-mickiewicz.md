@@ -1,3 +1,4 @@
+Jednego podpaliłem w drewnianym budynku,\
 Kiedyśmy zajeżdżali z Rymszą Korelicze:\
 Upiekł się tam jak piskorz; a tych nie policzę,\
 Którym uszy obciąłem. Jeden tylko został,\
