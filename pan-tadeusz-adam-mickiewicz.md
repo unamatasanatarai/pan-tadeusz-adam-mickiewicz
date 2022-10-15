@@ -1,3 +1,4 @@
+Już trawy pożółkniały, liścia czerwienieją,\
 Sypią się: rzekłbyś, iż wiatr jesienny powiewa;\
 Na koniec owe chwilą przedtem strojne drzewa,\
 Teraz, jakby odarte od wichrów i szronu,\
