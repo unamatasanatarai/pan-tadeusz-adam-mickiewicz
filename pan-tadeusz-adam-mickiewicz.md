@@ -1,3 +1,4 @@
+Ziemskiej biegłem tylekroć na miecze, na strzały.\
 Milej sobie wspominam nie dzieła waleczne\
 I głośne, ale czyny ciche, użyteczne,\
 I cierpienia, których nikt...
