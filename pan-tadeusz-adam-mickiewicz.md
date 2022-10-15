@@ -1,3 +1,4 @@
+Jest do robienia kawy osobna niewiasta,\
 Nazywa się kawiarka; ta sprowadza z miasta,\
 Lub z wicin bierze ziarna w najlepszym gatunku\
 I zna tajne sposoby gotowania trunku,\
