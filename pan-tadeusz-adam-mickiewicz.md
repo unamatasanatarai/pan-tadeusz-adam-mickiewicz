@@ -1,3 +1,4 @@
+*Bielaki* krągłe, białe, szerokie i płaskie,\
 Jakby mlekiem nalane filiżanki saskie,\
 I kulista, czarniawym pyłkiem napełniona\
 *Purchawka*, jak pieprzniczka; zaś innych imiona,\
