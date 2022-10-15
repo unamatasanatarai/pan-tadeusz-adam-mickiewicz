@@ -1,3 +1,4 @@
+Choć stary i niezgrabny». Zatem się rzuciło\
 Kilku młodych od stołu i pannom służyło.\
 Sędzia, z boku rzuciwszy wzrok na Tadeusza\
 I poprawiwszy nieco wylotów kontusza,\
