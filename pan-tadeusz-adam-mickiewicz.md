@@ -1,3 +1,4 @@
+Więc nie dość gościa czekać, nie dość i zaprosić,\
 Trzeba czeladkę zebrać i stoły pownosić,\
 A przed ucztą potrzeba dom oczyścić z śmieci,\
 Oczyścić dom, powtarzam, oczyścić dom, dzieci!»
