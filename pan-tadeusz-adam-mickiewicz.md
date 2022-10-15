@@ -1,3 +1,4 @@
+Słomianym kapeluszem osłoniła głowę,\
 Od skroni powiewały dwie wstążki różowe\
 I kilka puklów światłych, rozwitych warkoczy;\
 Na ręku miała koszyk, w dół spuściła oczy,\
