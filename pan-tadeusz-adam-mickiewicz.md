@@ -1,3 +1,4 @@
+Brali różne przydomki od jakiej zalety\
 Lub wady, tak mężczyźni jako i kobiety.\
 Mężczyznom czasem kilka dawano przydomków,\
 Na znak pogardy albo szacunku spółziomków;\
