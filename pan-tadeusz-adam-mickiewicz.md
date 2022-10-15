@@ -1,3 +1,4 @@
+Tyka płotów; tam staje, na żołnierzy woła,\
 Ażeby zaprzestali bitwę tak bezładną,\
 Gdzie, nie używszy broni, pod pięściami padną.\
 Gniewny, że sam nie może dać ognia, bo w tłumie\
