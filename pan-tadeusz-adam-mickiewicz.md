@@ -1,3 +1,4 @@
+Topoli, co go bronią od wiatrów jesieni.\
 Dom mieszkalny niewielki, lecz zewsząd chędogi,\
 I stodołę miał wielką, i przy niej trzy stogi\
 Użątku, co pod strzechą zmieścić się nie może.\
