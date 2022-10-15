@@ -1,3 +1,4 @@
+Nie noszą, lecz kapoty białe w czarne pręgi,\
 A w niedzielę kontusze. Strój także szlachcianek\
 Najuboższych różni się od chłopskich katanek:\
 Zwykle chodzą w drylichach albo perkaliczkach,\
