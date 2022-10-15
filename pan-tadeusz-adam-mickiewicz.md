@@ -1,3 +1,4 @@
+I pierś zbyt pełną i już wybuchnąć gotową,\
 Chytry starzec, wnet wrzucił obojętne słowo\
 O procesach, sejmikach, łowach...
 
