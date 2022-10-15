@@ -1,3 +1,4 @@
+Zaraz w nim obcych pokus ostyga gorączka.\
 Wierzaj mi, wielką siłę ma ślubna obrączka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ja sam przed lat trzydziestu wielki afekt miałem\
