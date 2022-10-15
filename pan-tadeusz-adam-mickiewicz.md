@@ -1,3 +1,4 @@
+Że każdy Moskal złodziej: powiedźcież, kto spyta,\
 Że znaliście Moskala, który zwan Nikita\
 Nikitycz Ryków, rotny kapitan, miał osim\
 Medalów i trzy krzyże — to pamiętać prosim:\
