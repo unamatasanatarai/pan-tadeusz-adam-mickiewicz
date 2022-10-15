@@ -1,3 +1,4 @@
+(Gdy od płaczącej matki, pod Twoją opiekę\
 Ofiarowany, martwą podniosłem powiekę;\
 I zaraz mogłem pieszo, do Twych świątyń progu\
 Iść za wrócone życie podziękować Bogu),\
