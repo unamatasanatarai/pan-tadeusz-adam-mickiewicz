@@ -1,3 +1,4 @@
+Chociaż Wojski ma drugą córę dość nadobną,\
 I do mojej kochanej Marty dość podobną!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;To mówiąc, na pierścionek z czułością spozierał\
