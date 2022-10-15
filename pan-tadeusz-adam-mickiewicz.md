@@ -1,3 +1,4 @@
+Jako machina, którą niemieccy majstrowie\
 Wymyślili i która młockarnią się zowie,\
 A jest razem sieczkarnią, ma cepy i noże,\
 Razem i słomę kraje, i wybija zboże:\
