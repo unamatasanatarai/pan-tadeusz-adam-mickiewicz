@@ -1,3 +1,4 @@
+Wziąwszy Zosię pod rękę pobiegła do sali.\
 Myśliwi na pokoje jeszcze nie wchadzali;\
 Musieli po komnatach odmieniać swą odzież,\
 Nie chcąc wniść do dam w kurtkach. Pierwsza wpadła młodzież,\
