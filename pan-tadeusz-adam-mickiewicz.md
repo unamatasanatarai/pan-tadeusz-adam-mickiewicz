@@ -1,3 +1,4 @@
+Zaprosił gości. Liczna szlachta się zebrała,\
 Było teatrum (książę kochał się w teatrze),\
 Fajerwerk dawał Kaszyc, który mieszka w Jatrze,\
 Pan Tyzenhauz tancerzy przysłał, a kapele\
