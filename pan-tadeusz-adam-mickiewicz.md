@@ -1,3 +1,4 @@
+Tak, że obojgu sine zostały się znaki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szczęściem, nikt nie uważał; bo dotychczasowa\
 Żywa, głośna, lecz dosyć porządna rozmowa\
