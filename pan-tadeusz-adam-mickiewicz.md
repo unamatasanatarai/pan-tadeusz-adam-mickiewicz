@@ -1,3 +1,4 @@
+Która krzyczała, Sędzię objąwszy rękami,\
 Jako dziecko od Żydów kłute igiełkami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem Telimena wpadła między konie,\
