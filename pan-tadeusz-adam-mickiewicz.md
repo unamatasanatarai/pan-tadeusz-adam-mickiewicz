@@ -1,3 +1,4 @@
+Stary Gifrejter, co był pułku instruktorem,\
 Wielki mistrz na bagnety. Zebrał się sam w sobie,\
 Skurczył się, a karabin porwał w ręce obie,\
 Prawą u zamka, lewą w pół rury porywa,\
