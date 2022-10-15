@@ -1,3 +1,4 @@
+I w dawnej surowości prawidłach wychował.\
 Tadeusz zatem przywiózł w strony swe rodzinne\
 Duszę czystą, myśl żywą i serce niewinne,\
 Ale razem niemałą chętkę do swawoli.\
