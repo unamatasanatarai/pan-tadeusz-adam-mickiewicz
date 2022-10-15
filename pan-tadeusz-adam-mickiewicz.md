@@ -1,3 +1,4 @@
+To myślisz Tadeusza zostać dobrodziejem,\
 Jeśli młodego chłopca zrobisz grykosiejem?\
 Świat mu zawiążesz! wierz mi, kląć was kiedyś będzie!\
 Zakopać taki talent w lasach i na grzędzie!\
