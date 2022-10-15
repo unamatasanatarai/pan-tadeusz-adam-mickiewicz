@@ -1,3 +1,4 @@
+Ale za każdym razem trzech nogi zadarło,\
 Więc uciekli pod lamus; a już był poranek.\
 Pan Stolnik wesół wyszedł ze strzelbą na ganek,\
 I skoro spod lamusa Moskal łeb wychylił,\
