@@ -1,3 +1,4 @@
+Czyż zgodzisz się żyć na wsi, z daleka od świata,\
 Jak ziemianka?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    A na to Zosia rzekła skromnie:\
