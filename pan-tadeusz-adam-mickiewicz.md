@@ -1,3 +1,4 @@
+W okolicy; i tylko cichy smutek panów,\
 Lub cicha radość, była gazetą ziemianów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Takim kwestarzem tajnym był Robak podobno:\
