@@ -1,3 +1,4 @@
+Rzekłbyś, iż zły duch gościom zasznurował usta.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mnogie były powody milczenia. Myśliwi\
 Powrócili z ostępu dosyć gadatliwi,\
