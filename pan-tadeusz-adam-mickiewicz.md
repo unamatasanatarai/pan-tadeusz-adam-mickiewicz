@@ -1,3 +1,4 @@
+Za nimi z wolna indyk sunie się odęty\
 Sarkając na gderanie swej krzykliwej żony;\
 Ówdzie pawie jak tratwy długimi ogony\
 Sterują się po łące, a gdzieniegdzie z góry\
