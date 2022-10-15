@@ -1,3 +1,4 @@
+I całus, i policzek ozwały się razem,\
 Jeden za drugim, jako wyraz za wyrazem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Major osłupiał, oczy przetarł, z gniewu blady\
