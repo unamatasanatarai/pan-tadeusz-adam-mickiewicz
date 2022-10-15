@@ -1,3 +1,4 @@
+Czeka nakryty stolik; nikt gości nie sadza,\
 Stoją kupkami, każda kupka się naradza.\
 Patrzcie, iż w każdej kupce stoi w środku człowiek,\
 Z którego ust otwartych, z podniesionych powiek,\
