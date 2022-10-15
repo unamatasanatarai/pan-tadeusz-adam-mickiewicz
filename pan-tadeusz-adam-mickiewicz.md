@@ -1,3 +1,4 @@
+Ale z ostrego końca latały butelki\
 Koło Hrabiego głowy. Strwożone kobiety\
 W prośby, w płacz; Telimena, krzyknąwszy: «Niestety!»\
 Wzniosła oczy, powstała, i padła zemdlona,\
