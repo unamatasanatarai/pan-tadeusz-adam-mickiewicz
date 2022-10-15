@@ -1,3 +1,4 @@
+Nim się te usta znajdą, wiek przeminie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedyś... gdy zemsty lwie przehuczą ryki,\
 Przebrzmi głos trąby, przełamią się szyki,\
