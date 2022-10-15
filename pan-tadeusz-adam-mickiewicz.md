@@ -1,3 +1,4 @@
+«Błogosławioneż niechaj będą usta, które\
 To zwiastują! — rzekł Sędzia — wznosząc ręce w górę.\
 Nie pożałujesz twego poselstwa Robaku,\
 Nie pożałuje klasztor: dwieście owiec z braku\
