@@ -1,3 +1,4 @@
+Wreszcie porwał za szyję księdza z całej siły,\
 «Mój Robaku! — wołając — czy to tylko prawda?\
 Mój Robaku! — powtarzał — czy to tylko prawda?\
 Ileż razy zwodzono! Pamiętasz? gadali:\
