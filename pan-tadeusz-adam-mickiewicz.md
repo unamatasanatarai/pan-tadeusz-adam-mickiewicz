@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Owoż te wszystkie rzeczy mając na uwadze,\
 Ja, reprezentujący województwa władzę,\
 Moją konfederacką ogłaszam wam laską:\
 Że Jacek wierną służbą i cesarską łaską\
