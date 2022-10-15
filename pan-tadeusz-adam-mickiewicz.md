@@ -1,3 +1,4 @@
+Twarzy wówczas nie dostrzegł, nazbyt rychło znikła;\
 Ale myśl twarz nadobną odgadywać zwykła:\
 Myślił, że pewnie miała czarniutkie oczęta,\
 Białą twarz, usta kraśne jak wiśnie bliźnięta;\
