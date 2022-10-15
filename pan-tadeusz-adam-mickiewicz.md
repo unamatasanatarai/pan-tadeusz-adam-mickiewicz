@@ -1,3 +1,4 @@
+Służące do przechadzki opończe płócienne,\
 Którymi osłaniają po wierzchu kontusze,\
 A na głowy słomiane wdziali kapelusze.\
 Stąd biali wyglądają jak czyśćcowe dusze.\
