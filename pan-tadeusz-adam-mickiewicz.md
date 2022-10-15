@@ -1,3 +1,4 @@
+Oczyścić grzechy brata twojego tułacza!\
 Zawszem ciebie szanował; ale od tej chwili\
 Kocham cię, jak gdybyśmy bracią sobie byli!...\
 Przygotujemy wszystko; lecz wyjść nie czas jeszcze:\
