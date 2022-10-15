@@ -1,3 +1,4 @@
+Stąd też, oprócz Brejgela (lecz nie van der Helle,\
 Ale pejzażysty: bo są dwaj Brejgele)\
 I oprócz Ruisdala, na całej północy\
 Gdzież był pejzażysta który pierwszej mocy?\
