@@ -1,3 +1,4 @@
+Dotknąć ją zbrojną ręką, byłoby ją zabić;\
 Nie mogłem, nie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mścić się otwarcie? szturmem zamek zwalić w gruzy?\
