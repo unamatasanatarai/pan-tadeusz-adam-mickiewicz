@@ -1,3 +1,4 @@
+Przychodzę i przepraszać, i razem dziękować.\
 Przepraszać, że jej kroków śledziłem ukradkiem;\
 I dziękować, że byłem jej dumania świadkiem.\
 Tyle ją obraziłem! winienem jej tyle!\
