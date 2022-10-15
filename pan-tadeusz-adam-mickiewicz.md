@@ -1,3 +1,4 @@
+W środku jechali obok Asesor z Rejentem;\
 A choć na siebie czasem patrzyli ze wstrętem,\
 Rozmawiali przyjaźnie, jak ludzie honoru\
 Idąc na rozstrzygnienie śmiertelnego sporu:\
