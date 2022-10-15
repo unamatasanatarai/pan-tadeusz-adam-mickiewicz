@@ -1,3 +1,4 @@
+Ja chcę żyć, bić! Bernardyn po co? czy my żaki?\
 Co mi tam Robak: otóż, my będziem robaki,\
 I dalej Moskwę toczyć! Trem, brem, szpiegi, wzwiady;\
 Wiecie wy, co to znaczy? Oto, że wy dziady,\
