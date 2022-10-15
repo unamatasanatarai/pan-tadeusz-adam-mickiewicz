@@ -1,3 +1,4 @@
+Gerwazego Rembajłę, Horeszków Klucznika,\
 Lżyć w domu panów moich? i panże to zniesie!»\
 Wtem Protazy zawołał trzykroć: «Uciszcie się!\
 Na ustęp! Ja, Protazy Baltazar Brzechalski,\
