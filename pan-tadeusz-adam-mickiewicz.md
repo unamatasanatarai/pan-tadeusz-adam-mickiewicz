@@ -1,3 +1,4 @@
+Częstochowską, nie biorę innej tylko taką».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mowa księdza wzbudziła takie zadziwienie,\
 Taką radość, że całe huczne zgromadzenie\
