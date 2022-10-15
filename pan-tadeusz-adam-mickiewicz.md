@@ -1,3 +1,4 @@
+W zastępstwie gospodarza, w stodołę na siano.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W pół godziny tak było głucho w całym dworze\
 jako po zadzwonieniu na pacierz w klasztorze;\
