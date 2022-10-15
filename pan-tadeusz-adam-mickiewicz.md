@@ -1,3 +1,4 @@
+I tak, mędrsi fircykom oprzeć się nie śmieli,\
 I zląkł ich się jak dżumy jakiej cały naród,\
 Bo już sam wewnątrz siebie czuł choroby zaród.\
 Krzyczano na modnisiów, a brano z nich wzory;\
