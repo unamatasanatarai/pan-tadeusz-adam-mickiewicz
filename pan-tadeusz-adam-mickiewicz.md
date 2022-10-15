@@ -1,3 +1,4 @@
+Dziwny, odurzający hałas! Mnie się zdało,\
 Że tam nad głową morze wiszące szalało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na dole jak ruiny miast: tu wywrót dębu\
