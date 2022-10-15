@@ -1,3 +1,4 @@
+I z zyskiem i aplauzem powszechnym i z chwałą!\
 Po cóż o tym wspominać? Dziś darmo pan Hrabia,\
 Sąsiad wasz, sprawę toczy, dekrety wyrabia:\
 Już nikt z was pomóc nie chce biednemu sierocie!\
