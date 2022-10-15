@@ -1,3 +1,4 @@
+Chłopy i radzi temu, kiedy w ich jarzynę\
 Wskoczy chart; niech otrząśnie dziesięć kłosów żyta:\
 To pan mu kopę oddasz i jeszcze nie kwita:\
 Często chłopi talara w przydatku dostali.\
