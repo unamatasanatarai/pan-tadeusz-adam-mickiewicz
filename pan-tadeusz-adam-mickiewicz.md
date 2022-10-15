@@ -1,3 +1,4 @@
+Lewy, ciemniejszy nieco, jako twarz młodziana\
 Smagława i już męskim puchem osypana.\
 Prawy złocistym piaskiem połyskał się wkoło,\
 Jak gdyby włosem jasnym; a lewego czoło\
