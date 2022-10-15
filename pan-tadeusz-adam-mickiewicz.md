@@ -1,3 +1,4 @@
+Które, chociaż boleściom, troskom niedostępne,\
 Błąkają się spokojne, ciche, lecz posępne.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Któż by zgadnął, że owi tak mało ruchomi,\
