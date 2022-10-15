@@ -1,3 +1,4 @@
+Ryków jadł smaczno, mało wdawał się w rozmowę,\
 Lecz na wzmiankę Warszawy, rzekł podniósłszy głowę:\
 «Pan Podkomorzy! Oj wy! Pan zawsze ciekawy\
 O Bonaparta, zawsze wam tam do Warszawy!\
