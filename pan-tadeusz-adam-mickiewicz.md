@@ -1,3 +1,4 @@
+Które zewsząd skupiałam: mam ich dosyć w biurku».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaczęli więc rozmowę o niebios błękitach,\
 Morskich szumach i wiatrach wonnych, i skał szczytach,\
