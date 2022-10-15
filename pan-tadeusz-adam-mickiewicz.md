@@ -1,3 +1,4 @@
+Nie tchórzę ja przed tobą: wynidź no zza płotów;\
 Dostałeś w twarz, jam przecie bić się z tobą gotów!\
 Po co krwi rozlew? Między nami była zwada:\
 Niechajże ją rozstrzygnie pistolet lub szpada.\
