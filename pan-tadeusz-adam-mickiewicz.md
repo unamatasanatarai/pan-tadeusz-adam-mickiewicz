@@ -1,3 +1,4 @@
+Siedziały chłopy, chłopki tudzież szlachta drobna,\
 Wszyscy rzędem; ekonom sam siedział z osobna.\
 Po rannej mszy z kaplicy, że była niedziela,\
 Zabawić się i wypić przyszli do Jankiela.\
