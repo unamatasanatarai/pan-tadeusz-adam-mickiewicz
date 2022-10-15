@@ -1,3 +1,4 @@
+Stolnikównie i szlachty, i paniąt niemało.\
 Między szlachtą był jeden wielki paliwoda,\
 Kłótnik, Jacek Soplica, zwany Wojewoda\
 Przez żart; w istocie wiele znaczył w województwie,\
