@@ -1,3 +1,4 @@
+Czasem jedenże szlachcic inaczej w Dobrzynie,\
 A pod innym nazwiskiem u sąsiadów słynie;\
 Dobrzyńskich naśladując, inna szlachta bliska\
 Brała również przydomki, zwane *imioniska*.\
