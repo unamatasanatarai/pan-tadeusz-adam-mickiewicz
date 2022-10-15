@@ -1,3 +1,4 @@
+To cieszą się, to znowu trapią się i smucą,\
 To znowu, Bóg wie o co, do zębów się kłócą,\
 To stojąc w kątkach jakby mruki, nie gadają\
 Do siebie, czasem nawet w pole uciekają.\
