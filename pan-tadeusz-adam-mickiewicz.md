@@ -1,3 +1,4 @@
+Z Hrabią, daj pokój: skrzywdził mnie, już zapozwałem;\
 Czyż wypada?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Załamał ręce ksiądz zdziwiony.\
