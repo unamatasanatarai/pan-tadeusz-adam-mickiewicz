@@ -1,3 +1,4 @@
+Nie mogę być kochankiem: będę bohaterem;\
 W miłości troskach, sławy zwę pocieszycielki,\
 Gdy jestem nędzarz sercem, będę ręką wielki».
 
