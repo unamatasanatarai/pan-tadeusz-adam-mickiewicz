@@ -1,3 +1,4 @@
+Tu dzioby bursztynowe, tam czubki z korali\
 Wznoszą się z gęstwi pierza jak ryby spod fali,\
 Wysuwają się szyje i w ruchach łagodnych\
 Chwieją się ciągle na kształt tulipanów wodnych;\
