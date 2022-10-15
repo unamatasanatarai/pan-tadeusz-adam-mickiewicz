@@ -1,3 +1,4 @@
+Jeżeli z miejsca zejdzie, dostanie w grzbiet smyczem!\
 Nie było rady! Wszyscy pomimo zakazu\
 W las pobiegli. Trzy strzelby huknęły od razu;\
 Potem wciąż kanonada, aż głośniej nad strzały\
