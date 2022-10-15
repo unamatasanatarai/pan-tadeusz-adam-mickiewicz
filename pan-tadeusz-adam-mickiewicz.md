@@ -1,3 +1,4 @@
+Dyszał jeszcze, wylewał strumień krwi przez chrapy,\
 Otwierał jeszcze oczy, lecz głowy nie ruszy;\
 Pijawki Podkomorzego dzierżą go pod uszy,\
 Z lewej strony Strapczyna, a z prawej zawisał\
