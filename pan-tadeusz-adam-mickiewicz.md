@@ -1,3 +1,4 @@
+Teraz już zaniedbany i tylko na flocie\
 Używają go; wówczas służył i piechocie).\
 Proporszczyk, człowiek młody, zręcznie się uwijał;\
 Ilekroć mu przeciwnik broń na bok odbijał,\
