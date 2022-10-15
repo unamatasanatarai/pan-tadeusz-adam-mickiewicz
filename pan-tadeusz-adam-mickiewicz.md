@@ -1,3 +1,4 @@
+Aż się uspokoiło wszystko; tylko drzewa\
 Szumią około domu i szemrze ulewa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W takim dniu pożądany był czas najburzliwszy:\
