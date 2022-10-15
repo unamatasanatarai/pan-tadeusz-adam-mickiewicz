@@ -1,3 +1,4 @@
+Oba stawy ubrane w zieloności szatę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Z nich dwa strugi, jak ręce związane pospołu,\
 Ściskają się. Strug dalej upada do dołu;\
