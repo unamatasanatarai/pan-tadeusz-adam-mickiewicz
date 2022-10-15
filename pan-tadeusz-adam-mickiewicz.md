@@ -1,3 +1,4 @@
+Hasło wieczerzy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Pora powracać do domu,\
 Zwłaszcza że słychać było opodal trzask łomu.\
