@@ -1,3 +1,4 @@
+Polskie strzelby, ale je po angielsku zdobił)».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jak to — parsknął Asesor — do kroćset niedźwiedzi!\
 To to niby pan zabił? Co też to Pan bredzi?»\
