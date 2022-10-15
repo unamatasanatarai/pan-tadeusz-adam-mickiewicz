@@ -1,3 +1,4 @@
+Godłem szczęścia łowczego, bodźcem przyszłej sławy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Umilknął wesół, myśląc, że Hrabię ucieszył;\
 Nie wiedział, jak boleśnie serce jego przeszył.\
