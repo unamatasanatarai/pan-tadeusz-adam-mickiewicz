@@ -1,3 +1,4 @@
+Wachmistrza Dobrzyńskiego, co się zwie Kropidło,\
 A Mazury zowią go litewskim niedźwiedziem.\
 Jeśli Jenerał każe, to go tu przywiedziem».\
 «Jest — rzekł porucznik — kilku innych rodem z Litwy,\
