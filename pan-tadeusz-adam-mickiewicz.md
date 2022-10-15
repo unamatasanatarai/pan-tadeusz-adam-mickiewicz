@@ -1,3 +1,4 @@
+Aż natrafi na przedmiot wielki, jak na dzika.\
 Dzikiem rozmów strzeleckich, był ów spór zażarty\
 Rejenta z Asesorem o sławne ich charty.\
 Krótko trwał, lecz zrobili wiele w jedną chwilę;\
