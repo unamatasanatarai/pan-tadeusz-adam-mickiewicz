@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Czuła szlachta, że mądrze Podkomorzy radził:\
 Wiadomo, że kto z ruskim carem raz się zwadził,\
 Ten już z nim na tej ziemi nie zgodzi się szczérze,\
