@@ -1,3 +1,4 @@
+Do domu, właśnie kiedy mamy panien wiele.\
 Stryjaszek myśli wkrótce sprawić ci wesele;\
 Jest z czego wybrać; u nas towarzystwo liczne\
 Od dni kilku zbiera się na sądy graniczne,\
