@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Niestety!\
 Wszystkie tego obrazu wdzięki i zalety\
 Darmo czekały znawców, nikt nie zważał na nie,\
