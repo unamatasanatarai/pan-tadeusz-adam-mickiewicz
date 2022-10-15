@@ -1,3 +1,4 @@
+Nad mgłą ranną; dach z blachy złocił się od słońca,\
 Pod nim błyszczała w kratach reszta szyb wybitych,\
 Łamiąc promienie wschodu w tęczach rozmaitych;\
 Niższe piętra oblała tumanu powłoka,\
