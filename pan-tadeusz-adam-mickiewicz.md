@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Kiedy się już do woli napili, najedli,\
 Źwierza na wóz złożyli, sami na koń siedli,\
 Radzi wszyscy, rozmowni, oprócz Asesora\
 I Rejenta; ci byli gniewliwsi niż wczora,\
