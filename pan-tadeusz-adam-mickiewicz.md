@@ -1,3 +1,4 @@
+I dalej Moskwę toczyć! Trem, brem, szpiegi, wzwiady;\
 Wiecie wy, co to znaczy? Oto, że wy dziady,\
 Niedołęgi! He, bracia, to wyżła rzecz tropić,\
 Bernardyńska kwestować, a moja rzecz: kropić;\
