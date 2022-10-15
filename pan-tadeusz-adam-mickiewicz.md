@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Ksiądz wpadł w powóz stojący u proga,\
 Tnie biczem konie, łechce lejcami po bokach;\
 Furknęła kałamaszka, ginie w mgły obłokach;\
 Tylko kiedy niekiedy kaptur mnicha bury\
