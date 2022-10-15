@@ -1,3 +1,4 @@
+Nad głowami Sokoły i Orłowie dzicy,\
 Żyjący z pańskich stołów dworscy zausznicy.\
 Te pary zwierząt główne i patryjarchalne,\
 Ukryte w jądrze puszczy, światu niewidzialne,\
