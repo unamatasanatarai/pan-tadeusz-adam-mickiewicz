@@ -1,3 +1,4 @@
+Jak ów omen, a przecież do pojęcia trudną.\
 Wiesz, iż dawniej rad bym był Sopliców rodzinę\
 W łyżce wody utopić; a tego chłopczynę,\
 Tadeusza, od dziecka niezmierniem polubił!\
