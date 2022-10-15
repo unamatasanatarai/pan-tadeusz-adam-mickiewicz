@@ -1,3 +1,4 @@
+Jak każdy kącik ziemi był znajomy\
 Aż po granicę — po sąsiadów domy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A jeśli czasem i Moskal się zjawił,\
