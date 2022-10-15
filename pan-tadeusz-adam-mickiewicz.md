@@ -1,3 +1,4 @@
+Brzemienna imionami rycerzy, od Nilu\
 Szła hucząc ku północy, aż u Niemna brzegów\
 Odbiła się, jak od skał, od Moskwy szeregów,\
 Które broniły Litwę murami żelaza\
