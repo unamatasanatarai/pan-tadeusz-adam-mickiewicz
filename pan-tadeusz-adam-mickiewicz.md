@@ -1,3 +1,4 @@
+Gospodarstwa, obaczysz, jak ja się wyuczę!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy Zosia domawiała ostatnie wyrazy,\
 Podszedł ku niej zdziwiony i kwaśny Gerwazy:\
