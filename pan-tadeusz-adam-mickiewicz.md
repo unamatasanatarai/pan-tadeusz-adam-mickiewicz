@@ -1,3 +1,4 @@
+Drugi czarne; dalejże tłuc się po podwórzu,\
 Przewracać kulki, że aż zaryli się w kurzu —\
 My patrzym, a tymczasem szepcą sobie sługi,\
 Że ten czarny niech będzie Horeszko, a drugi\
