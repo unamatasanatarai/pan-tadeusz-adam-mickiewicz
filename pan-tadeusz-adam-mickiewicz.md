@@ -1,3 +1,4 @@
+«Państwo Lachy, już jest ta gadka między wami,\
 Że każdy Moskal złodziej: powiedźcież, kto spyta,\
 Że znaliście Moskala, który zwan Nikita\
 Nikitycz Ryków, rotny kapitan, miał osim\
