@@ -1,3 +1,4 @@
+Śledzi okiem, postrzega, że z tyłu, za charty,\
 Myśliwiec wpół schylony, na kolanie wsparty,\
 Rurą ku niemu wije i już cyngla tyka.\
 Wilk uszy spuszcza, ogon podtuliwszy, zmyka;\
