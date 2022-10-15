@@ -1,3 +1,4 @@
+Jak rekrut zbiegły; często siadał przy ruczaju\
 Nieruchomy, schyliwszy głowę nad potokiem,\
 Jak czapla wszystkie ryby chcąca pozrzeć okiem:\
 Takie były Hrabiego dziwne obyczaje.\
