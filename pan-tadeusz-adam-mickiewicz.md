@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tymczasem szlachty coraz gęściej przybywało:\
 Dobrzyńscy prawie wszyscy, sąsiadów niemało\
 Z okolicznych zaścianków, zbrojni i bezbronni,\
 W kałamaszkach i bryczkach, i piesi, i konni.\
