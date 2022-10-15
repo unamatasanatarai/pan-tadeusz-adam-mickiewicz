@@ -1,3 +1,4 @@
+Jakby psiarnię w nie wpuścił i rozpoczął łowy.\
 Bo w graniu była łowów historyja krótka:\
 Zrazu odzew dźwięczący, rześki — to pobudka;\
 Potem jęki po jękach skomlą — to psów granie;\
