@@ -1,3 +1,4 @@
+Tylko skwarzyła słońca letniego pożoga.\
 Od niej ptaki w zbożowym ukryły się lasku;\
 Tamte leżą w murawie, te kąpią się w piasku.
 
