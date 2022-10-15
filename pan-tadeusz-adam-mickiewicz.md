@@ -1,3 +1,4 @@
+I pan Hrabia ma jutro sam zjechać do dworu;\
 Podkomorzy już zjechał z żoną i z córkami.\
 Młodzież poszła do lasu bawić się strzelbami,\
 A starzy i kobiety żniwo oglądają\
