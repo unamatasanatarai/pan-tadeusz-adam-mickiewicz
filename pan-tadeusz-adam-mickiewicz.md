@@ -1,3 +1,4 @@
+I ciotce zawisnąwszy oburącz na łonie,\
 Płakała i śmiała się na przemian z radości.\
 «Ach ciociu, już tak dawno nie widziałam gości!\
 Od czasu, jak tu żyję z kury i indyki,\
