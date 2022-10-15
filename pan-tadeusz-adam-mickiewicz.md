@@ -1,3 +1,4 @@
+Bo Hrabia dziwnie kwaśny powrócił z przechadzki\
 A raczej, jako myślił Tadeusz, z zasadzki.\
 Słuchając Telimeny, czoło podniósł hardo,\
 Brwi zmarszczył, spojrzał na nią ledwie nie z pogardą;\
