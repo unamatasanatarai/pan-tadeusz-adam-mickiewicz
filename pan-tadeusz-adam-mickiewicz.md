@@ -1,3 +1,4 @@
+I stąd to w czasie bitew, zajazdów, tradowań,\
 Obie strony nie szczędzą wielkich usiłowań,\
 Ażeby stanowisko zająć konopiane,\
 Które z przodu ciągnie się aż pod dworską ścianę,\
