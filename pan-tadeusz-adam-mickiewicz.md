@@ -1,3 +1,4 @@
+Dziad śmieje się, choć miecza dawno nie miał w dłoni,\
 Lecz uczuł, że dłoń jeszcze nie zawiedzie broni.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem dwaj uczniowie przy cymbałach klęczą,\
