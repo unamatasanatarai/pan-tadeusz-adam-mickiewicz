@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Szczwacze pogłaskali psy, a Wojski tymczasem\
 Dobył nożyk strzelecki wiszący za pasem,\
 Oderznął skoki i rzekł: «Dziś równą odprawę\
 Wezmą pieski, bo równą pozyskali sławę,\
