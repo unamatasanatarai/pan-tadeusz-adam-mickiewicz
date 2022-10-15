@@ -1,3 +1,4 @@
+A on beczy i beczy jak maleńkie chłopię:\
 »Ojcze, choć zabij, muszę tam iść«, a wciąż szlocha —\
 »Co tobie?« a on mówi, że tę Zosię kocha!\
 Chciałby popatrzyć na nią! Żal mi nieboraka,\
