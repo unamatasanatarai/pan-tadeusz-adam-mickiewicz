@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena kończyła: «Byłam jej piastunką,\
 Jestem krewną, jedyną Zosi opiekunką.\
 Nikt oprócz mnie nie będzie myślił o jej szczęściu».\
