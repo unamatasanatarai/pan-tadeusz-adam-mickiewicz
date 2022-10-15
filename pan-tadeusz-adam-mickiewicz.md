@@ -1,3 +1,4 @@
+Spuszcza się na wierzch boru i już pomrok mglisty,\
 Napełniając wierzchołki i gałęzie drzewa,\
 Cały las wiąże w jedno i jakoby zlewa;\
 I bór czernił się na kształt ogromnego gmachu,\
