@@ -1,3 +1,4 @@
+Wysmukłą postać tylko aż do piersi kryje,\
 Odsłaniając ramiona i łabędzią szyję.\
 W takim Litwinka tylko chodzić zwykła z rana,\
 W takim nigdy nie bywa od mężczyzn widziana:\
