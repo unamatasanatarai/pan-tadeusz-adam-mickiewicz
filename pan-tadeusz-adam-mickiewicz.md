@@ -1,3 +1,4 @@
+Że po zabiciu źwierza zjawił się na chwilę,\
 Podskoczył ku Hrabiemu i Tadeuszowi,\
 A widząc, że obadwa cali są i zdrowi,\
 Podniósł ku niebu oczy, cicho pacierz zmówił\
