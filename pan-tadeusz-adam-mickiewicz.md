@@ -1,3 +1,4 @@
+Siedząc wtenczas retorem w jezuickiej szkole,\
 Potem u Wojewody służąc za pacholę.\
 Dano mi dobra, wziąłem; kazał przyjąć Zosię,\
 Przyjąłem, hodowałem, myślę o jej losie:\
