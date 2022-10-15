@@ -1,3 +1,4 @@
+Lecz widząc bezbronnego w zapale ostygnął:\
 «Soplico — rzekł — odwieczny wrogu mej rodziny,\
 Dziś skarzę cię za dawne i za świeże winy,\
 Dziś zdasz mi sprawę z mojej fortuny zaboru,\
