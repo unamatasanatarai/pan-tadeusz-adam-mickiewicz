@@ -1,3 +1,4 @@
+Bo już sam wewnątrz siebie czuł choroby zaród.\
 Krzyczano na modnisiów, a brano z nich wzory;\
 Zmieniano wiarę, mowę, prawa i ubiory.\
 Była to maszkarada, zapustna swawola,\
