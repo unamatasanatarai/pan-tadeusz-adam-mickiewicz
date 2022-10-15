@@ -1,3 +1,4 @@
+Tu, obróciwszy czuły wzrok ku Telimenie,\
 «Cóż zostaje?» A ona mu rzekła: «Wspomnienie!»\
 I chcąc Hrabiego nieco ułagodzić smutek,\
 Podała mu urwany kwiatek niezabudek.\
