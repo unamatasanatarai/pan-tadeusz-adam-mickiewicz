@@ -1,3 +1,4 @@
+Trzasnąwszy drzwi za sobą. Szczęściem, że tej sceny\
 Nikt z gości nie uważał oprócz Telimeny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wyleciawszy przez bramę, biegł prosto na pole.\
