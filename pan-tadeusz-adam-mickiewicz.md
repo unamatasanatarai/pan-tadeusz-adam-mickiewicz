@@ -1,3 +1,4 @@
+Dalej spotkać się z większym masz niebezpieczeństwem:\
 Dalej co krok czyhają, niby wilcze doły,\
 Małe jeziorka, trawą zarosłe na poły,\
 Tak głębokie, że ludzie dna ich nie dośledzą\
