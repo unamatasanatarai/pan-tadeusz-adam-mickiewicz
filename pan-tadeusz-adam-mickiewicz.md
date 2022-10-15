@@ -1,3 +1,4 @@
+Zwłaszcza, w kim taka, jaka była we mnie duma!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Imię zdrajcy przylgnęło do mnie jako dżuma.\
 Odwracali ode mnie twarz obywatele,\
