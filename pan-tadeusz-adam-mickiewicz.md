@@ -1,3 +1,4 @@
+Który by się wołową skórą nakryć dawał:\
 Na tym kawałku ziemi stanęła Kartago!\
 Więc ja to sobie w nocy rozbieram z uwagą.
 
