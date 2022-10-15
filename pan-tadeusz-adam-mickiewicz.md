@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Pan odjeżdżasz tak prędko?... Ja panu na drogę\
 Dam podarunek mały i także przestrogę:\
 Niechaj pan zawsze z sobą relikwije nosi\
 I ten obrazek, a niech pamięta o Zosi.\
