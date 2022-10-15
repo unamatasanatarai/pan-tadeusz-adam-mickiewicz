@@ -1,3 +1,4 @@
+I odwróconą ręką łzy z oczu ocierał.\
 «Bracie — kończył — co myślisz? zrobim zaręczyny?\
 On kocha, a mam słowo ciotki i dziewczyny».
 
