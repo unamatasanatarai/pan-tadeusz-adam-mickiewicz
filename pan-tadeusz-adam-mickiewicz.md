@@ -1,3 +1,4 @@
+Pan Sędzia ciemiężyciel! On pierwszy zabraniał,\
 Ażeby się chłop przed nim do ziemi nie kłaniał,\
 Mówiąc, że to grzech. Nieraz u niego gromada\
 Chłopska, ja sam widziałem, do stołu z nim siada;\
