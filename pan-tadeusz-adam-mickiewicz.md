@@ -1,3 +1,4 @@
+I imię obranego urzędnika głoszą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jeden szlachcic na zgodę powszechną nie zważa.\
 Patrz, wytknął głowę oknem z kuchni refektarza;\
