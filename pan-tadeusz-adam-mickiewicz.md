@@ -1,3 +1,4 @@
+Ubranymi jak w grona, w orzechowe perły;\
 A niżej dziatwa leśna: głóg w objęciu kalin,\
 Ożyna czarne usta tuląca do malin.\
 Drzewa i krzewy liśćmi wzięły się za ręce,\
