@@ -1,3 +1,4 @@
+Nie czcisz, to szanuj pierwszy urząd powiatowy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Co mi? — odmruknął Hrabia — dość już tej gawędy;\
 Nudźcie drugich waszymi względy i urzędy!\
