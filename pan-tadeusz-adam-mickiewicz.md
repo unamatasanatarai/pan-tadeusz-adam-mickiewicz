@@ -1,3 +1,4 @@
+Na pojedynek nasze pozwolenie dajem.\
 Pamiętam, za mych czasów żyło dwóch sąsiadów,\
 Oba ludzie uczciwi, szlachta z prapradziadów,\
 Mieszkali po dwóch stronach nad rzeką Wilejką,\
