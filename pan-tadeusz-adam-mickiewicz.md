@@ -1,3 +1,4 @@
+Gołębie, w nich gruchając karmią swe pisklęta.\
 W stajni kolczuga wielka nad żłobem rozpięta\
 I pierścieniasty pancerz służą za drabinę,\
 W którą chłopiec zarzuca źrebcom dzięcielinę.\
