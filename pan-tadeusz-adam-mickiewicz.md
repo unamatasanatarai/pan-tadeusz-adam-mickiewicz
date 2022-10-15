@@ -1,3 +1,4 @@
+Nie, drogi stryju, dłużej nie mogę tu bawić!\
 Błąd młodości! Stryjaszku, nie pytaj o więcej,\
 Ja muszę z Soplicowa wyjeżdżać co prędzej».
 
