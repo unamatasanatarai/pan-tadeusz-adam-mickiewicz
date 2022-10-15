@@ -1,3 +1,4 @@
+Postrzeżono w olszynie blask, wystrzał rusznicy!\
 Most na rzece zahuczał tętentem konnicy\
 I «Hejże na Soplicę!» tysiąc głosów wrzasło.\
 Wzdrygnął się Sędzia: poznał Gerwazego hasło;\
