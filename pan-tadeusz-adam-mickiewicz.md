@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A gdy w kościele było po mszy i kazaniu,\
 Wyszedł przewodniczący całemu zebraniu\
 Podkomorzy, niedawno przez powiatu stany\
 Zgodnie konfederackim marszałkiem obrany.\
