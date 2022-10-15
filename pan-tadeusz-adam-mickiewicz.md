@@ -1,3 +1,4 @@
+Z prywatnej zemsty, nie zaś pro publico bono!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Jacek z poduszek na łoże upadłszy,\
 Zwrócił się ku Sędziemu, a był coraz bladszy,\
