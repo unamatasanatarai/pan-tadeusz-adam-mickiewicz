@@ -1,3 +1,4 @@
+Wyjeżdżać? Wierz mi, w twoich dobrach siedź bezpiecznie\
 Szlachtę biedną rząd mógłby odrzeć i przechłostać,\
 Ale ty Hrabio pewien jesteś cały zostać;\
 Wiesz, w jakim rządzie żyjesz, jesteś dość bogaty,\
