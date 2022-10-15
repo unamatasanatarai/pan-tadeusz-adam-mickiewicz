@@ -1,3 +1,4 @@
+Dalej drzeć pazurami, a Suwarów w kuca.\
 Obaczcież, co się stało w końcu z Bonapartą...»\
 Tu Ryków przerwał i jadł; wtem, z potrawą czwartą\
 Wszedł służący i raptem boczne drzwi otwarto.
