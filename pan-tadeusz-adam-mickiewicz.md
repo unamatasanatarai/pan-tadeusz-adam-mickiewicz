@@ -1,3 +1,4 @@
+Którzy szli do folwarku krokami prędkiemi.\
 Byli to z plebanii przez szlachty gromadę\
 Posłowie wyprawieni do Maćka po radę.\
 Z dala witając starca niskimi ukłony\
