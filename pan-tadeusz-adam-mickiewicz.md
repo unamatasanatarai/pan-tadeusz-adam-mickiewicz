@@ -1,3 +1,4 @@
+A zatem...» Tu Pan Sędzia nagłym zwrotem głowy\
 Skinął na Tadeusza, rzucił wzrok surowy:\
 Znać było, że przychodził już do wniosków mowy.
 
