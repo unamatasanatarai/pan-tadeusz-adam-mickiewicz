@@ -1,3 +1,4 @@
+Kraj lat dziecinnych! On zawsze zostanie\
 Święty i czysty jak pierwsze kochanie,\
 Niezaburzony błędów przypomnieniem,\
 Niepodkopany nadziei złudzeniem,\
