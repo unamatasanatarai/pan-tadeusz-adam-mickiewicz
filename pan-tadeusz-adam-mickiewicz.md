@@ -1,3 +1,4 @@
+Dawno już wieści głuche biegały o wojnie,\
 O Francuzach, Dąbrowskim, o Napoleonie.\
 Miałyżby wojnę wróżyć ci jeźdźcy? te bronie?\
 Ekonom pobiegł wszystko Sędziemu powiedzieć,\
