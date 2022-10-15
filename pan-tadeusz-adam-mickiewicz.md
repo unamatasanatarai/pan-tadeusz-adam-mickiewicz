@@ -1,3 +1,4 @@
+Stoi, łokieć przytwierdza na głowni rapiera,\
 A czoło pochylone na dłoniach opiera.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Robak, nim zaczął mówić, w Klucznika oblicze\
