@@ -1,3 +1,4 @@
+Ale bez nakręcenia nie chciał jej zostawić:\
 Dręczył kluczem zegary każdego wieczora;\
 Właśnie teraz przypadła nakręcania pora.\
 Gdy Podkomorzy sprawą zajmował uwagę\
