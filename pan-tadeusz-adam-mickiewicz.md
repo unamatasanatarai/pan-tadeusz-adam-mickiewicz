@@ -1,3 +1,4 @@
+Jest formą, tłem, materią; a duszą — natchnienie,\
 Które na wyobraźni unosi się skrzydłach,\
 Poleruje się gustem, wspiera na prawidłach.\
 Nie dość jest przyrodzenia, nie dosyć zapału:\
