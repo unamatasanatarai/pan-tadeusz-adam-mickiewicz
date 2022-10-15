@@ -1,3 +1,4 @@
+Kołpakiem lisim w kolej kłaniając się nisko:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Nu, panowie Dobrzyńscy! Ja sobie Żydzisko;\
 Mnie Sędzia ni brat, ni swat; szanuję Sopliców\
