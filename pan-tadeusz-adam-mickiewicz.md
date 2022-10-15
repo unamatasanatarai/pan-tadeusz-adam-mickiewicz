@@ -1,3 +1,4 @@
+Na piersiach, przydawając zasłony sukience.\
 Włos w pukle nierozwity, lecz w węzełki małe\
 Pokręcony, schowany w drobne strączki białe,\
 Dziwnie ozdabiał głowę: bo od słońca blasku\
