@@ -1,3 +1,4 @@
+W kapeluszach jak grzybki, czarnych, lśniących, małych,\
 W kurtkach, w butach stryflastych, w pantalonach białych:\
 Sługi, które pan Hrabia tym kształtem odzieje,\
 Nazywają się w jego pałacu dżokeje.
