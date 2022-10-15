@@ -1,3 +1,4 @@
+I tuszę, że tę łaskę otrzymam od pana».\
 To wyrzekłszy, Sędziego ścisnął za kolana.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Konia — zawołał Rejent — stawię konia z rzędem,\
