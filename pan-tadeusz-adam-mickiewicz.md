@@ -1,3 +1,4 @@
+To jest w kształt nowiu. Cały ten sprzęt osobliwy,\
 Zdobyty (jak wieść niesie) w boju podhajeckim\
 Na jakimś bardzo znacznym szlachcicu tureckim,\
 Przyjm, Asesorze, w dowód mojego szacunku».
