@@ -1,3 +1,4 @@
+Ja, reprezentujący województwa władzę,\
 Moją konfederacką ogłaszam wam laską:\
 Że Jacek wierną służbą i cesarską łaską\
 Zniósł infamiji plamę, powraca do cześci,\
