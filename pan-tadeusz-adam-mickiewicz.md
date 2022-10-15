@@ -1,3 +1,4 @@
+Wyznaję, że dziś chciałem na cześć Telimenie\
 U ołtarzów Hymena zapalić płomienie,\
 Ale mi dał zbyt piękny przykład ten młodzieniec,\
 Sam dobrowolnie ślubny swój zrywając wieniec,\
