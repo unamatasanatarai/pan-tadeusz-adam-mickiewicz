@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Takie były zabawy, spory w one lata\
 Śród cichej wsi litewskiej, kiedy reszta świata\
 We łzach i krwi tonęła; gdy ów mąż, bóg wojny,\
