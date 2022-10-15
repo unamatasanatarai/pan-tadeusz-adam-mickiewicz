@@ -1,3 +1,4 @@
+Panny tuż za starszymi, a młodzież na boku;\
 Panny szły przed młodzieżą o jakie pół kroku\
 (Tak każe przyzwoitość). Nikt tam nie rozprawiał\
 O porządku, nikt mężczyzn i dam nie ustawiał:\
