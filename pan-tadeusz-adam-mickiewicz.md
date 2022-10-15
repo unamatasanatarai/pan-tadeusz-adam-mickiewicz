@@ -1,3 +1,4 @@
+On dotąd sam nie walczył (bo bronią kanony\
 Księdzu bić się), lecz jako człowiek doświadczony\
 Dawał rady, plac boju z różnych stron obchodził,\
 Wzrokiem, ręką, walczących zachęcał, przywodził.\
