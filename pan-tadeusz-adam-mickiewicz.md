@@ -1,3 +1,4 @@
+Poznali ją żołnierze; wiara się skupiła\
 Wkoło mistrza; słuchają, wspominają sobie,\
 Ów czas okropny, kiedy na Ojczyzny grobie\
 Zanucili tę piosnkę i poszli w kraj świata;\
