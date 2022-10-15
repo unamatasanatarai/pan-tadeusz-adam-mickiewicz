@@ -1,3 +1,4 @@
+Wznoszą się stare szczęty krzyżów kilkunastu\
 Na ziemi nieświęconej: znać, że tu chowano\
 Poległych śmiercią nagłą i niespodziewaną.\
 Kto by uważał z bliska lamus, spichrz i chatę,\
