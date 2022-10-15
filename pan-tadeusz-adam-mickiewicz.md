@@ -1,3 +1,4 @@
+Z kim on żył? co porabiał? Każdy gdzie chce wchodzi,\
 Byle nie szpieg rządowy i byle nie w nędzy.\
 Jak ów Wespazyjanus nie wąchał pieniędzy\
 I nie chciał wiedzieć, skąd są, z jakich rąk i krajów,\
