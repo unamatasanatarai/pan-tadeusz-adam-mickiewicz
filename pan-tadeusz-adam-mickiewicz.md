@@ -1,3 +1,4 @@
+Żałował, że go tylko widział idąc z lasu,\
 I że przymiotów jego poznać nie miał czasu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na to zadrżał Asesor, puścił z rąk kieliszek,\
