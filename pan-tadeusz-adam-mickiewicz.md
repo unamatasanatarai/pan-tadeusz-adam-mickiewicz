@@ -1,3 +1,4 @@
+Czekając rychło zacznie palić się i walić;\
 Czasem myśl przychodziła skoczyć, ją ocalić,\
 Nawet Stolnika...
 
