@@ -1,3 +1,4 @@
+Tadeuszu, waścine o gwiazdach gadanie\
 Jest tylko echem tego, co słyszałeś w szkole.\
 Ja o cudzie prostaków poradzić się wolę.\
 I ja astronomii słuchałem dwa lata\
