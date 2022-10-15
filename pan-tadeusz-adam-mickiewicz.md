@@ -1,3 +1,4 @@
+Gdzie mieszkał dzieckiem będąc, przed dziesięciu laty.\
 Wchodzi, cofnął się, toczył zdumione źrenice\
 Po ścianach: w tej komnacie mieszkanie kobiéce!\
 Któż by tu mieszkał? Stary stryj nie był żonaty;\
