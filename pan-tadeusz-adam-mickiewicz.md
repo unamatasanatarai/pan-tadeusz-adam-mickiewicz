@@ -1,3 +1,4 @@
+Niebios, niebios potrzeba». — «Nasz malarz Orłowski,\
 Przerwała Telimena — miał gust soplicowski.\
 (Trzeba wiedzieć, że to jest Sopliców choroba,\
 Że im oprócz ojczyzny nic się nie podoba).\
