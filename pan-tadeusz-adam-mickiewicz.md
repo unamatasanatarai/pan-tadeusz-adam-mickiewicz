@@ -1,3 +1,4 @@
+Daremnie konkurujesz: dygnitarskie progi\
 Za wysokie na Jacka podczaszyca nogi.«\
 Ja śmiałem się, udając że drwiłem z magnatów\
 I z córek ich, i nie dbam o arystokratów;\
