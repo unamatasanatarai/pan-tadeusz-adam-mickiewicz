@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Lecz jenerał Kniaziewicz, wzrostem najsłuszniejszy\
 Pokazało się, iż był w ręku najsilniejszy:\
 Ująwszy rapier lekko, jakby szpadę dźwignął\
 I nad głowami gości błyskawicą mignął,\
