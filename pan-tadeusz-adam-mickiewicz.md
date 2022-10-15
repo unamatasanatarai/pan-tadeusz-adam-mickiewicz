@@ -1,3 +1,4 @@
+Lepiej zna się na łowach niż myśliwi młodzi:\
 Tak to nauka sama z latami przychodzi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, na którego niespodzianie spadał\
