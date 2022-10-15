@@ -1,3 +1,4 @@
+Jak kochankowie, wszczęli rozmowę tajemną,\
 Tłumacząc swe uczucia w westchnieniach tłumionych,\
 Szeptach, szmerach i słowach na wpół wymówionych,\
 Z których składa się dziwna muzyka wieczoru.
