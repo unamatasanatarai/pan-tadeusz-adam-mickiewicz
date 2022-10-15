@@ -1,3 +1,4 @@
+Jaki się przy obiadach i wieczerzach chowa;\
 Była to w staropolskim domu moda nowa:\
 Przy śniadaniach pan Sędzia, choć nierad, pozwalał\
 Na taki nieporządek, lecz go nie pochwalał.
