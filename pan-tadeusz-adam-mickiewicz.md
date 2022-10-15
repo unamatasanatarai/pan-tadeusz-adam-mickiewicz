@@ -1,3 +1,4 @@
+Łaska pańska, hetmanie, na pstrym koniu jeździ!\
 Cesarz wielki bohater! gadać o tym wiele!\
 Pamiętam, że Pułascy, moi przyjaciele,\
 Mawiali, poglądając na Dymuliera,\
