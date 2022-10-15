@@ -1,3 +1,4 @@
+Do tego pokoiku, i coś mi szeptało,\
 Że tam znów pana znajdę — i tak się też stało.\
 Mając to w głowie, często też miałam na ustach\
 Imię pana — było to w Wilnie na zapustach;\
