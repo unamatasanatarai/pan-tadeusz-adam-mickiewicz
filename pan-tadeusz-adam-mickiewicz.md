@@ -1,3 +1,4 @@
+Padł koń Hrabi, spadł Hrabia; Klucznik krzycząc bieży\
 Na ratunek, bo widzi: jegry na cel wzięli\
 Ostatniego z Horeszków, chociaż po kądzieli.\
 Robak był bliższy; Hrabię ciałem swym zakrywa,\
