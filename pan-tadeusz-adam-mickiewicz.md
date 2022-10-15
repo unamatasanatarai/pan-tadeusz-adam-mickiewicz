@@ -1,3 +1,4 @@
+Jeśli szabli nie weźmiesz i na koń nie siędziesz,\
 Przynajmniej z kolegami wesoło pić będziesz\
 Zdrowie Napoleona i Polski nadzieje!»
 
