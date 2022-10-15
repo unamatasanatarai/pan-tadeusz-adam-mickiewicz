@@ -1,3 +1,4 @@
+Była to maszkarada, zapustna swawola,\
 Po której miał przyjść wkrótce wielki post — niewola!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pamiętam, chociaż byłem wtenczas małe dziecię,\
