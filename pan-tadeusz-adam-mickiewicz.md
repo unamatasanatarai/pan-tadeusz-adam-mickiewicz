@@ -1,3 +1,4 @@
+Żyd poczciwy Ojczyznę jako Polak kochał!\
 Dąbrowski mu podawał rękę i dziękował,\
 On, czapkę zdjąwszy, wodza rękę ucałował.
 
