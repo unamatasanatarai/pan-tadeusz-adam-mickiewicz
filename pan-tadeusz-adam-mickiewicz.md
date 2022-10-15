@@ -1,3 +1,4 @@
+Tadeusz jedną ręką pokazał im chmurę,\
 A drugą ścisnął z lekka rączkę Telimeny.\
 Kilka już upłynęło minut cichej sceny;\
 Hrabia rozłożył papier na swym kapeluszu\
