@@ -1,3 +1,4 @@
+Scyzoryk swój wiszący dotychczas na ścianie,\
 Póty Soplica tego zamku nie dostanie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«O! — krzyknął Hrabia, ręce podnosząc do góry —\
