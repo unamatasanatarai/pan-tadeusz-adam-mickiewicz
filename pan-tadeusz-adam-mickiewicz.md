@@ -1,3 +1,4 @@
+Toczył się i nareszcie zakończył zaszczytnie\
 Dla nas obu. Niech zgoda między nami kwitnie».\
 Więc wracali do domu oznajmić za stołem,\
 Że się skończył spór między Kusym i Sokołem.
