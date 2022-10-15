@@ -1,3 +1,4 @@
+Rwania więzów, był silny bardzo, ufał sobie.\
 Przemyślał ratować się milczkiem. Oczy zmrużył,\
 Niby śpi; z wolna ręce i nogi przedłużył,\
 Dech wciągnął, brzuch i piersi ścisnął co najwężéj:\
