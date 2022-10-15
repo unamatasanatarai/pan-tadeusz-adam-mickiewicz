@@ -1,3 +1,4 @@
+Lecz Wojski wstrzymał krzycząc: «Wara! stać i patrzeć!\
 Nikomu krokiem ruszyć z miejsca nie dozwolę;\
 Stąd widzim wszyscy dobrze, zając idzie w pole».\
 W istocie, kot czuł z tyłu myśliwych i psiarnie,\
