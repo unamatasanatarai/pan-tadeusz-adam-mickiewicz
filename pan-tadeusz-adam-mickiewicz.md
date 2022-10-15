@@ -1,3 +1,4 @@
+Miał mundur województwa: żupan złotem szyty,\
 Kontusz grodeturowy z frędzlą i pas lity,\
 Przy którym karabela z głownią jaszczurową;\
 Na szyi świecił wielką szpilką brylantową;\
