@@ -1,3 +1,4 @@
+Cicho wszędzie; przez okna głąb pałacu bada:\
 Pusto wszędzie; na ganek wchodzi nie bez strachu,\
 Odmyka klamkę i pusto jak w zaklętym gmachu;\
 Dobywa pozew, czyta głośno oświadczenie.\
