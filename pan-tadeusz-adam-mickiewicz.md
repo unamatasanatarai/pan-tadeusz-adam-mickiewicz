@@ -1,3 +1,4 @@
+Z radością zważa dziecka żywość i urodę\
 (Bo prawdziwie kochała swą wychowanicę).\
 Ale znowu poważnie nastroiła lice,\
 Wstała i przechodząc się wszerz i wzdłuż alkowy,\
