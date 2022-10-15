@@ -1,3 +1,4 @@
+«I ja chcę bić się — wołał tłukąc się w pierś ręką —\
 Choć kropidła nie noszę, drągiem od wiciny\
 Sprawiłem raz Prusakom czterem dobre chrzciny,\
 Którzy mię po pjanemu chcieli w Preglu topić».\
