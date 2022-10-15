@@ -1,3 +1,4 @@
+Ten z gołą głową; inni jak gdyby obłokiem\
 Obwiani, idąc, na wiatr puszczają zasłony,\
 Ciągnące się za głową, jak komet ogony.\
 Każdy w innej postawie: ten przyrósł do ziemi,\
