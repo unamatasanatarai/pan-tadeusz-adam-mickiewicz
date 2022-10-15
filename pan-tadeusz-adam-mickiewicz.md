@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tej sceny\
 Hrabia nie pojął; nie znał wiejskiego zwyczaju:\
 Więc zdziwiony niezmiernie biegł pędem do gaju.
