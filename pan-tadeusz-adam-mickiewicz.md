@@ -1,3 +1,4 @@
+Podnosił się, drżał chwilę, aż się uspokoił,\
 Jak woda, którą ptaszek skrzydłami rozkroił.\
 A na miejscu, gdzie stała, tylko porzucony\
 Koszyk mały z rokity, denkiem wywrócony,\
