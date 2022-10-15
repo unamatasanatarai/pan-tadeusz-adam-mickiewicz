@@ -1,3 +1,4 @@
+Kazał sobie trzy podać od kontuszów pasy,\
 Na nich ze sklepu karczmy beczki wydobywa\
 Trzy: jedną miodu, drugą wódki, trzecią piwa.\
 Wyjął goździe, wnet z szumem trysnęły trzy strugi,\
