@@ -1,3 +1,4 @@
+I już się nawet przed nim do próśb upokorzyć,\
 Lecz spojrzawszy mu w oczy, spotkawszy wejrzenia\
 Zimne jak lód, wstyd mi było mojego wzruszenia;\
 Śpieszyłem znowu jak najzimniej dyskurować\
