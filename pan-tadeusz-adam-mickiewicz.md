@@ -1,3 +1,4 @@
+*Budzą bolesną radość i rozkoszne męki!*\
 *Która na szyk Bellony gdy zwrócisz twarz piękną,*\
 *Złamią się wnet oszczepy i tarcze rozpękną!*\
 *Zwalcz dziś Marsa Hymenem; srogiej niezgód hydrze*\
