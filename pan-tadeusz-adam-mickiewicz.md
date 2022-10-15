@@ -1,3 +1,4 @@
+Rażą, spędzają, wkrótce dziedziniec oczyszczą,\
 Już aż po szybach dworu zaczynają dzwonić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, który został w domu, kobiet, bronić\
