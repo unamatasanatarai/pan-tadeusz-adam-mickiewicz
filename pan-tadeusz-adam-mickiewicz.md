@@ -1,3 +1,4 @@
+Ci w długich, rozpuszczonych szatach jak śnieg jasnych;\
 Tamten pod kapeluszem jak obręcz szerokim,\
 Ten z gołą głową; inni jak gdyby obłokiem\
 Obwiani, idąc, na wiatr puszczają zasłony,\
