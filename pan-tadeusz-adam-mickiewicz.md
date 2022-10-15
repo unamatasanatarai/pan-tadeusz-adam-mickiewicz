@@ -1,3 +1,4 @@
+Bo na jego ruchomej, drgającej powłoce\
 Wzdłuż miesięczne światełko drgające migoce.\
 Jako piękny wąż żmudzki, zwany giwojtosem,\
 Chociaż zdaje się drzemać, leżąc między wrzosem,\
