@@ -1,3 +1,4 @@
+Już mi troszeczkę nudno tak siedzieć w alkowie;\
 Pan Sędzia nawet mówi, że to źle na zdrowie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Sędzia! — przerwała ciotka — ciągle mi dokuczał\
