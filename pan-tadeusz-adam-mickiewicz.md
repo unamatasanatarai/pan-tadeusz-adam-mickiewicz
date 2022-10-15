@@ -1,3 +1,4 @@
+Bo w tym dworze mieszkała jego Zosia droga,\
 Od której choć w zalotach został pogardzony,\
 Kochał ją zawsze, zginąć rad dla jej obrony.
 
