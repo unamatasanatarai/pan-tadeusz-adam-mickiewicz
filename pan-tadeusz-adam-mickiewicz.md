@@ -1,3 +1,4 @@
+Że Litwie trzeba zawsze żelaza i lasów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Knieje! do was ostatni przyjeżdżał na łowy\
 Ostatni król, co nosił kołpak Witoldowy,\
