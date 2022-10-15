@@ -1,3 +1,4 @@
+Rzucił fajkę i rękę Telimeny złapał:\
 Chciał tańczyć, lecz uciekła; więc podszedł do Zosi,\
 Kłaniając się, słaniając, do mazurka prosi:\
 «Hej ty, Ryków, przestańże tam trąbić na fajce;\
