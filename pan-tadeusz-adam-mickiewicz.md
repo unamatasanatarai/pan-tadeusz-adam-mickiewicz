@@ -1,3 +1,4 @@
+(Tu, wstążkę oderwawszy od sukni, zrobiła\
 Kokardę i na piersiach Hrabi przyszpiliła).\
 Niech cię ten kolor wiedzie na działa ogniste,\
 Na kopije błyszczące i deszcze siarczyste;\
