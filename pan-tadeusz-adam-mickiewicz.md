@@ -1,3 +1,4 @@
+I dziś zaspał poranek; więc na sługi zrzędził,\
 Widząc myśliwców w polu cwałem do nich pędził.\
 Surdut swój angielskiego kroju, biały, długi,\
 Połami na wiatr puścił; z tyłu konno sługi,\
