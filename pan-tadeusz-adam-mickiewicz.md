@@ -1,3 +1,4 @@
+Więc rodzinę Sopliców w domu zamknąć każe\
 Jako więźniów wojennych; u drzwi stawi straże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem «Hejże na Sopliców!» Wpada szlachta hurmem,\
