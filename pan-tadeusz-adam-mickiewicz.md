@@ -1,3 +1,4 @@
+Wszak go papież namaścił, żyją z sobą w zgodzie\
 I nawracają ludzi w francuskim narodzie,\
 Który się trochę popsuł. Prawda, z Częstochowy\
 Oddano wiele srebra na skarb narodowy\
