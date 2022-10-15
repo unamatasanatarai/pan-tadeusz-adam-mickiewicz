@@ -1,3 +1,4 @@
+Też same widzi sprzęty, też same obicia,\
 Z którymi się zabawiać lubił od powicia,\
 Lecz mniej wielkie, mniej piękne niż się dawniej zdały.\
 I też same portrety na ścianach wisiały:\
