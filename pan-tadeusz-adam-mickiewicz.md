@@ -1,3 +1,4 @@
+Po moim chyba trupie pójdzie do ołtarza!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście powstali, Rejent okropnie się zmieszał,\
 Podkomorzy rywalów zagodzić pośpieszał;\
