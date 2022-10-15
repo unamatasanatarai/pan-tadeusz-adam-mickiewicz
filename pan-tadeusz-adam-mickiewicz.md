@@ -1,3 +1,4 @@
+Pewnie układał w myśli nocne peizaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaiste, okolica była malownicza!\
 Dwa stawy pochyliły ku sobie oblicza\
