@@ -1,3 +1,4 @@
+Cichego pełno było krzyku i hałasu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia, kiwnąwszy głową, rzekł poważnym tonem:\
 «Tak to na świecie wszystko los zwykł kończyć dzwonem!...\
