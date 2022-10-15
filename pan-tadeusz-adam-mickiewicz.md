@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wtem brząknął w tabakierę złotą Podkomorzy,\
 I rzekł: «Mój Sędzio, dawniej było jeszcze gorzéj!\
 Teraz, nie wiem, czy moda i nas starych zmienia,\
 Czy młodzież lepsza, ale widzę mniej zgorszenia.\
