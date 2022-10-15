@@ -1,3 +1,4 @@
+Wojski obchodził serwis i pełen radości,\
 Tryumfujące oczy obracał na gości.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Henryk Dąbrowski udał wielkie zadziwienie\
