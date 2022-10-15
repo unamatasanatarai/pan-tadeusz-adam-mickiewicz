@@ -1,3 +1,4 @@
+Przed wieścią dla Rosyi straszną jak zaraza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przecież nieraz nowina niby kamień z nieba\
 Spadała w Litwę. Nieraz dziad żebrzący chleba,\
