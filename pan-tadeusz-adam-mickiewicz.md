@@ -1,3 +1,4 @@
+W tamtej, jak w swym dziedzictwie, rej wodził Gerwazy,\
 W tej najwyższe za stołem brał miejsce Protazy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nowa karczma nie była ciekawa z pozoru.\
