@@ -1,3 +1,4 @@
+Kabany i prosięta koląc pod łopatki.\
 Już rzeź zagraża ptastwu. Czujne gęsi stado,\
 Co niegdyś ocaliło Rzym przed Galów zdradą,\
 Darmo gęga o pomoc; zamiast Manlijusza,\
