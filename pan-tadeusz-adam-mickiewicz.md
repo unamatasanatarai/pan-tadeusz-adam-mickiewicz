@@ -1,3 +1,4 @@
+Ja i Asesor, razem, jakoby dwa kurki\
 Jednym palcem spuszczone u jednej dwururki;\
 Wyczha! poszli, a zając jak struna, smyk w pole,\
 Psy tuż (to mówiąc, ręce ciągnął wzdłuż po stole\
