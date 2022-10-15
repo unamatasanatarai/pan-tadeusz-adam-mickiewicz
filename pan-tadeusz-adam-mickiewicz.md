@@ -1,3 +1,4 @@
+Tak pracują Kropiciel i Brzytwa pospołu,\
 Mordując nieprzyjaciół, ten z góry, ten z dołu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Kropiciel już pewne porzuca zwycięstwo;\
