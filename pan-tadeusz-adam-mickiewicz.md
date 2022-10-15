@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Zatem dwaj Terajewicze\
 I czterej Stypułkowscy i trzej Mickiewicze,\
 Krzyknęli: «Wiwat równość!» stając za Skołubą.\
 Tymczasem Buchman wołał: «Zgoda będzie zgubą!»\
