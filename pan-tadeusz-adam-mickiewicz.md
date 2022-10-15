@@ -1,3 +1,4 @@
+U których na kwaterach stałeś od lat wielu.\
 Za ten dar nie gniewaj się, dobry przyjacielu:\
 Nie chcieliśmy cię skrzywdzić; te oto dukaty,\
 Śmieliśmy złożyć wiedząc, żeś człek niebogaty».
