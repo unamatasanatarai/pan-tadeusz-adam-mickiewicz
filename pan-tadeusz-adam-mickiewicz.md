@@ -1,3 +1,4 @@
+Więc wypadało wrócić. Chyląc się u płotów\
 Około miedz i zielska, po tysiącach zwrotów\
 Rad był przecież, że wyszedł w końcu na gościniec,\
 Który prosto prowadził na dworski dziedziniec.\
