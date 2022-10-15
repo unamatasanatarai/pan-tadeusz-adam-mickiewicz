@@ -1,3 +1,4 @@
+Bo to wszystko w Litewskim stoi Kuryjerze?»\
 «Nieprawda — rzekł bernardyn — nie! Pan Najjaśniejszy,\
 Napoleon, katolik jest najprzykładniejszy:\
 Wszak go papież namaścił, żyją z sobą w zgodzie\
