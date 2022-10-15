@@ -1,3 +1,4 @@
+Klucznik głową i ręką kiwał wyciągnioną,\
 I mrugając powtarzał: «Pro publico bono!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więcej nie było mowy o Płucie Majorze;\
