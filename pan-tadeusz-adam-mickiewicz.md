@@ -1,3 +1,4 @@
+Trafia się, że spod konia mknie się biedak zając:\
 Puszczano wtenczas za nim dla zabawki smycze\
 I na konikach małe goniły panicze\
 Przed oczyma rodziców, którzy te pogonie\
