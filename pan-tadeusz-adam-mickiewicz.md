@@ -1,3 +1,4 @@
+Wy tylko grosz dajecie do moskiewskiej skrzyni».\
 «Kat by dał — krzyknął Wilbik — gwałtem od nas biorą».\
 «Oj, dobrodzieju — chłopek ozwał się z pokorą,\
 Pokłoniwszy się księdzu i skrobiąc się w głowę —\
