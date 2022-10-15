@@ -1,3 +1,4 @@
+Przybiegł do nas posłaniec od pana Towdena:\
 Grabowski list przeczytał, krzyknął: «Jena! Jena!\
 Zbito Prusaków na łeb, na szyję, wygrana!»\
 Ja, z konia zsiadłszy, zaraz padłem na kolana,\
