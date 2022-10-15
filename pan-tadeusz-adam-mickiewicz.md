@@ -1,3 +1,4 @@
+Odkrywszy jedną zdradę, poczną w kolej zwiedzać\
 Resztę wdzięków i wszędzie jakiś fałsz wyśledzać:\
 Dwóch zębów brakuje w ustach; na czole, na skroni\
 Zmarszczki; tysiąc zmarszczków pod brodą się chroni!
