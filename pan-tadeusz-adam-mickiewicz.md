@@ -1,3 +1,4 @@
+Głowę wyciągnął na bok i ucha przyłożył,\
 Oczy rozwarł szeroko, usta wpół otworzył;\
 Milczał, lecz kielich w ręku tak potężnie cisnął,\
 Że szkło dźwięknąwszy pękło, płyn w oczy mu prysnął.\
