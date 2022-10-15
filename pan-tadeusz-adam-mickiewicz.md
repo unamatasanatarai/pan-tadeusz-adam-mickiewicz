@@ -1,3 +1,4 @@
+Mieszając tu i ówdzie, podróżnych zwyczajem,\
 Śmiech i urąganie się nad ojczystym krajem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A przecież wokoło nich ciągnęły się lasy\
