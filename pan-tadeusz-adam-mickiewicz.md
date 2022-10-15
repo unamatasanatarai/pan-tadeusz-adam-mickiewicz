@@ -1,3 +1,4 @@
+Za katy, prędko teraz młódź do dam się bierze!\
 No, Tadeuszku, przyznaj mi się waść, a szczerze».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jużci — bąknął Tadeusz — prawda: są przyczyny\
