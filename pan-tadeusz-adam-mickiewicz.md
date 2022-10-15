@@ -1,3 +1,4 @@
+A znowu Bartłomieja syn zwał się Maciejem:\
 Kobiety wszystkie chrzczono Kachny lub Maryny.\
 By rozeznać się wpośród takiej mieszaniny,\
 Brali różne przydomki od jakiej zalety\
