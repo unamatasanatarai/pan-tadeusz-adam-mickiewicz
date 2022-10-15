@@ -1,3 +1,4 @@
+Czy świeży, czy solony, czy jesiennej pory,\
 Czy zimą. Ale Wojski zbierał *muchomory*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Inne pospólstwo grzybów, pogardzone w braku\
