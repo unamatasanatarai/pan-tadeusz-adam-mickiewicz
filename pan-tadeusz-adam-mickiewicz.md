@@ -1,3 +1,4 @@
+I Syna! tfu! mospanie Hrabia, czy waść zbojca?\
 Przebóg! czy się to zgadza z pana urodzeniem,\
 Wychowaniem i z pana na świecie znaczeniem?\
 Nie pozwolę skrzywdzić się!» Wtem Sędziego słudzy\
