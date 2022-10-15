@@ -1,3 +1,4 @@
+W niebytność Maćka zwykle przewodził obradom.\
 Ten tak rzecz kończył:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Nie jest to, panie Macieju,\
