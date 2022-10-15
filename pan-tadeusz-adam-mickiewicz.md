@@ -1,3 +1,4 @@
+Westchnęli; na znak zgody głowami skinęli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Polak, chociaż stąd między narodami słynny\
 Że bardziej niźli życie kocha kraj rodzinny,\
