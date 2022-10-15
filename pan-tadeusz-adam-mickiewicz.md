@@ -1,3 +1,4 @@
+A wtem usłyszał turkot, uczuł serca drżenie,\
 Chciał uciec... gdy ode drzwi zaszła mu osoba:\
 Szczęściem znajoma! Robak! Zdziwili się oba.
 
