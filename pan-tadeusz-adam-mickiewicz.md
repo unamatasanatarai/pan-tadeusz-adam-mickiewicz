@@ -1,3 +1,4 @@
+Dzwonek: znak, że przyjechał pleban z Panem Bogiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie już noc schodziła i przez niebo mleczne,\
 Różowe, biegą pierwsze promyki słoneczne.\
