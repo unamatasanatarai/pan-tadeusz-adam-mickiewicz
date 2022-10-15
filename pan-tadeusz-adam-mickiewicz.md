@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Cóż złego, że przeniosłem stoły do zamczyska?\
 Nikt na tym nic nie stracił, a pan może zyska.\
 Bo przecież o ten zamek dziś toczy się sprawa.\
 My od dzisiaj do zamku nabyliśmy prawa\
