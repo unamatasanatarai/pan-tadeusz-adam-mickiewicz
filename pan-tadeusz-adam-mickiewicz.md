@@ -1,3 +1,4 @@
+Lecz sam ruch i głos jego miał coś żołnierszczyzny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przy mszy, gdy z wzniesionymi zwracał się rękami\
 Od ołtarza do ludu, by mówić: «Pan z wami»,\
