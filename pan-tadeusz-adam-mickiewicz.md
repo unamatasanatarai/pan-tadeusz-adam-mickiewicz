@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem «Hejże na Sopliców!» Wpada szlachta hurmem,\
 Obstępuje dwór wkoło i bierze go szturmem,\
 Tym łacniej, że wódz wzięty i pierzchła załoga;\
