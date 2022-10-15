@@ -1,3 +1,4 @@
+«Zamek — rzekł Klucznik — i wieś, oboje to nasze».\
 «Stryja, synowca — wołał Hrabia — całe plemię\
 Wyzywaj!» «Zamek — wołał Klucznik — wieś i ziemie\
 Zabieraj pan». To mówiąc, zwrócił się do Hrabi:\
