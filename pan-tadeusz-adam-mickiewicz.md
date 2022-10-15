@@ -1,3 +1,4 @@
+Jedzą, piją, a milczą wszyscy. Nigdy pono,\
 Od czasu jako mury zamku podźwigniono,\
 Który uraczał hojnie tylu szlachty bratów,\
 Tyle wesołych słyszał i odbił wiwatów,\
