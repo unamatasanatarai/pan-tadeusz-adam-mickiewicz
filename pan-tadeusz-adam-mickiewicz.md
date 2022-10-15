@@ -1,3 +1,4 @@
+Najlepszego z Polaków, kto go okradł, zgrabił?\
 I jeszcze chce ostatki wydrzeć z rąk dziedzica?\
 Któż to? Mamże wam gadać?» «A już ci Soplica —\
 Przerwał Konewka — to łotr» «Oj, to ciemiężyciel»\
