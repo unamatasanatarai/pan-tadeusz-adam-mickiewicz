@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Oby tylko równie Bóg przebaczyć raczył! —\
 Przerwał Klucznik — jeżeli masz przyjąć wijatyk,\
 Księże Jacku: toć ja nie luter, nie syzmatyk!\
 Kto umierającego smuci, wiem, że grzeszy.\
