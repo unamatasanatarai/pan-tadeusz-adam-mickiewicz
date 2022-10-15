@@ -1,3 +1,4 @@
+Osobiste urazy, głupi, u was zgoda!\
 Precz stąd! Bo jakom Maciek, was, do milijonów\
 Kroćset kroci tysięcy fur, beczek, furgonów,\
 Diabłów!!!!...»
