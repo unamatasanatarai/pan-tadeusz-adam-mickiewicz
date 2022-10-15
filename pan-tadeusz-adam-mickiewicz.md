@@ -1,3 +1,4 @@
+Staje pobladły, drżący i prawie bez duszy.\
 »Jak śmiesz — krzyknął Kiryło piorunowym głosem —\
 Szczuć wiosną łanię kotną tuż pod carskim nosem?«\
 Osłupiały czynownik darmo się zaklinał,\
