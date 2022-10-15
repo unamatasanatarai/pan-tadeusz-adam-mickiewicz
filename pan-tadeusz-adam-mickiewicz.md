@@ -1,3 +1,4 @@
+Albo słyszał z podania, Wojski opowiadał.\
 Chociaż wieczorem słaby miał wzrok Wojski stary\
 I nie mógł w niebie dojrzeć nic przez okulary,\
 Lecz na pamięć znał imię i kształt każdej gwiazdy:\
