@@ -1,3 +1,4 @@
+Już nikt z was pomóc nie chce biednemu sierocie!\
 Dziedzic Stolnika tego, który żywił krocie,\
 Dziś nie ma przyjaciela, oprócz mnie, Klucznika,\
 I ot tego wiernego mego Scyzoryka!»
