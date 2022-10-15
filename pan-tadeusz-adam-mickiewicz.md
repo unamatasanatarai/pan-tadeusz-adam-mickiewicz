@@ -1,3 +1,4 @@
+— Hej zdjąć mu surdut! — w roku przeszłym na reducie\
 Zaczął ze mną tę kłótnię; kto zaczął? on, nie ja.\
 On, gdy tańczyłem, krzyknął: »Precz za drzwi złodzieja!«\
 Że wtenczas za pułkowej okradzenie kasy\
