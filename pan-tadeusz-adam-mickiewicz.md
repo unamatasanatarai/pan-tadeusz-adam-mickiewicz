@@ -1,3 +1,4 @@
+Zaczęła się ta prędka, zmieszana rozmowa,\
 W której lat kilku dzieje chciano zamknąć w słowa\
 Krótkie i poplątane, w ciąg powieści, pytań,\
 Wykrzykników i westchnień, i nowych powitań.\
