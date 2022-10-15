@@ -1,3 +1,4 @@
+Wkoło zaś wahały się suszące się snopy\
 Szałwi, benedykty, kardy, macierzanki:\
 Cała zielna domowa apteka Wojszczanki.\
 Sernica w górze miała wszerz sążni półczwarta,\
