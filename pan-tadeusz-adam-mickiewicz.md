@@ -1,3 +1,4 @@
+Choć go bardzo odmienił mundur pułkownika,\
 Bogate szlify, mina prawdziwie ułańska\
 I wąsik poczerniony i bródka hiszpańska.\
 Sędzia poznał: «Jak się masz, mój jaśnie wielmożny\
