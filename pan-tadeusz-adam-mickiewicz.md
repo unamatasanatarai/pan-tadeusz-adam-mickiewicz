@@ -1,3 +1,4 @@
+Źle mierzą i chybiają, rzadko który rani,\
 Ledwie który zabije: przecież dwóch Maciejów\
 Już zraniono i poległ jeden z Bartłomiejów.\
 Szlachta z niewiela rusznic z rzadka się odstrzela;\
