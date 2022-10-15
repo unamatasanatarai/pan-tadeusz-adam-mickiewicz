@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Bitwa! gdzie? w której stronie? pytają młodzieńce,\
 Chwytają broń; kobiety wznoszą w niebo ręce;\
 Wszyscy pewni zwycięstwa, wołają ze łzami:\
 «Bóg jest z Napoleonem, Napoleon z nami!»
