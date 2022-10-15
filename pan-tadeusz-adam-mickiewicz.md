@@ -1,3 +1,4 @@
+Nawet gdyby tam człowiek wpadł, chociaż niezbrojny,\
 Toby środkiem bestyi przechodził spokojny;\
 One by nań patrzyły tym wzrokiem zdziwienia,\
 Jakim w owym ostatnim szóstym dniu stworzenia\
