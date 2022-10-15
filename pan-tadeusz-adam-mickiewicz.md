@@ -1,3 +1,4 @@
+Tymczasem lud na klęczkach Anioł Pański mowi,\
 Upraszając o wieczny pokój grzesznikowi;\
 Sędzia obchodzi gości i wiejską gromadę,\
 Wszystkich do Soplicowa wzywa na biesiadę.
