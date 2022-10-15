@@ -1,3 +1,4 @@
+Że z tymi paznokciami przyskoczę do ciebie\
 I...» — «Nie będę — rzekł Hrabia — szczęścia pani kłócił»\
 I oczy pełne smutku i wzgardy odwrócił.\
 I ażeby ukarać niewierną kochankę,\
