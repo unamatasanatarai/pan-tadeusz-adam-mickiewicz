@@ -1,3 +1,4 @@
+Szyje nagie do ramion; a pomiędzy nimi\
 Dziewczyna głową wyższa, z włosami dłuższymi.\
 Tuż za dziećmi paw siedział i piór swych obręcze\
 Szeroko rozprzestrzenił w różnofarbną tęczę,\
