@@ -1,3 +1,4 @@
+Podkomorstwo i Sędzia przy stole; a w kątku\
 Panny szeptały z sobą. Nie było porządku,\
 Jaki się przy obiadach i wieczerzach chowa;\
 Była to w staropolskim domu moda nowa:\
