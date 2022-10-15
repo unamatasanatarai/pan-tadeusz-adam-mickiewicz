@@ -1,3 +1,4 @@
+Jam kłótnię panów zgodził, jak — to wam opowiem».\
 Ale Wojskiego powieść przerwali kucharze,\
 Pytając komu serwis ustawiać rozkaże.
 
