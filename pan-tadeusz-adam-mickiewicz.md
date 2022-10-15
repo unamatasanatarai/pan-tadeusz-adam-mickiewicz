@@ -1,3 +1,4 @@
+Co się tyczy malarstwa: do obrazu trzeba\
 Punktów widzenia, grupy, ansamblu i nieba,\
 Nieba włoskiego! Stąd też w kunszcie pejzażów,\
 Włochy były, są, będą, ojczyzną malarzów!\
