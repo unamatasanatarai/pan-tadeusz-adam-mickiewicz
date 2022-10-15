@@ -1,3 +1,4 @@
+Myśliłem, gdy nam zamek wróconym zostanie,\
 Obrócić grosz na murów wyreperowanie;\
 Nowemu gospodarstwu dziś zda się w potrzebie; —\
 A więc, panie Soplico, wnoszę się do ciebie,\
