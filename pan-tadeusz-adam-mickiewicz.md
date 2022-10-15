@@ -1,3 +1,4 @@
+Panny mówiły, że ja jestem zakochana:\
 Jużci, jeżeli kocham, to już chyba pana».\
 Tadeusz rad z takiego miłości dowodu,\
 Wziął ją pod rękę, ścisnął i wyszli z ogrodu\
