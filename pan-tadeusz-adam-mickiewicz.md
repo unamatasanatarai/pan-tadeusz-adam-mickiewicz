@@ -1,3 +1,4 @@
+Bieży do starca liśćmi kapusty znęcona,\
 Do nóg mu, na kolana skacze, na ramiona.\
 On, sam biały jak królik, lubi ich gromadzić\
 Wkoło siebie i ręką ciepły ich puch gładzić;\
