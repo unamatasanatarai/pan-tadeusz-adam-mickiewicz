@@ -1,3 +1,4 @@
+(Mógł trafić do rzuconej w powietrze złotówki),\
 Okropnie razi Moskwę. Starszyznę wybiera;\
 Za pierwszym zaraz strzałem ubił feldfebera,\
 Potem z dwóch rur raz po raz dwóch sierżantów sprząta,\
