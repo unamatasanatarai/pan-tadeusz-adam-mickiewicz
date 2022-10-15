@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Hrabia oczy roztworzył. Zmieszany, zdziwiony,\
 Milczał; wreszcie, zniżając swej rozmowy tony:\
 «Przepraszam — rzekł — panienko! Widzę, żem pomieszał\
 Zabawy! Ach, przepraszam: jam właśnie pośpieszał\
