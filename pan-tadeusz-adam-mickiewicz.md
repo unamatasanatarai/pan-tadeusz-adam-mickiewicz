@@ -1,3 +1,4 @@
+Ozwał się przybyłego szlachcica Skołuby:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż to, Państwo Dobrzyńscy! A to co się święci?\
 A my, czy to będziemy z pod prawa wyjęci?\
