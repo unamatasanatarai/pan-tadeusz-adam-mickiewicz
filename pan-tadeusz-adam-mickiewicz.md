@@ -1,3 +1,4 @@
+Jedna przynajmniej para chowa się dla płodu.\
 W samym środku (jak słychać) mają swoje dwory\
 Dawny Tur, Żubr i Niedźwiedź, puszcz imperatory;\
 Około nich na drzewach gnieździ się Ryś bystry\
