@@ -1,3 +1,4 @@
+A potem machnął ręką, jak gdyby przecinał\
 Dalszą rozmowę i rzekł: «Klnę się Scyzorykiem,\
 Że Płut nie wyda! gadać już nie będzie z nikim!»\
 Potem dłonie opuścił i palcami chrząsnął,\
