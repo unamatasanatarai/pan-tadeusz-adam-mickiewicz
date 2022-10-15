@@ -1,3 +1,4 @@
+Aby konfederatom ciągnąć ku pomocy,\
 Gdy nagle Moskwa zamek opasała w nocy.\
 Ledwie był czas z moździerza na trwogę wypalić,\
 Podwoje dolne zamknąć i ryglem zawalić.\
