@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Kapitan Ryków wcale nie prosił pardonu;\
 Zebrawszy koło siebie pół batalijonu,\
 Krzyknął: «Za broń!» — wnet szereg karabiny chwyta;\
