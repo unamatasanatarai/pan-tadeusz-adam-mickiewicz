@@ -1,3 +1,4 @@
+Siedziała rzędem, dzwoniąc zębami na chłodzie\
 I na deszczu, bo coraz wzmagała się słota.\
 Nadaremnie Kropiciel dąsa się i miota.
 
