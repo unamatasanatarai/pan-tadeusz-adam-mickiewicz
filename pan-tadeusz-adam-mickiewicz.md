@@ -1,3 +1,4 @@
+Hrabia lubił myślistwo, ledwie strzelców zoczył,\
 Zapomniawszy o wszystkim, prosto ku nim skoczył,\
 Mijając bramę, ogród, płoty: gdy w zawrocie\
 Obejrzał się, i konia zatrzymał przy płocie.
