@@ -1,3 +1,4 @@
+Na środek izby, wkoło Scyzorykiem błysnął;\
 Potem w dół chyląc ostrze na znak powitania\
 Przed Maćkiem, rzekł: «Rózeczce Scyzoryk się kłania.\
 Bracia szlachta, Dobrzyńscy! Ja nie będę radził\
