@@ -1,3 +1,4 @@
+Suwa naprzód jak żądło z wężowej paszczęki\
 I znowu ją w tył cofa, na kolanie wspiera:\
 I tak kręcąc się, skacząc, na Maćka naciera.
 
