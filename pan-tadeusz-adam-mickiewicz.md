@@ -1,3 +1,4 @@
+W tymże kierunku z wolna posuwa się Hrabia.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia podczas Sędziego sporów z Telimeną\
 Stał za drzewami, mocno zdziwiony tą sceną.\
