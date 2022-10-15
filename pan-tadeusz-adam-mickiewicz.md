@@ -1,3 +1,4 @@
+Potem ich powieszono u podnóża Etny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Było to osobliwsze szczęście dla Sopliców,\
 Że Hrabia, mając lepsze konie od szlachciców\
