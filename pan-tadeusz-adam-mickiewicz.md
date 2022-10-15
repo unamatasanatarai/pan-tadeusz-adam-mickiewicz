@@ -1,3 +1,4 @@
+Jegerskim, major Płut jest pierwszy mazurzysta.\
 Pódźże panienko! nie bądź taka narowista!\
 Bo ja po oficersku ukarzę panienkę...»
 
