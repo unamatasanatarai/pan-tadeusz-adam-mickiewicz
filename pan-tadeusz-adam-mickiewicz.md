@@ -1,3 +1,4 @@
+Bo przez ich liście nie śmie przecisnąć się żmija,\
 A ich woń gąsienice i owad zabija.\
 Dalej maków białawe górują badyle;\
 Na nich, myślisz, iż rojem usiadły motyle\
