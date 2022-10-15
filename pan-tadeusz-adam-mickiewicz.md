@@ -1,3 +1,4 @@
+Dwóch zębów brakuje w ustach; na czole, na skroni\
 Zmarszczki; tysiąc zmarszczków pod brodą się chroni!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Niestety! Czuł Tadeusz, jak jest niepotrzebnie\
