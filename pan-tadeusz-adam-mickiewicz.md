@@ -1,3 +1,4 @@
+O tobie bajać, dotąd pieśń o tobie marzy.\
 Z dawna byłeś niebieskim oznajmiony cudem\
 I poprzedzony głuchą wieścią między ludem;\
 Ogarnęło Litwinów serca z wiosny słońcem\
