@@ -1,3 +1,4 @@
+Jak gdyby włosem jasnym; a lewego czoło\
 Najeżone łozami, wierzbami czubate;\
 Oba stawy ubrane w zieloności szatę.
 
