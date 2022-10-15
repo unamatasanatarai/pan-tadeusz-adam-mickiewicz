@@ -1,3 +1,4 @@
+W puszczy łoskot, to kula od jakiegoś działa,\
 Zbłądziwszy z pola bitwy, dróg w lesie szukała,\
 Rwąc pnie, siekąc gałęzie. Żubr, brodacz sędziwy,\
 Zadrżał we mchu, najeżył długie włosy grzywy,\
