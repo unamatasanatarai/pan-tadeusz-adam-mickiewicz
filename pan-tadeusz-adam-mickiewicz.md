@@ -1,3 +1,4 @@
+Więc do majora Płuta rzekł kapitan Ryków:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Major! co nam z tych wszystkich niewolników?\
 Oddamy pod sąd? będzie szlachcie wielka bieda,\
