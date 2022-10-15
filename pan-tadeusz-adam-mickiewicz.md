@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Sędzia, żegnając się, krzyknął: «W Imię Ojca\
 I Syna! tfu! mospanie Hrabia, czy waść zbojca?\
 Przebóg! czy się to zgadza z pana urodzeniem,\
