@@ -1,3 +1,4 @@
+Jużci my wszystko zrobim, na wszystko gotowi;\
 Tylko niech ksiądz dobrodziej jaśniej się wysłowi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ksiądz poglądał za okno, przerwawszy rozmowę;\
