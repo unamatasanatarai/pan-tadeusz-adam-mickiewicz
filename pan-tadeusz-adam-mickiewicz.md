@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Choć Hrabia Telimenę już dawniej widywał\
 W domu Sędziego, w którym dosyć często bywał,\
 Lecz mało ją uważał: zadziwił się zrazu,\
