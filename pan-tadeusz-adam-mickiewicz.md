@@ -1,3 +1,4 @@
+Zasiany ręką ojców na wieńce dla synów,\
 Te rzędami portretów zdobione filary,\
 Ten w sklepieniu błyszczący herb Półkozic stary,\
 Ozwały się doń zewsząd głosami przeszłości.\
