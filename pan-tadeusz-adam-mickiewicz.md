@@ -1,3 +1,4 @@
+Rwą skiby, robią otwór wichrowi trzeciemu,\
 Który wydarł się z roli jak słup czarnoziemu,\
 Wznosi się, jak ruchoma piramida toczy,\
 Łbem grunt wierci, z nóg piasek sypie gwiazdom w oczy,\
