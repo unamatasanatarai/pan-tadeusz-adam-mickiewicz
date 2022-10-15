@@ -1,3 +1,4 @@
+Jej zapomnieć i zawżdy jej postać kochana\
 Stoi mi przed oczyma jakby malowana!\
 Piłem, nie mogłem zapić pamięci na chwilę,\
 Ani pozbyć się, chociaż przebiegłem ziem tyle!\
