@@ -1,3 +1,4 @@
+Zdobyłem tabor zbójców: zbrojnych mordowałem,\
 Rozbrojonych zabrałem i związać kazałem;\
 Szli za końmi i tryumf mój zdobili świetny,\
 Potem ich powieszono u podnóża Etny».
