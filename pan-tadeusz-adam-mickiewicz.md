@@ -1,3 +1,4 @@
+Nie tak jak modni wieku twojego panicze,\
 Żyjący bez rachunku. Ja tuszę i życzę\
 Zgodą zakończyć moje sądy podkomorskie.\
 Dotąd jedyna trudność jest o fundum dworskie:\
