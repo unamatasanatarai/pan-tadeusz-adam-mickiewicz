@@ -1,3 +1,4 @@
+Z powodu wielmożnego Sędziego Soplicy:\
 O inkursyją, to jest o najazd granicy,\
 Gwałt zamku, w którym Sędzia dotąd prawnie włada,\
 Czego dowodem jawnym jest, że w zamku jada».\
