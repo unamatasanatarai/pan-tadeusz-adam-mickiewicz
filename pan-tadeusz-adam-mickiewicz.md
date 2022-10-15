@@ -1,3 +1,4 @@
+Pleban, co pacierz mruczał lub w warcaby grywał,\
 I palestra z fajkami! To mi kawalery!\
 Nabrałabyś się od nich pięknej manijery.\
 Teraz to pokazać się jest przynajmniej komu,\
