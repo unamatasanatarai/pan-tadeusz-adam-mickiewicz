@@ -1,3 +1,4 @@
+I sprawia, że łza przystygła wypłynie,\
 Nim się te usta znajdą, wiek przeminie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedyś... gdy zemsty lwie przehuczą ryki,\
