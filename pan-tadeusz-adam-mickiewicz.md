@@ -1,3 +1,4 @@
+«Co to jest?» pyta. Hrabia szpadą nad nim mignął,\
 Lecz widząc bezbronnego w zapale ostygnął:\
 «Soplico — rzekł — odwieczny wrogu mej rodziny,\
 Dziś skarzę cię za dawne i za świeże winy,\
