@@ -1,3 +1,4 @@
+W którym rzędami flaszek białe sterczą głowy;\
 Wybiera z nich największy kufel kryształowy\
 (Dostał go Sędzia w darze od księdza Robaka):\
 Wódka to gdańska, napój miły dla Polaka.\
