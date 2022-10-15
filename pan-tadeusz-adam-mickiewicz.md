@@ -1,3 +1,4 @@
+Przerwał Konewka — bo to wyrosło z szlachciury,\
 A jak dmie się, phu, phu, phu, jak nos drze do góry!\
 Pamiętacie, prosiłem na córki wesele;\
 Poję, nie chce pić, mówi: »Nie piję tak wiele\
