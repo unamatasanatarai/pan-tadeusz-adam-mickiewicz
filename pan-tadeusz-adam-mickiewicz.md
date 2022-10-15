@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Pomniki nasze! ileż co rok was pożera\
 Kupiecka lub rządowa, moskiewska siekiera!\
 Nie zostawia przytułku ni leśnym śpiewakom,\
