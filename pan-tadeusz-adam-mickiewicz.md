@@ -1,3 +1,4 @@
+I chcąc spotkać się pierwszy, zostawił ich w tyle\
 I biegł przed resztą jazdy, przynajmniej o milę,\
 Ze swym dżokejstwem, które posłuszne i karne,\
 Stanowiło niejako wojsko regularne;\
