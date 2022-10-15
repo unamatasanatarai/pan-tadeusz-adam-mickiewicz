@@ -1,3 +1,4 @@
+Czy wpadł w paszczę Kusego, czyli też Sokoła,\
 Czyli obydwu razem: różnie sądzą strony,\
 I spór na dalsze czasy trwał nierozstrzygniony.
 
