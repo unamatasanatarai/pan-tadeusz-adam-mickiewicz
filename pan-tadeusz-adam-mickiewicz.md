@@ -1,3 +1,4 @@
+Mnie nic do Tadeusza; sami o nim radźcie,\
 Zróbcie go ekonomem lub w karczmie posadźcie,\
 Niech szynkuje lub z lasu niech zwierzynę znosi:\
 Z nim sobie, co zechcecie, zróbcie. Lecz do Zosi?\
