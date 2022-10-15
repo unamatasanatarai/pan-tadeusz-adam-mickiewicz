@@ -1,3 +1,4 @@
+Co pierwej, jako płaczki przy grobowym dole,\
 Biły czołem, długimi kręciły ramiony,\
 Rozpuszczając na wiatry warkocz posrebrzony,\
 Teraz jak martwe, z niemej wyrazem żałoby,\
