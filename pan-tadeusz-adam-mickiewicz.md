@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Rówienniki litewskich wielkich kniaziów, drzewa\
 Białowieży, Świtezi, Ponar, Kuszelewa!\
 Których cień spadał niegdyś na koronne głowy\
