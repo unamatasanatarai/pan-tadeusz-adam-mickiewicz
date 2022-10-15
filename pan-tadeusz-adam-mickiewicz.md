@@ -1,3 +1,4 @@
+Jej rozkazać, mnie słuchać: jużci przy niej władza.\
 Tylko ostrzegam, byśmy wolności nie dali\
 Pustej i słownej tylko, jako za Moskali,\
 Kiedy pan Karp nieboszczyk włościan wyswobodził ,\
