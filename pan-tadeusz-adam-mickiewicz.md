@@ -1,3 +1,4 @@
+Młodzież zaczęła szemrać; Sędzia przerwał swary,\
 Głosząc przybycie trzeciej narzeczonej pary.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Był to Rejent, sam siebie Rejentem ogłosił,\
