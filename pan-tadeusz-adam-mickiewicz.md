@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Aż Maciek, dotychczas ponury,\
 Nieruchomy, wstał z ławy i wolnymi kroki\
 Wyszedł na środek izby i podparł się w boki;\
 I spojrzawszy przed siebie, i kiwając głową,\
