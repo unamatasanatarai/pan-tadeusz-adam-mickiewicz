@@ -1,3 +1,4 @@
+Od złotego motylów deszczu. W drugiej ręce\
 Coś u niej rogatego, złocistego świeci,\
 Zdaje się, że naczynie do karmienia dzieci:\
 Bo je zbliżała dzieciom do ust po kolei;\
