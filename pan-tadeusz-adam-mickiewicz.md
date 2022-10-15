@@ -1,3 +1,4 @@
+Niby czareczki różnym winem napełnione;\
 *Koźlak*, jak przewrócone kubka dno wypukłe,\
 *Lejki*, jako szampańskie kieliszki wysmukłe,\
 *Bielaki* krągłe, białe, szerokie i płaskie,\
