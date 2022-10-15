@@ -1,3 +1,4 @@
+Dziś nie mogła rozejść się wieść po okolicy,\
 A właśnie zawisł szlachty los od tajemnicy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W izbie Sędziego ważne toczą się narady.\
