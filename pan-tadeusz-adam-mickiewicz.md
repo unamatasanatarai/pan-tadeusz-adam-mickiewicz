@@ -1,3 +1,4 @@
+i zbudzony, za bogów rozkazem wyraźnym\
 Zbudował miasto Wilno, które w lasach siedzi\
 Jak wilk pośrodku żubrów, dzików i niedźwiedzi.\
 Z tego to miasta Wilna, jak z rzymskiej wilczycy,\
