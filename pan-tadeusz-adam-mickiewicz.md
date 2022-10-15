@@ -1,3 +1,4 @@
+Jam jest Rębajło, staję na twe zawołanie\
 Z tym moim Scyzorykiem, który nie z oprawy\
 Ani z napisów, ale z hartu nabył sławy,\
 Że nawet o nim jaśnie wielmożny pan wiedział.\
