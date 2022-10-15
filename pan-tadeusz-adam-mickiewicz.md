@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Krótkie były Sędziego z synowcem witania:\
 Dał mu poważnie rękę do pocałowania,\
 I w skroń ucałowawszy uprzejmie pozdrowił;\
