@@ -1,3 +1,4 @@
+Panowie! długo żyję: jednego widziałem\
 Człowieka, co mógł takim popisać się strzałem.\
 Ów głośny niegdyś u nas z tylu pojedynków,\
 Ów, co korki kobietom wystrzelał z patynków,\
