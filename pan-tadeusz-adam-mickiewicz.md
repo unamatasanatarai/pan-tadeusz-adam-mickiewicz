@@ -1,3 +1,4 @@
+Gdziem nie był! com nie cierpiał!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Aż Bóg raczył lekarstwo jedyne objawić:\
 Poprawić się potrzeba było i naprawić\
