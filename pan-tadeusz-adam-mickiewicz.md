@@ -1,3 +1,4 @@
+A wszystkie przeciw Bogu i Ojczyźnie winy\
 Zgładził przez żywot święty i przez wielkie czyny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;On to pod Hohenlinden, gdy Ryszpans jenerał\
