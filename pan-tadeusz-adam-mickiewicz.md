@@ -1,3 +1,4 @@
+Jedzie Doweyko, z drugiej na koniu Domeyko.\
 Patrzą, aż tu przez rzekę leży most kosmaty,\
 Pas ze skóry niedźwiedziej, porzniętej na szmaty.\
 Postawiłem Doweykę na źwierza ogonie\
