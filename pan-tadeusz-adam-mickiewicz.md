@@ -1,3 +1,4 @@
+Który z drzewa ma skoczyć w oczy myśliwemu,\
 Wydyma się kłębuszkiem, mruczy, krwawe ślepie\
 Wyiskrza, wąsy rusza i ogonem trzepie.
 
