@@ -1,3 +1,4 @@
+Pułk za pułkiem cwałował i spadał z kulbaki;\
 Co pułk spadnie, to cesarz zażyje tabaki.\
 Aż w końcu, Aleksander ze swoim braciszkiem\
 Konstantym i z niemieckim cesarzem Franciszkiem,\
