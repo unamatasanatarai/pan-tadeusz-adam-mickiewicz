@@ -1,3 +1,4 @@
+Widząc rumaki szczwaczów, dojeżdżaczów smycze,\
 Psy jak szalone cwałem śmigają po dworze,\
 Potem biegną i kładą szyje na obroże:\
 Wszystko to bardzo dobre polowanie wróży;\
