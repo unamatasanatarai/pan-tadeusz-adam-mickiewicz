@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tam włość już kończy ucztę: krążą miodu dzbany.\
 Muzyka już się stroi i wzywa na tany;\
 Szukają Tadeusza, który stał na stronie\
 I coś pilnego szeptał swojej przyszłej żonie.
