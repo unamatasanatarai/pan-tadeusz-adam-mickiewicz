@@ -1,3 +1,4 @@
+Który miał w domu krzesła, wstęgi i buławy,\
 Ojciec włościan, brat szlachty; i nie miał po sobie\
 Syna, który by zemstę poprzysiągł na grobie!\
 Ale miał sługi wierne. Ja w krew jego rany\
