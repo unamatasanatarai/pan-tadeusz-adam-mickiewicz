@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Żeby już raz otwarcie był mnie zrekuzował!...\
 Bo znał nasze uczucia... Gdyby nie przyjmował\
 Mych odwiedzin: to kto wie? może bym odjechał,\
 Pogniewał się, połajał, w końcu go zaniechał;\
