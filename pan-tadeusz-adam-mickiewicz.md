@@ -1,3 +1,4 @@
+Zabijać nieraz lisa, właśnie gdy linieje,\
 Albo cierpieć, iż kotną samicę zajęczą\
 Charty w runi uszczują, a raczej zamęczą,\
 Z wielką szkodą zwierzyny. Stąd się Hrabia żali,\
