@@ -1,3 +1,4 @@
+Idzie z jaśnie wielmożnych, jest wojewodzianka,\
 Rodzi się z Horeszkówny; małżonka dostanie!\
 Staraliśmy się tyle o jej wychowanie!\
 Chybaby tu zdziczała». Sędzia pilnie słuchał,\
