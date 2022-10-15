@@ -1,3 +1,4 @@
+Wpada na Tadeusza; lecz Wojski zza stoła\
 Machnął ręką na odlew; nóż w powietrzu świsnął\
 Między głowy i pierwej uderzył, niż błysnął;\
 Uderza w dno gitary, na wylot ją wierci,\
