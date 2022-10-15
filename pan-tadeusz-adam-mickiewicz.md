@@ -1,3 +1,4 @@
+Dalbóg Dobrzyńscy! ja wasz brat, ale Sędziego\
 Nie pozwolę pokrzywdzić; nie będzie nic z tego.\
 Nie tak, panowie bracia, w Wielkopolszcze było:\
 Co za duch! co za zgoda! aż przypomnieć miło!\
