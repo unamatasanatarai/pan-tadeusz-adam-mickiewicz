@@ -1,3 +1,4 @@
+Znalazł kulę, wydobył, suknią ochędożył,\
 Przymierzył do ładunku, do flinty przyłożył,\
 A potem dłoń podnosząc i kulę na dłoni:\
 «Panowie — rzekł — ta kula nie jest z waszej broni,\
