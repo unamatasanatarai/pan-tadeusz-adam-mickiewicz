@@ -1,3 +1,4 @@
+Ta myśl... zdaje się czysta...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chciałeś zemsty? masz!... Boś ty był narzędziem kary\
 Bożej, twoim Bóg mieczem rozciął me zamiary:\
