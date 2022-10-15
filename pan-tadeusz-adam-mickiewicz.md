@@ -1,3 +1,4 @@
+Ci mówcy zalecają swoich kandydatów;\
 Z różnym skutkiem, jak widać z miny szlachty bratów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wprawdzie tam, w drugiej kupie, szlachta pilnie słucha.\
