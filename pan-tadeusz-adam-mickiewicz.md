@@ -1,3 +1,4 @@
+«Nie mogę — rzekł — bez mego szlachectwa obrazy\
 Dotykać rękę, takim morderstwem skrwawioną\
 Z prywatnej zemsty, nie zaś pro publico bono!»
 
