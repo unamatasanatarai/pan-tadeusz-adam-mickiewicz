@@ -1,3 +1,4 @@
+Połykał gorzkie słowa i przetrawiał w duszy.\
 Okropną miał biesiadę. Jak w ogrodzie żmija\
 Dwoistym żądłem zioło zatrute wypija,\
 Potem skręci się w kłębek i na drodze legnie,\
