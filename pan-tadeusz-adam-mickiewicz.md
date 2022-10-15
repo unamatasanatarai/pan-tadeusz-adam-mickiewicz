@@ -1,3 +1,4 @@
+Która im wspominała i młode ich lata,\
 I dawne ich miłostki. Więc ze łzami prawie\
 Skupili się do stołu, patrzyli ciekawie.\
 Ci proszą, aby Zosia wzniosła nieco czoło\
