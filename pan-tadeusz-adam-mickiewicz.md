@@ -1,3 +1,4 @@
+Przyjmę warunki zgody, jakie mi sąd poda...»\
 «Zgody? — krzyknął Gerwazy — z Soplicami zgoda?\
 Z Soplicami, mopanku?» — To mówiąc wykrzywił\
 Usta, jakby nad własną mową się zadziwił.\
