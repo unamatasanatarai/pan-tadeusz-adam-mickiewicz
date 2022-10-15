@@ -1,3 +1,4 @@
+Zawiesił dźwięcznostrunne na ścianie cymbały;\
 Osiadłszy z dziećmi w karczmie, zatrudniał się szynkiem,\
 Przy tym w pobliskim mieście był też podrabinkiem,\
 A zawsze miłym wszędzie gościem i domowym\
