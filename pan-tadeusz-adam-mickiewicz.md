@@ -1,3 +1,4 @@
+U nas była komenda w kowieńskiej brygadzie\
 Krótka a węzłowata: strasz, sam się nie strachaj;\
 Bij, nie daj się; postępuj często, gęsto machaj:\
 Szach, mach!» «To — pisnął Brzytwa — to mi regulament!\
