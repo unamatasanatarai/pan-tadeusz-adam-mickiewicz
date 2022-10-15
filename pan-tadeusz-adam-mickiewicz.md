@@ -1,3 +1,4 @@
+I pisarz prowentowy w szeptach z Ekonomem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Podkomorzy siedział na przyzbie przed domem.\
 Przerwał rozmowę gości; znać, że głos zabiera:\
