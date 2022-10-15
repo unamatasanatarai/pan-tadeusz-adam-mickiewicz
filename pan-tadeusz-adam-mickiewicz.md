@@ -1,3 +1,4 @@
+Uważ, że człowiek w twoim wieku i chorobie\
 Nie zdołałby z innymi razem emigrować;\
 Mówiłeś, że wiesz domek, gdzie się masz przechować:\
 Powiedz gdzie? Śpieszmy, czeka zaprzężona bryka.\
