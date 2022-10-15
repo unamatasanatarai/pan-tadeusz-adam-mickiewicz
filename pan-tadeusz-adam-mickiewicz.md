@@ -1,3 +1,4 @@
+Przemyślał ratować się milczkiem. Oczy zmrużył,\
 Niby śpi; z wolna ręce i nogi przedłużył,\
 Dech wciągnął, brzuch i piersi ścisnął co najwężéj:\
 Aż jednym razem kurczy, wydyma się, pręży;\
