@@ -1,3 +1,4 @@
+Wstała i przechodząc się wszerz i wzdłuż alkowy,\
 Dzierżąc palec przy ustach, tymi rzekła słowy:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Kochana Zosiu, już też całkiem zapominasz\
