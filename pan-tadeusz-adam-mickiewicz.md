@@ -1,3 +1,4 @@
+Ty jesteś mój przyjaciel, cóż ty mówisz na to?\
 Wiesz wasze, że mam córkę piękną i bogatą:\
 A kasztelan — witebski! Wszakże to w senacie\
 Niskie, drążkowe krzesło. Cóż mi radzisz, bracie?«\
