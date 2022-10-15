@@ -1,3 +1,4 @@
+Nią zdała się oganiać główki niemowlęce\
 Od złotego motylów deszczu. W drugiej ręce\
 Coś u niej rogatego, złocistego świeci,\
 Zdaje się, że naczynie do karmienia dzieci:\
