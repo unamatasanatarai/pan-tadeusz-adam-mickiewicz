@@ -1,3 +1,4 @@
+Od dziś zacznę, dziś ciebie na świat wyprowadzę,\
 Do salonu, do gości — gości mamy siła;\
 Patrzajżeż, ażebyś mnie wstydu nie zrobiła».
 
