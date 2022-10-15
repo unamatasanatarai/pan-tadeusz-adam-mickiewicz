@@ -1,3 +1,4 @@
+Na rzemieniach munsztuka i na uździenicy\
 Połyskają guziki perłowej macicy,\
 U napierśnika wisi księżyc w kształt Leliwy,\
 To jest w kształt nowiu. Cały ten sprzęt osobliwy,\
