@@ -1,3 +1,4 @@
+Które wodą pojone bujały dokoła;\
 Tam ów bystry swawolnik, spowijany w trawy\
 I liściem podesłany, bez ruchu, bez wrzawy,\
 Niewidzialny i ledwie dosłyszany szepce,\
