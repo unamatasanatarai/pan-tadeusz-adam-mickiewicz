@@ -1,3 +1,4 @@
+Pęk żelaza wyleciał jako kamień z procy,\
 Pewnie łeb Protazemu rozbiłby na ćwierci;\
 Szczęściem, schylił się Woźny i wydarł się śmierci.
 
