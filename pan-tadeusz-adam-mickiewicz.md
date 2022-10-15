@@ -1,3 +1,4 @@
+Prawdać to, że naonczas myślano o Hrabi,\
 Nie zaś o Tadeuszu».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na to Klucznik rzecze:\
