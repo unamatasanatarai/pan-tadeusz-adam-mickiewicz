@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    «Cha, cha, cha, cha,\
 Kłaniam, kłaniam! Cha, cha, cha, wyśmienicie, przednie!\
 Panowie oficery, kto poluje we dnie,\
 Wy w nocy! Dobry połów: widziałem zwierzynę;\
