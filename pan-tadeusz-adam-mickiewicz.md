@@ -1,3 +1,4 @@
+W pół godziny już byli z sobą poufali;\
 Zaczęli nawet małe żarciki i sprzeczki.\
 W końcu, stawiła przed nim trzy z chleba gałeczki.\
 Trzy osoby na wybór; wziął najbliższą sobie;\
