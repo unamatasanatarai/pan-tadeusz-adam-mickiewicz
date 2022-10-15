@@ -1,3 +1,4 @@
+Pod namiotem obwisłych gałęzi majowych,\
 Snuło się mnóstwo kształtów, których dziwne ruchy,\
 Niby tańce, i dziwny ubiór: istne duchy\
 Błądzące po księżycu. Tamci w czarnych, ciasnych,\
