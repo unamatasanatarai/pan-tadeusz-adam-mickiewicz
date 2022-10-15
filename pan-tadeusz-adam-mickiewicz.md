@@ -1,3 +1,4 @@
+A naprzód komisyją legalnie wyznaczyć,\
 Która by rozważyła emigracji cele,\
 Środki, sposoby, tudzież innych względów wiele.\
 Nieszczęściem, krótkość czasu była na zawadzie,\
