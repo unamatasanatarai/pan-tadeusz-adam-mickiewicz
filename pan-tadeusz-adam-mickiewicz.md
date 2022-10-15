@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem na folwarku nie uszło baczności,\
 Że przed ganek zajechał któryś z nowych gości.\
 Już konie w stajnią wzięto, już im hojnie dano,\
