@@ -1,3 +1,4 @@
+I trzymali inaczej o muszym rodzaju;\
 Lecz Wojski nie odstąpił dawnego zwyczaju:\
 Ledwo dostrzegł takową muchę, wnet ją gonił.\
 Właśnie mu teraz szlachcic nad uchem zadzwonił;\
