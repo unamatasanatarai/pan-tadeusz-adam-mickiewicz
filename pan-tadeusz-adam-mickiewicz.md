@@ -1,3 +1,4 @@
+W sukni długiej, jak gdyby w powłoce koralu,\
 Od której odbijał się włos z jednego końca,\
 Z drugiego czarny trzewik; po bokach błyszcząca\
 Śnieżną pończoszką, chustką, białością rąk, lica,\
