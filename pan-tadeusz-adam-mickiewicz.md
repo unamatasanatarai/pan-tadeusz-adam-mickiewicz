@@ -1,3 +1,4 @@
+Potem gęściej siekł struny jak deszczem nawalnym:\
 Dziwią się wszyscy. Lecz to była tylko proba;\
 Bo wnet przerwał i w górę podniósł drążki oba.
 
