@@ -1,3 +1,4 @@
+Dwie pjawki, które w całej okolicy słyną,\
 Pies zowie się Sprawnikiem, a suka Strapczyną;\
 Zakneblować im pyski, zawiązać je w miechu,\
 I przystawić je tutaj konno dla pośpiechu».\
