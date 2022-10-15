@@ -1,3 +1,4 @@
+Stoją drabi. Poznał ich Gerwazy, niestety!\
 Moskale!!!
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Nieraz Klucznik był w podobnych trwogach,\
