@@ -1,3 +1,4 @@
+Jadącego — że może starzec się poruszy\
 I pokaże mi przecież trochę ludzkiej duszy\
 Jak ślimak rogów!
 
