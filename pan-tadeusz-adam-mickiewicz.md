@@ -1,3 +1,4 @@
+Że ojciec w testamencie wyrzekł taką wolę;\
 Ustawicznie do bębna tęsknił, siedząc w szkole.\
 Ale stryj nagle pierwsze zamiary odmienił,\
 Kazał, aby przyjechał i aby się żenił\
