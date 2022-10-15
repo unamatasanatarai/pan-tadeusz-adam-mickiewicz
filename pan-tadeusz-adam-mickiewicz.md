@@ -1,3 +1,4 @@
+Myślano długo w Litwie, że obu zabito:\
 Wrócili oba, każdy pokłuty jak sito.\
 Pan Pociej, zacny człowiek, chciał zaraz po wojnie\
 Obrońcę Dobrzyńskiego wynagrodzić hojnie;\
