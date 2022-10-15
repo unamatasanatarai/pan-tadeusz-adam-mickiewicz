@@ -1,3 +1,4 @@
+(Tak każe przyzwoitość). Nikt tam nie rozprawiał\
 O porządku, nikt mężczyzn i dam nie ustawiał:\
 A każdy mimowolnie porządku pilnował;\
 Bo Sędzia w domu dawne obyczaje chował,\
