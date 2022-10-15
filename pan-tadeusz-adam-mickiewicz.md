@@ -1,3 +1,4 @@
+Zebrawszy koło siebie pół batalijonu,\
 Krzyknął: «Za broń!» — wnet szereg karabiny chwyta;\
 Chrząsnęła broń, a była już dawno nabita;\
 Krzyknął: «Cel!» — rury rzędem zabłysnęły długim;\
