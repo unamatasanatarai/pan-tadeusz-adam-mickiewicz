@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena nie mogła pojąć, co to znaczy;\
 Ruszywszy ramionami, myśliła: dziwaczy!\
 Wreszcie nowym zalotom Hrabiego dość rada,\
