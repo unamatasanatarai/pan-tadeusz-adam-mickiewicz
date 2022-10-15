@@ -1,3 +1,4 @@
+Strumieniem łzy — poznałem, jak byłem jej miły!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pomnę, pierwszy raz w życiu jam się łzami zalał\
 Z radości i z rozpaczy, zapomniał się, szalał.\
