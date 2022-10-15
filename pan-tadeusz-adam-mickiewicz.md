@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«To prawda ojcze — rzekli dwaj oficerowie —\
 Czas by już zjeść i wypić pana Sędzi zdrowie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zdziwili się domowi, patrząc na Robaka,\
