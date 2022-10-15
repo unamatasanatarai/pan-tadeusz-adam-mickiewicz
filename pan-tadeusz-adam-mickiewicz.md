@@ -1,3 +1,4 @@
+Skarżyli się, że król im marszu nie dozwala;\
 Tak radzi by co prędzej doścignąć Moskala.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W mieście pobliskim stanął główny sztab książęcy,\
