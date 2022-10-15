@@ -1,3 +1,4 @@
+Dobrze zrobił, bo jazda nań od zamku wali.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia, który był w zamku pod strażą Moskali,\
 Gdy pierzchła straż zlękniona, dworzan na koń wsadził,\
