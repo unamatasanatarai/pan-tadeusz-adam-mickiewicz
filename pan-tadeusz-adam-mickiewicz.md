@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Kropiciel już pewne porzuca zwycięstwo;\
 Bieży na prawe skrzydło, gdzie niebezpieczeństwo\
 Nowe grozi Maćkowi. Śmierci Gifrejtera\
