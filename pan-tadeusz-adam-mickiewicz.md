@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nad gęstwą różnofarbnych kłosów i badylów\
 Wisiała jak baldachim jasna mgła motylów,\
 Zwanych babkami, których poczwórne skrzydełka\
 Lekkie jak pajęczyna, przejrzyste jak szkiełka,\
