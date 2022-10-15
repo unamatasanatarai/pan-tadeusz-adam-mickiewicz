@@ -1,3 +1,4 @@
+Twarz podróżnego barwą spłonęła rumianą,\
 Jak obłok, gdy z jutrzenką napotka się raną.\
 Skromny młodzieniec oczy zmrużył i przysłonił,\
 Chciał coś mówić, przepraszać; tylko się ukłonił\
