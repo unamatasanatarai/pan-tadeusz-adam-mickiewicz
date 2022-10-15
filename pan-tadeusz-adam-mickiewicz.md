@@ -1,3 +1,4 @@
+Opuszczają plac boju, gdzie wkrótce żywioły\
 Stoczą walkę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na zachód, jeszcze ozłocona\
