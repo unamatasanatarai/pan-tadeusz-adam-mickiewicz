@@ -1,3 +1,4 @@
+Jęknęli wszyscy; wszystkich zagłuszył wrzask Zosi,\
 Która krzyczała, Sędzię objąwszy rękami,\
 Jako dziecko od Żydów kłute igiełkami.
 
