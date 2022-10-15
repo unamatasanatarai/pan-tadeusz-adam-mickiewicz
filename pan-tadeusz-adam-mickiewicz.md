@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy obejrzał się, łysinę pogładził,\
 Kiwnął niedbale ręką, jak gdyby znać dawał,\
 Że już wszystko załatwił. Lecz Ryków nastawał:\
