@@ -1,3 +1,4 @@
+Dzikie i swojskie razem, w miłości i zgodzie,\
 Nigdy jeden drugiego nie kąsa ni bodzie.\
 Nawet gdyby tam człowiek wpadł, chociaż niezbrojny,\
 Toby środkiem bestyi przechodził spokojny;\
