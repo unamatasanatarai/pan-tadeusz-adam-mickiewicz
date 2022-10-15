@@ -1,3 +1,4 @@
+Od której choć w zalotach został pogardzony,\
 Kochał ją zawsze, zginąć rad dla jej obrony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już szereg jegrów w marszu na pokrzywę wkracza:\
