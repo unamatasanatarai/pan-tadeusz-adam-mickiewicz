@@ -1,3 +1,4 @@
+Stała młoda dziewczyna... Białe jej ubranie\
 Wysmukłą postać tylko aż do piersi kryje,\
 Odsłaniając ramiona i łabędzią szyję.\
 W takim Litwinka tylko chodzić zwykła z rana,\
