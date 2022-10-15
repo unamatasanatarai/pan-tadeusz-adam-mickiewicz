@@ -1,3 +1,4 @@
+Zdziwiłem się. Moskale padali wkoło mnie.\
 Bydlęta, źle strzelają! Na widok ich klęski\
 Złość mię znowu porwała. — Ten Stolnik zwycięski!\
 I także mu na świecie wszystko się powodzi?\
