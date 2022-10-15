@@ -1,3 +1,4 @@
+Rzekł: «Muszę ja wam służyć, moje panny córki,\
 Choć stary i niezgrabny». Zatem się rzuciło\
 Kilku młodych od stołu i pannom służyło.\
 Sędzia, z boku rzuciwszy wzrok na Tadeusza\
