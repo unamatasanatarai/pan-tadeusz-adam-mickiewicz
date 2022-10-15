@@ -1,3 +1,4 @@
+Od czasów szwedzkich; niegdyś skrzydło wrót otwarte\
 Bywało o tę kulę jak o głaz oparte.\
 Na dziedzińcu, spomiędzy piołunu i chwastu,\
 Wznoszą się stare szczęty krzyżów kilkunastu\
