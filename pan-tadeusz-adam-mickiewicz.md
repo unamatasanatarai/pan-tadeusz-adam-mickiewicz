@@ -1,3 +1,4 @@
+Kto umierającego smuci, wiem, że grzeszy.\
 Powiem tobie coś, pewnie to ciebie pocieszy.\
 Kiedy nieboszczyk Pan mój upadał zraniony,\
 A ja klęcząc nad jego piersią pochylony\
