@@ -1,3 +1,4 @@
+Szukałeś rozmów ze mną, dziś uszy zamykasz,\
 Jakby w słowach, we wzroku mym była trucizna!\
 Dobrze mi tak, wiedziałam, kto jesteś: mężczyzna!\
 Nie znając kokieterii, nie chciałam cię dręczyć,\
