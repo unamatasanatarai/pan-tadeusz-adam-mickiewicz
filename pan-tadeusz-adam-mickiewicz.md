@@ -1,3 +1,4 @@
+Do których Podkomorzy z powagą tak mówi:\
 «Bracia! Bóg dziś naszemu szczęścił orężowi,\
 Ale muszę Wać Państwu wyznać bez ogródki,\
 Że z tych niewczesnych bojów złe wynikną skutki.\
