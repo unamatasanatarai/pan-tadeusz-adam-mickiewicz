@@ -1,3 +1,4 @@
+Jak dzień słotny ponurą, tęskną, jednostajną,\
 Tym smutniejszą, że dźwięk jej w mgłę bez echa wsiąka.\
 Chrząsnęły sierpy w zbożu, ozwała się łąka,\
 Rząd kosiarzy otawę siekących wciąż brząka,\
