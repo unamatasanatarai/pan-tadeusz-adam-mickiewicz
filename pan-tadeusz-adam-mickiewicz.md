@@ -1,3 +1,4 @@
+Kropiciel, stanowisko zająwszy w oborze,\
 Jednego wołu i dwa cielce w łby zakropił,\
 A Brzytewka im szable w gardzielach utopił;\
 Szydełko równie czynnie używał swej szpadki,\
