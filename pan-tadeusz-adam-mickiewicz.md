@@ -1,3 +1,4 @@
+Żeby ja mógł się starać o związek takowy!\
 A byłem mu potrzebnym: miałem zachowanie\
 U szlachty i lubili mnie wszyscy ziemianie:\
 Więc on niby miłości mojej nie dostrzegał,\
