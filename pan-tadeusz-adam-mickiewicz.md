@@ -1,3 +1,4 @@
+Niech służy ku pamiątce: wieszam go na grobie.\
 Trzy dni tu będzie wisiał, potem do kaplicy\
 Złoży się, jako wotum dla Boga Rodzicy».
 
