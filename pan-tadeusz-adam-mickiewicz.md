@@ -1,3 +1,4 @@
+A pod innym nazwiskiem u sąsiadów słynie;\
 Dobrzyńskich naśladując, inna szlachta bliska\
 Brała również przydomki, zwane *imioniska*.\
 Teraz ich każda prawie używa rodzina,\
