@@ -1,3 +1,4 @@
+By stary Dąbrowskiego usłyszeć mazurek.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biegał po całym domu i szukał komnaty,\
 Gdzie mieszkał dzieckiem będąc, przed dziesięciu laty.\
