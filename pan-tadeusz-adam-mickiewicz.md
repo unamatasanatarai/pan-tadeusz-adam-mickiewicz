@@ -1,3 +1,4 @@
+A co? fuzyjka moja? niewielka ptaszyna,\
 A jak się popisała? To jej nie nowina:\
 Nie puści ona na wiatr żadnego ładunku.\
 Od książęcia Sanguszki mam ją w podarunku».\
