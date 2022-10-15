@@ -1,3 +1,4 @@
+Nie miał ochoty gadać, widząc swoje córy,\
 Posażne i nadobne panny, w wieku kwiecie,\
 Zdaniem wszystkich najpierwsze partyje w powiecie,\
 Milczące, zaniedbane od milczącej młodzi.\
