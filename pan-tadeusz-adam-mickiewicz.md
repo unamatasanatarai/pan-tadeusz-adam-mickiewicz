@@ -1,3 +1,4 @@
+Żaden za zającami nie jeździł Hreczecha».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu śmiech młodzieży mowę Wojskiego zagłuszył.\
 Wstano od stołu, pierwszy Podkomorzy ruszył,\
