@@ -1,3 +1,4 @@
+I też same portrety na ścianach wisiały:\
 Tu Kościuszko w czamarce krakowskiej, z oczyma\
 Podniesionymi w niebo, miecz oburącz trzyma;\
 Takim był, gdy przysięgał na stopniach ołtarzów,\
