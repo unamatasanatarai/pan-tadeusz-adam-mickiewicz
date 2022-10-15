@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ja sam przed lat trzydziestu wielki afekt miałem\
 Ku pannie Marcie, której serce pozyskałem.\
 Byliśmy zaręczeni; Bóg nie błogosławił\
