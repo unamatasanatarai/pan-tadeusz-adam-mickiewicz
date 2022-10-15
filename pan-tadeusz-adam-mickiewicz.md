@@ -1,3 +1,4 @@
+Rzekłbyś, że ich nie rusza, tylko ziemię trąca\
 Po wierzchu, jak jaskółka wodę całująca.\
 Pył za nim, psy za pyłem; z daleka się zdało,\
 Że zając, psy i charty jedne tworzą ciało:\
