@@ -1,3 +1,4 @@
+Pamiętam, dzielne były z nich konfederaty!\
 Gdyby nieboszczyk pan mój Stolnik dożył chwili!\
 O Jacku! Jacku!... lecz cóż będziemy kwilili?\
 Skoro dziś znowu Litwa łączy się z Koroną,\
