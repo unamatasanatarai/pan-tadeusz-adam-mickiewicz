@@ -1,3 +1,4 @@
+Ledwo dostrzegł takową muchę, wnet ją gonił.\
 Właśnie mu teraz szlachcic nad uchem zadzwonił;\
 Po dwakroć Wojski machnął, zdziwił się, że chybił,\
 Trzeci raz machnął, tylko co okna nie wybił;\
