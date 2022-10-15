@@ -1,3 +1,4 @@
+I ostrzem jej kierował swych drabów gromadę,\
 Szepcąc: «Wiąż! wiąż!» Dokoła leżą jak barany\
 Dżokeje w pętach; Hrabia siedzi niezwiązany\
 Lecz bezbronny; przy nim dwaj z gołymi bagnety\
