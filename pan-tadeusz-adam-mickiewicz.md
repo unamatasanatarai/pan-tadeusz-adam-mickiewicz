@@ -1,3 +1,4 @@
+Zsiadaj pan» — i przytrzymał strzemię do zsiadania.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Weszli w zamek; Gerwazy stanął w progu sieni:\
 «Tu — rzekł — dawni panowie dworem otoczeni,\
