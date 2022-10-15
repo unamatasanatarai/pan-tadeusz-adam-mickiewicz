@@ -1,3 +1,4 @@
+Na całą piędź, a sieczny na obadwa boki,\
 Widocznie miecz teutoński z norymberskiej stali\
 Ukuty: wszyscy milcząc na broń poglądali.\
 Kto ją podniósł? nie widać; lecz zaraz zgadniono:\
