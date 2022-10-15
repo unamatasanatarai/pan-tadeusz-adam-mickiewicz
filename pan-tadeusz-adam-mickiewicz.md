@@ -1,3 +1,4 @@
+Jest podanie, że książę Radziwiłł-Sierota\
 Kazał ten sprzęt na urząd w Wenecyi zrobić\
 I wedle własnych planów po polsku ozdobić.\
 Serwis potem zabrany czasu wojny szwedzkiéj\
