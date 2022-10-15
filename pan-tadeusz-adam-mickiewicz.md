@@ -1,3 +1,4 @@
+«Iluminujcie! — krzyknął — jutro o tej porze\
 Będzie jasno w tym zamku, ciemno w waszym dworze!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy siadł na ziemi, oparł się o ścianę,\
