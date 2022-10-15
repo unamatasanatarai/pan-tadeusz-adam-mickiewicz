@@ -1,3 +1,4 @@
+Ja sam lat dziesięć byłem dworskim Wojewody,\
 Ojca Podkomorzego, mościwego pana\
 (Mówiąc, Podkomorzemu ścisnął za kolana);\
 On mnie radą do usług publicznych sposobił,\
