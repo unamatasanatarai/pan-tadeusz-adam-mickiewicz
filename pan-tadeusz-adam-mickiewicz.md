@@ -1,3 +1,4 @@
+Nogi miał długie, cienkie jak od chmielu tyki,\
 W pończochach, ze srebrnymi klamrami trzewiki,\
 Peruka z harbajtelem zawiązanym w miechu.\
 Starzy na on ekwipaż parskali ze śmiechu,\
