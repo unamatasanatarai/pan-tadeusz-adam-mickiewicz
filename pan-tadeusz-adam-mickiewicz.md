@@ -1,3 +1,4 @@
+Wiersze rabiał. Już Woźny przeczytał ich trzysta,\
 Aż gdy przyszedł do miejsca: *O ty, której wdzięki*\
 *Budzą bolesną radość i rozkoszne męki!*\
 *Która na szyk Bellony gdy zwrócisz twarz piękną,*\
