@@ -1,3 +1,4 @@
+Na taki nieporządek, lecz go nie pochwalał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Różne też były dla dam i mężczyzn potrawy:\
 Tu roznoszono tace z całą służbą kawy,\
