@@ -1,3 +1,4 @@
+A muszą też być z wami Turki czy Tatary\
 Czy syzmatyki, co ni Boga, ani wiary:\
 Sam widziałem, kobiety w wioskach napastują,\
 Przechodniów odzierają, kościoły rabują!\
