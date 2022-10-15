@@ -1,3 +1,4 @@
+I łapa z pazurami już się na łby spuszcza;\
 Pobledli, w tył skoczyli i, gdzie rzednie puszcza,\
 Zmykali. Zwierz za nimi wspiął się, już pazury\
 Zahaczał, chybił, podbiegł, wspiął się znów do góry\
