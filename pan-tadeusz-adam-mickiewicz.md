@@ -1,3 +1,4 @@
+I pomścij się za jego raniejszy uczynek.\
 Jeśli tego szlachcica kto inny zabije,\
 To Major widzi, Major hańby swej nie zmyje.\
 Trzeba tego szlachcica na pole wywabić;\
