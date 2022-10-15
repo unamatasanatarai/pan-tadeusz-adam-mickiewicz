@@ -1,3 +1,4 @@
+«Pistolety — rzekł Hrabia — lub gdy chcą pałasze».\
 «Zamek — rzekł Klucznik — i wieś, oboje to nasze».\
 «Stryja, synowca — wołał Hrabia — całe plemię\
 Wyzywaj!» «Zamek — wołał Klucznik — wieś i ziemie\
