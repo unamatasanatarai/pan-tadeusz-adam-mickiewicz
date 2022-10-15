@@ -1,3 +1,4 @@
+Dałeś próby, rycerzu nieszczęsny, lecz mężny,\
 Twojej odwagi: porzuć opór niedołężny,\
 Złóż broń, nim cię naszymi szablami rozbroim;\
 Zachowasz życie i cześć, jesteś więźniem moim!»
