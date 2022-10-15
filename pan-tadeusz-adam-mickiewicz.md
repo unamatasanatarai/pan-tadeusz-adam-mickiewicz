@@ -1,3 +1,4 @@
+Co rozpędzał sejmiki, gwałcił trybunały,\
 Przyjąwszy urzędowy pozew, zdarł na sztuki,\
 I postawiwszy przy drzwiach z kijami hajduki,\
 Sam nad Woźnego głową trzymał goły rapier,\
