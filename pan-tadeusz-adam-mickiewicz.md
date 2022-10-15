@@ -1,3 +1,4 @@
+Bo gdzie stąpili, szła przed nami trwoga,\
 W każdym sąsiedzie znajdowali wroga;\
 Aż nas objęto w ciasny krąg łańcucha,\
 I każą oddać co najprędzej ducha.
