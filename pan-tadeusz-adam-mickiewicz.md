@@ -1,3 +1,4 @@
+Tu, poglądając w zamek, nie przestawał wzdychać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż dziwnego — rzekł Hrabia — koszt wielki, a nuda\
 Jeszcze większa; chcę skończyć, lecz szlachcic maruda\
