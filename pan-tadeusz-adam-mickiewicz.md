@@ -1,3 +1,4 @@
+Kozy brodate; w górze zaś ptactwa gromady,\
 I płazów choć po parze, są też i owady.\
 Część tylna, na kształt dziwnej świątyni stawiona,\
 Przypomina z pozoru ów gmach Salomona,\
