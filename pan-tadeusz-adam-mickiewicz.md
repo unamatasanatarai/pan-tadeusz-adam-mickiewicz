@@ -1,3 +1,4 @@
+My, zebrawszy naprędce sługi i wasale,\
 Wpadliśmy; ja dwóch zbójców ręką mą zabiłem,\
 Pierwszy wleciałem w tabor, więźnia uwolniłem.\
 Ach, mój Gerwazy! jaki to był tryumfalny,\
