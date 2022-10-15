@@ -1,3 +1,4 @@
+Pochwał takich i chodząc, pod nos sobie dmuchał:\
 Że trafny strzał dowodzi tylko śmiałe oko,\
 Biała broń śmiałą rękę; i zaczął szeroko\
 Znowu gadać o swojej Libiji i spisie,\
