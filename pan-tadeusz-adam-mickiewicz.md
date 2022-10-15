@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Wiwat Hrabia! — krzyknęli — z nim żyć i umierać!»\
 Szlachta zaczęła z chaty przez okna wyzierać,\
 I za Klucznikiem coraz ku drzwiom się napierać.\
