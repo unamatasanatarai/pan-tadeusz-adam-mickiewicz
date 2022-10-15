@@ -1,3 +1,4 @@
+Niedawny żołnierz: lecz że wielkie miał dochody\
 I swoim kosztem cały pułk jazdy wystawił,\
 I w pierwszej zaraz bitwie wybornie się sprawił,\
 Cesarz go pułkownikiem dziś właśnie mianował;\
