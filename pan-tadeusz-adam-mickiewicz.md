@@ -1,3 +1,4 @@
+Wiem, że jak inni, tak ty mógłbyś wiarę złamać,\
 Lecz nie wiedziałam, że tak podle umiesz kłamać!\
 Słuchałam pode drzwiami stryja! Więc to dziecko,\
 Zosia, wpadła ci w oko i na nią zdradziecko\
