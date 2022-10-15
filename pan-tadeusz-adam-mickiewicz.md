@@ -1,3 +1,4 @@
+Ja też powiem waszeci rzecz choć nie tak cudną\
 Jak ów omen, a przecież do pojęcia trudną.\
 Wiesz, iż dawniej rad bym był Sopliców rodzinę\
 W łyżce wody utopić; a tego chłopczynę,\
