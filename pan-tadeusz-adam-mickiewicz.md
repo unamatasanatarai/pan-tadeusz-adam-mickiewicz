@@ -1,3 +1,4 @@
+Niech tego Podkomorzy za złe mi nie bierze)\
 Kiedym ten serwis cudny ze skarbca dobywał,\
 To nawet Podkomorzy, i on mnie przedrwiwał!\
 Mówiąc, że to machina żmudna, staroświecka,\
