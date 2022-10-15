@@ -1,3 +1,4 @@
+Bernardyńska kwestować, a moja rzecz: kropić;\
 Kropić, kropić i kwita!» Tu maczugę głasnął,\
 Za nim cały tłum szlachty «Kropić, kropić!» wrzasnął.
 
