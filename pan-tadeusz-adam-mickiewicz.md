@@ -1,3 +1,4 @@
+Ale z miny poznano, że coś złego knuje:\
 Więc do kordów, i hejże! On się rejteruje,\
 Odcina się, już ranny; przyparty do płotów:\
 Gdy mu skoczył na odsiecz Zan i trzech Czeczotów.\
