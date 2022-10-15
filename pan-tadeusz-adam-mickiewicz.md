@@ -1,3 +1,4 @@
+Precz! gardzę tobą! jesteś kłamca, człowiek podły!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na obelgę śmiertelną dla uszu szlachcica,\
 I której żaden nigdy nie słyszał Soplica,\
