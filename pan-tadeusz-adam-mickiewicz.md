@@ -1,3 +1,4 @@
+Tam stała wypisana i liczba żołnierza,\
 I nazwisko każdego wodza legijonu,\
 I każdego z nich opis zwycięstwa lub zgonu.\
 Po wielu latach pierwszy raz miała rodzina\
