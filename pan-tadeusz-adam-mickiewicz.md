@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Prusak wciąż wołał, a głos coraz wyżej wznosił;\
 Aż posłuchanie częścią ukłonem wyprosił,\
 Częścią zdobył swą mową krzykliwą i cienką.\
 «I ja chcę bić się — wołał tłukąc się w pierś ręką —\
