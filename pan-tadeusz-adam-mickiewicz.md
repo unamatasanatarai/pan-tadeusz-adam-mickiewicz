@@ -1,3 +1,4 @@
+Potem lewicę za pas zatknął i tak prawił,\
 Kołpakiem lisim w kolej kłaniając się nisko:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Nu, panowie Dobrzyńscy! Ja sobie Żydzisko;\
