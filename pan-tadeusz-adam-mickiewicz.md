@@ -1,3 +1,4 @@
+Zebrawszy ich za stołem na dwa staje długim,\
 Sam siadł na jednym końcu, a pleban na drugim.\
 Tadeusz i Zofia do stołu nie siedli;\
 Zajęci częstowaniem włościan, chodząc jedli.\
