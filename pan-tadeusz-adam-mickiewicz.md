@@ -1,3 +1,4 @@
+Widać tylko, jak cienie, błądzące patrole,\
 I gdzieniegdzie błyskania ognisk obozowych,\
 Słychać kolejne hasła stanowisk wojskowych.
 
