@@ -1,3 +1,4 @@
+(Wielkie jest podobieństwo, że diabły tam siedzą).\
 Woda tych studni sklni się, plamista rdzą krwawą,\
 A z wnętrza ciągle dymi, zionąc woń plugawą,\
 Od której drzewa wkoło tracą liść i korę;\
