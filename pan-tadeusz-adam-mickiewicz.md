@@ -1,3 +1,4 @@
+Może by gorzej jeszcze z moim zdrowiem było;\
 Szczęściem, nadjechał właśnie z wizytą Kiryło\
 Gawrylicz Kozodusin, wielki łowczy dworu.\
 Pyta się o przyczynę tak złego humoru,\
