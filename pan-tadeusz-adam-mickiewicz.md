@@ -1,3 +1,4 @@
+Złoży się, jako wotum dla Boga Rodzicy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;To powiedziawszy, order wydobył z pokrowca,\
 I zawiesił na skromnym krzyżyku grobowca\
