@@ -1,3 +1,4 @@
+Z wschodu na zachód. Potem i ksiądz Bartochowski,\
 Składając panegiryk na tryumf krakowski,\
 Pod godłem Orientis Fulmen, prawił wiele\
 O tym komecie. Także czytam o nim w dziele\
