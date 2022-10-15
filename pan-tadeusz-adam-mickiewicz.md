@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tak szepcąc spiął ostrogi; koń leciał do dworu,\
 Gdy z drugiej strony strzelcy wyjeżdżali z boru.\
 Hrabia lubił myślistwo, ledwie strzelców zoczył,\
 Zapomniawszy o wszystkim, prosto ku nim skoczył,\
