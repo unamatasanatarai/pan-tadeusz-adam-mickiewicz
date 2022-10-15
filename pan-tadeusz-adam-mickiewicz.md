@@ -1,3 +1,4 @@
+Oczy podniósł i z palcem do ust przyciśnionym\
 Kazał sam sobie milczeć, by słowem kwapionem\
 Nie rozerwał milczenia; potem w czoło stukał,\
 Niby do wspomnień dawnych uśpionych w nim pukał,\
