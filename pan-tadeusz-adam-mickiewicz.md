@@ -1,3 +1,4 @@
+A kiedym się zestarzał, nad łóżkiem na ścianie\
 Wisiał, jako nad Żydem Boże przykazanie!\
 Myśliłem zakopać go razem z ręką w grobie,\
 Lecz znalazłem dziedzica — Niechaj służy tobie!»
