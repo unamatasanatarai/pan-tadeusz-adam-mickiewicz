@@ -1,3 +1,4 @@
+Którą chce dom Sopliców na wiek wieków wsławić:\
 Biesiadę godną miłych sercom polskim gości\
 I odpowiedną wielkiej dnia uroczystości,\
 Co jest świętem kościelnym i świętem rodziny:\
