@@ -1,3 +1,4 @@
+I znużone na popas spadają z hałasem,\
 A w głębi ciemnej nieba, wciąż jęczą żurawie.\
 Słysząc to, nocni stróże pytają w obawie,\
 Skąd w królestwie skrzydlatym tyle zamieszania,\
