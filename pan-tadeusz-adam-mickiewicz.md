@@ -1,3 +1,4 @@
+Dwa stawy pochyliły ku sobie oblicza\
 Jako para kochanków: prawy staw miał wody\
 Gładkie i czyste jako dziewicze jagody;\
 Lewy, ciemniejszy nieco, jako twarz młodziana\
