@@ -1,3 +1,4 @@
+Jest w tym sens jaki, czy wy Boga w sercu macie?\
 To myślisz Tadeusza zostać dobrodziejem,\
 Jeśli młodego chłopca zrobisz grykosiejem?\
 Świat mu zawiążesz! wierz mi, kląć was kiedyś będzie!\
