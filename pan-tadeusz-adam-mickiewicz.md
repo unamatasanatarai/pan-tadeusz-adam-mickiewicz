@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tu las był rzadszy. Słychać z głębi ryk, trzask łomu;\
 Aż z gęstwy, jak z chmur, wypadł niedźwiedź na kształt gromu;\
 Wkoło psy gonią, straszą, rwą; on wstał na nogi\
