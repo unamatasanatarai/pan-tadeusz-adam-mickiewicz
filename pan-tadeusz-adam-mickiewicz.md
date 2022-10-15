@@ -1,3 +1,4 @@
+«Ach ciociu, już tak dawno nie widziałam gości!\
 Od czasu, jak tu żyję z kury i indyki,\
 Jeden gość, co widziałam, to był gołąb dziki.\
 Już mi troszeczkę nudno tak siedzieć w alkowie;\
