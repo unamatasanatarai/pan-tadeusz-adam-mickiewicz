@@ -1,3 +1,4 @@
+On słyszał! Oni jeszcze słuchali; nareszcie\
 Słyszą: jeden pies wrzasnął, potem dwa, dwadzieście,\
 Wszystkie razem ogary rozpierzchnioną zgrają\
 Doławiają się, wrzeszczą, wpadły na trop, grają,\
