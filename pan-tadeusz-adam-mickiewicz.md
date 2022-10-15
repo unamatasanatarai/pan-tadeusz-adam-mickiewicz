@@ -1,3 +1,4 @@
+Gdzieniegdzie zrzedniał, na wskroś grubszą płeć odsłania...\
 Może to sam Tadeusz, w *Świątyni dumania*,\
 Rozmawiając za blisko, omusknął z bielidła\
 Karmin lżejszy od pyłków motylego skrzydła;\
