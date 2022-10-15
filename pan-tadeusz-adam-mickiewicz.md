@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gerwazy siadł na ziemi, oparł się o ścianę,\
 I pochylił ku piersiom czoło zadumane.\
 Światłość miesięczna padła na wierzch głowy łysy,\
 Gerwazy po nim kryślił palcem różne rysy;\
