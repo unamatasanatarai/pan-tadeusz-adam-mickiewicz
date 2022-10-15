@@ -1,3 +1,4 @@
+Tam stronnicy Sopliców pracują w zawody\
 Nad rozkuciem Dobrzyńskich, rozrywają kłody.\
 Widząc to, jegry za broń porywają, biegą.\
 Sierżant wpadłszy bagnetem przebił Podhajskiego,\
