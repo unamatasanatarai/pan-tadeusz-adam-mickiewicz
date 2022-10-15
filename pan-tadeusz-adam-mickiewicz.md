@@ -1,3 +1,4 @@
+W miłości troskach, sławy zwę pocieszycielki,\
 Gdy jestem nędzarz sercem, będę ręką wielki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena pytała: «Któż panu przeszkadza\
