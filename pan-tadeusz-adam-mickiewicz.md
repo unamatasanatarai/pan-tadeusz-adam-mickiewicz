@@ -1,3 +1,4 @@
+I nosy ku księdzowskiej chylił tabakierze;\
 Brano z niej, i kichała szlachta jak moździerze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Reverendissime — rzekł kichnąwszy Skołuba —\
