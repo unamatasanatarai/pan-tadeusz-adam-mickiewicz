@@ -1,3 +1,4 @@
+Że wielkich i że częstych doznawał napadów.\
 Pod bramą dotąd w trawie, jak dziecięca głowa,\
 Wielka leżała kula żelazna działowa\
 Od czasów szwedzkich; niegdyś skrzydło wrót otwarte\
