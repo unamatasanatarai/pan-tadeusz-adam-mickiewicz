@@ -1,3 +1,4 @@
+I skórę zabitego dzika. O tym dziku\
 I o strzale, powiem wam jak naoczny świadek:\
 Bo to był dzisiejszemu podobny przypadek,\
 A zdarzył się największym strzelcom za mych czasów,\
