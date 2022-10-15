@@ -1,3 +1,4 @@
+Psy tuż (to mówiąc, ręce ciągnął wzdłuż po stole\
 I palcami ruch chartów przedziwnie udawał)\
 Psy tuż, i hec od lasu odsadzili kawał;\
 Sokół smyk naprzód; rączy pies, lecz zagorzalec,\
