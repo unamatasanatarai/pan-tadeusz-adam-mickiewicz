@@ -1,3 +1,4 @@
+Wrogi ich wabią z dala jak grabarze,\
 Gdy w niebie nawet nadziei nie widzą...\
 Nie dziw, że ludzi, świat, siebie ohydzą,\
 Że utraciwszy rozum w mękach długich,\
