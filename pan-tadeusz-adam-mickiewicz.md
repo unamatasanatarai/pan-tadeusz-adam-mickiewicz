@@ -1,3 +1,4 @@
+Które od wieków walczą z tutejszym powiatem\
 O pierwszeństwo w strzelectwie? Myślili więc nad tem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaś Asesor i Rejent, prócz wspólnych niechęci,\
