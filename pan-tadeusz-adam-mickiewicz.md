@@ -1,3 +1,4 @@
+Sen myśliwski nam odkrył tajnie przyszłych czasów:\
 Że Litwie trzeba zawsze żelaza i lasów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Knieje! do was ostatni przyjeżdżał na łowy\
