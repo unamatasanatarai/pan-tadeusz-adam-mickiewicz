@@ -1,3 +1,4 @@
+Nikt nigdy nie zarzuci, bym uchybił komu\
 W uczciwości, w grzeczności; a powiem to śmiało,\
 Grzeczność nie jest nauką łatwą ani małą.\
 Niełatwą, bo nie na tym kończy się, jak nogą\
