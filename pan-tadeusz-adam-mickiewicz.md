@@ -1,3 +1,4 @@
+Zemścić się krwawo, ale powód zemsty taić,\
 Nie bywać w zamku, miłość z serca wykorzenić,\
 Puścić w niepamięć Ewę, z inną się ożenić,\
 A potem, potem jaką wynaleźć zaczepkę,\
