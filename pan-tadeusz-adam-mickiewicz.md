@@ -1,3 +1,4 @@
+Przeleciała po zamkach wzdłuż nitka ognista,\
 I z czarnych rur wytkniętych świsnęło kul trzysta.\
 Trzech jezdnych padło rannych, jeden trupem leży.\
 Padł koń Hrabi, spadł Hrabia; Klucznik krzycząc bieży\
