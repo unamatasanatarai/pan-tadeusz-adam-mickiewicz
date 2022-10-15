@@ -1,3 +1,4 @@
+Dowiesz się o tym wszystkim z książek w swoim czasie.\
 Co się tyczy malarstwa: do obrazu trzeba\
 Punktów widzenia, grupy, ansamblu i nieba,\
 Nieba włoskiego! Stąd też w kunszcie pejzażów,\
