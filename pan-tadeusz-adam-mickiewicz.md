@@ -1,3 +1,4 @@
+Jak gdyby zadzwoniło w strunę skrzydło muchy,\
 Wydając ciche, ledwie słyszalne brzęczenia.\
 Mistrz zawsze patrzył w niebo czekając natchnienia.\
 Spójrzał z góry, instrument dumnym okiem zmierzył,\
