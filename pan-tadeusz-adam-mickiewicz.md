@@ -1,3 +1,4 @@
+Nie ma godnego miejsca na dar tak wspaniały;\
 Niech lepiej niedźwiedź czeka pośród tych rogaczy,\
 Aż mi go Sędzia razem z zamkiem oddać raczy».
 
