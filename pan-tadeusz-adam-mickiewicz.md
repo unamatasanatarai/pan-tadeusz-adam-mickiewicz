@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nieznacznie z wilgotnego wykradał się mroku\
 Świt bez rumieńca, wiodąc dzień bez światła w oku.\
 Dawno wszedł dzień, a jeszcze ledwie jest widomy:\
