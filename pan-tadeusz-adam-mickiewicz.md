@@ -1,3 +1,4 @@
+»Ojcze, choć zabij, muszę tam iść«, a wciąż szlocha —\
 »Co tobie?« a on mówi, że tę Zosię kocha!\
 Chciałby popatrzyć na nią! Żal mi nieboraka,\
 Mówię Sędziemu: »Sędzio, daj Zosię dla Saka!«\
