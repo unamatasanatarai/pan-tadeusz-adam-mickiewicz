@@ -1,3 +1,4 @@
+Ale ten sprzęt, Rejencie, proszę uniżenie,\
 Bądź łaskaw przyjąć w zamian za twój rzęd bogaty\
 I na pamiątkę sporu, co długimi laty\
 Toczył się i nareszcie zakończył zaszczytnie\
