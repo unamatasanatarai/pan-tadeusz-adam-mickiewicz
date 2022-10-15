@@ -1,3 +1,4 @@
+W dom wasz Napoleona, trzeba wymieść śmiecie?\
 Słyszeliście to wszyscy: a czy rozumiecie?\
 Któż jest śmieciem powiatu? Kto zdradziecko zabił\
 Najlepszego z Polaków, kto go okradł, zgrabił?\
