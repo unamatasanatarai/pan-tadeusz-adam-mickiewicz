@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Cała pomni okolica,\
 Co tu zbroił nieboszczyk pan Jacek Soplica:\
 Ale kiedy o grzechach jego wszyscy wiecie,\
