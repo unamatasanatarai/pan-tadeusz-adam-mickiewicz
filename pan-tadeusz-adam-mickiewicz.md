@@ -1,3 +1,4 @@
+*Purchawka*, jak pieprzniczka; zaś innych imiona,\
 Znane tylko w zajęczym lub wilczym języku,\
 Od ludzi nieochrzczone; a jest ich bez liku.\
 Ni wilczych, ni zajęczych nikt dotknąć nie raczy;\
