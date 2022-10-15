@@ -1,3 +1,4 @@
+Kiedy pan Karp nieboszczyk włościan wyswobodził ,\
 A Moskal ich podatkiem potrójnym ogłodził.\
 Radzę więc, aby chłopów starym obyczajem,\
 Uszlachcić i ogłosić, że im herb nasz dajem.\
