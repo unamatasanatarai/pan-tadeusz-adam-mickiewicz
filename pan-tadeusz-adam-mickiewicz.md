@@ -1,3 +1,4 @@
+Widzisz no tam gitarę, pódź no, weź gitarę\
 I mazurka! Ja, Major, idę w pierwszą parę».\
 Kapitan wziął gitarę i struny przykręcał,\
 Płut znowu Telimenę do tańca zachęcał.
