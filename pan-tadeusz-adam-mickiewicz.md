@@ -1,3 +1,4 @@
+A w spadku po rodzicach wziął czerstwość i zdrowie.\
 Nazywał się Soplica: wszyscy Soplicowie\
 Są, jak wiadomo, krzepcy, otyli i silni,\
 Do żołnierki jedyni, w naukach mniej pilni.
