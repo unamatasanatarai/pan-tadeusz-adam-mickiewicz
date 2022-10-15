@@ -1,3 +1,4 @@
+I wedle własnych planów po polsku ozdobić.\
 Serwis potem zabrany czasu wojny szwedzkiéj\
 Przeszedł, nie wiedzieć jaką drogą, w dom szlachecki;\
 Dziś ze skarbca dobyty zajął środek stoła\
