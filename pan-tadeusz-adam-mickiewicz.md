@@ -1,3 +1,4 @@
+Jak sama zechce«. Łotr! łże, już ją komuś swata:\
 Słyszałem. Już ja się tam na wesele wkręcę;\
 Ja im łoże małżeńskie kropidłem poświęcę».
 
