@@ -1,3 +1,4 @@
+Pnie i korzenie zrywać i gryźć dla zakąski.\
 Wojski obchodził serwis i pełen radości,\
 Tryumfujące oczy obracał na gości.
 
