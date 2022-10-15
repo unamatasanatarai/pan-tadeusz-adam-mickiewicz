@@ -1,3 +1,4 @@
+Może ostatni, co tak poloneza wodzi!»\
 I szły pary po parach hucznie i wesoło,\
 Rozkręcało się, znowu skręcało się koło,\
 Jak wąż olbrzymi w tysiąc łamiący się zwojów;\
