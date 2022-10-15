@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Ha! — rzekł Maciej — słyszałem, widzę co się dzieje!\
 Ale panie, dwóch orłów razem się nie gnieździ!\
 Łaska pańska, hetmanie, na pstrym koniu jeździ!\
 Cesarz wielki bohater! gadać o tym wiele!\
