@@ -1,3 +1,4 @@
+Imię pana — było to w Wilnie na zapustach;\
 Panny mówiły, że ja jestem zakochana:\
 Jużci, jeżeli kocham, to już chyba pana».\
 Tadeusz rad z takiego miłości dowodu,\
