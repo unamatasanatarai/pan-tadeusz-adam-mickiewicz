@@ -1,3 +1,4 @@
+«Dżokejów — dodał Hrabia — uzbroić we dworze,\
 Z włości wezwać wasalów!» «Lokajów? broń Boże! —\
 Przerwał Gerwazy. Czy to zajazd jest hultajstwem?\
 Kto widział zajazd robić z chłopstwem i z lokajstwem?\
