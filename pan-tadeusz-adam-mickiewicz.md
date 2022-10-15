@@ -1,3 +1,4 @@
+Ukuty: wszyscy milcząc na broń poglądali.\
 Kto ją podniósł? nie widać; lecz zaraz zgadniono:\
 «To Scyzoryk! niech żyje Scyzoryk! — krzykniono —\
 Wiwat Scyzoryk, klejnot Rębajłów zaścianku!\
