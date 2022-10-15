@@ -1,3 +1,4 @@
+Dom mieszkalny niewielki, lecz zewsząd chędogi,\
 I stodołę miał wielką, i przy niej trzy stogi\
 Użątku, co pod strzechą zmieścić się nie może.\
 Widać, że okolica obfita we zboże,\
