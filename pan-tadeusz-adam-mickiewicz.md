@@ -1,3 +1,4 @@
+Kuchciki sypią w ogień suche pęki łomu;\
 Inni na rożny sadzą ogromne pieczenie\
 Wołowe, sarnie, combry dzicze i jelenie;\
 Ci skubią stosy ptastwa, lecą puchów chmury,\
