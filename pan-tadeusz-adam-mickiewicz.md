@@ -1,3 +1,4 @@
+Jest rzecz haniebna; ale kto dobrze wymierzy,\
 Kto przypuści do siebie źwierza jak należy,\
 Jeśli chybił, cofnąć się może bez sromoty,\
 Albo walczyć oszczepem — lecz z własnej ochoty,\
