@@ -1,3 +1,4 @@
+A pan Zan z Mickiewiczem jechali na czwartym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem, Podhajscy i Isajewicze,\
 Birbasze, Wilbikowie, Biergiele, Kotwicze,\
