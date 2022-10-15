@@ -1,3 +1,4 @@
+Ale przestańcie robić nad jegrami zbytki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy, słysząc to, karabelę wznasza\
 I przez Woźnego pardon powszechny ogłasza;\
