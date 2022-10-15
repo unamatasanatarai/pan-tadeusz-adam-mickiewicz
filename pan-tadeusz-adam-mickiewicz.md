@@ -1,3 +1,4 @@
+Sobie, tańczyli, trochę sobie podchmielili,\
 A Płut przypadkiem ognia zakomenderował,\
 Bitwa! i batalijon tak jakoś zmarnował.\
 Wy, pany, tylko śledztwo pomazujcie złotem,\
