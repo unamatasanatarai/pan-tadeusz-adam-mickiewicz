@@ -1,3 +1,4 @@
+Nie tylko jako rębacz *Rózeczką* wsławiony,\
 Lecz jako człek mądrego i pewnego zdania,\
 Znający dzieje kraju, rodziny podania.\
 Zarówno świadom prawa jak i gospodarstwa,\
