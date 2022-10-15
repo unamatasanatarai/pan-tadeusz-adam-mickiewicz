@@ -1,3 +1,4 @@
+Padł zgłuszony Asesor i skrył się w pokrzywy;\
 Wszyscy myśleli, że był ranny lub nieżywy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Widzę — rzekł Sędzia — że się na rozbój zanosi».\
