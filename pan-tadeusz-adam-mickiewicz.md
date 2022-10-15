@@ -1,3 +1,4 @@
+Są tu świeccy, do których nic to nie należy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak mówiąc, spojrzał zyzem, gdzie śród biesiadników\
 Siedział gość, Moskal; był to pan kapitan Ryków,\
