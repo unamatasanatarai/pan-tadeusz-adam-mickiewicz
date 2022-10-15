@@ -1,3 +1,4 @@
+W nieczynności! a oni tak zawsze daleko!\
 Tak długo czekać! nawet tak rzadka nowina —\
 Ojcze Robaku (ciszej rzekł do bernardyna),\
 Słyszałem, żeś zza Niemna odebrał wiadomość;\
