@@ -1,3 +1,4 @@
+Cofa się ku drzwiom. «Łapaj!» krzyknęła gromada.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jako wilk, obskoczony znienacka przy ścierwie,\
 Rzuca się oślep w zgraję, co mu ucztę przerwie;\
