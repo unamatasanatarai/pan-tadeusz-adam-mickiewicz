@@ -1,3 +1,4 @@
+Wszystko to, prawda, z pychy: żeby nie ubliżyć\
 Imieniowi Sopliców, żeby się nie zniżyć\
 Przed panem prośbą próżną, nie dostać odmowy,\
 Bo jakież by to były między szlachtą mowy,\
