@@ -1,3 +1,4 @@
+W końcu wniesiono zrazy na ostatnie danie:\
 Takie bywało w domu Sędziego śniadanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;We dwóch izbach dwa różne skupiły się grona:\
