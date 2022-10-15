@@ -1,3 +1,4 @@
+I jak jeden mieszczanin, zwany Czarnobacki,\
 Zabił Dejowa i zniósł cały pułk kozacki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dosyć, że się tak stało, jak przewidział Ryków:\
