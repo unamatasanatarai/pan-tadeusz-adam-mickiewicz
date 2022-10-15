@@ -1,3 +1,4 @@
+W rzeczy, która się tycze Sopliców rodziny,\
 Tutejszych panów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Cała pomni okolica,\
