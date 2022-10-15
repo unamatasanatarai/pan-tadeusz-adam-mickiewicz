@@ -1,3 +1,4 @@
+Tabakę taką robią w mieście Częstochowie,\
 Kędy jest obraz tylu cudami wsławiony,\
 Bogarodzicy Panny, Królowej Korony\
 Polskiej... zowią ją dotąd i Księżną Litewską —\
