@@ -1,3 +1,4 @@
+Krzycząc, że czy kto prostym chłopem, czy paniczem,\
 Jeżeli z miejsca zejdzie, dostanie w grzbiet smyczem!\
 Nie było rady! Wszyscy pomimo zakazu\
 W las pobiegli. Trzy strzelby huknęły od razu;\
