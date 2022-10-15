@@ -1,3 +1,4 @@
+Grad kul sypały z dołu moskiewskie piechury;\
 My z rzadka, ale celniej dogrzewali z góry.\
 Trzy razy aż pode drzwi to chłopstwo się wparło,\
 Ale za każdym razem trzech nogi zadarło,\
