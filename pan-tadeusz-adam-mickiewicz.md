@@ -1,3 +1,4 @@
+Pszenica, kukuruza, bób, jęczmień wąsaty,\
 Proso, groszek, a nawet krzewiny i kwiaty.\
 Domowemu to ptactwu taki ochmistrzyni\
 Wymyśliła ogródek: sławna gospodyni,\
