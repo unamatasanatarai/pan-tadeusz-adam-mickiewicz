@@ -1,3 +1,4 @@
+Gniazda ptastwa różnego, w strychach gołębniki,\
 W oknach gniazda jaskółcze, u progu króliki\
 Białe skaczą i ryją w niedeptanej darni.\
 Słowem: dwór na kształt klatki albo królikarni.
