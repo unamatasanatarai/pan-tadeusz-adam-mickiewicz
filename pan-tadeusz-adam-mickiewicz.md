@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tak za dni moich przy wiejskiej zabawie,\
 Czytano nieraz pod lipą na trawie\
 Pieśń o Justynie, powieść o Wiesławie;\
 A przy stoliku drewnianym pan włodarz\
