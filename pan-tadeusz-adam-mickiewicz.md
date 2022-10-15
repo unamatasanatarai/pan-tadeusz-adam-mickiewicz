@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Pod płotem wąskie, długie, wypukłe pagórki,\
 Bez drzew, krzewów i kwiatów: ogród na ogórki.\
 Pięknie wyrosły; liściem wielkim, rozłożystym,\
