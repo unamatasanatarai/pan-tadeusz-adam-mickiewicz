@@ -1,3 +1,4 @@
+I choć jej pomagają służebne kobiety,\
 Nie mogła w żaden sposób skończyć toalety:\
 Ledwie będzie gotowa na godzinę czwartą.
 
