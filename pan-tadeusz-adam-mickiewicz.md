@@ -1,3 +1,4 @@
+Rybak ledwie u brzegów nawiedza dno morza;\
 Myśliwiec krąży koło puszcz litewskich łoża,\
 Zna je ledwie po wierzchu, ich postać, ich lice:\
 Lecz obce mu ich wnętrzne serca tajemnice;\
