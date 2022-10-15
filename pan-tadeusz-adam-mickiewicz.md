@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Nikt jej nie uprosi —\
 Przerwał prędko Tadeusz — nie, czekać nie mogę,\
 Stryjaszku, muszę prędko, jutro jechać w drogę.\
