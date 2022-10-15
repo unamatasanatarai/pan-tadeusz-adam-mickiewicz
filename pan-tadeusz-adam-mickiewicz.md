@@ -1,3 +1,4 @@
+Lilia jezior skroń białą wznosząca nad wodę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dano trzecią potrawę. Wtem pan Podkomorzy,\
 Wlawszy kropelkę wina w szklankę panny Róży,\
