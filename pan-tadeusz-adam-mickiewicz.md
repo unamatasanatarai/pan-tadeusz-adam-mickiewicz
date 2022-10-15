@@ -1,3 +1,4 @@
+Zarywszy się głęboko, leżał jak nieżywy;\
 Wyszedł wreszcie ujrzawszy, że było po bitwie.\
 Taki miał koniec zajazd ostatni na Litwie.
 
