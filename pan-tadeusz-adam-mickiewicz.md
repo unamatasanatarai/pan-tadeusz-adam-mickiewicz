@@ -1,3 +1,4 @@
+Zatknąwszy, wyszedł cicho z pokoju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tymczasem\
 Podkomorzy i Sędzia między dwiema strony\
