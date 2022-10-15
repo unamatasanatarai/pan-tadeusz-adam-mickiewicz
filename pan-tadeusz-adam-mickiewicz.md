@@ -1,3 +1,4 @@
+Skąpa w pochwały, lecz nie szczędziła zachętu:\
 «Brawo — rzekła — winszuję, niemało talentu.\
 Tylko pan nie zaniedbuj; szczególniej potrzeba\
 Szukać pięknej natury! O, szczęśliwe nieba\
