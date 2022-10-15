@@ -1,3 +1,4 @@
+I chołodziec litewski milcząc żwawo jedli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Tadeusz, choć młodzik, ale prawem gościa\
 Wysoko siadł przy damach obok jegomościa;\
