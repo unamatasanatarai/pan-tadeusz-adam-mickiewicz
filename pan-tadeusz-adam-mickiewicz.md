@@ -1,3 +1,4 @@
+Znienacka przestraszeni właśnie w pół rozmowy,\
 Odstrychnęli od siebie mimowolnie głowy,\
 Jako wierzchołki drzewa powiązane społem\
 Gdy je wicher rozerwie; i ręce pod stołem\
