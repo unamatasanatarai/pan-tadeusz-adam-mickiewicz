@@ -1,3 +1,4 @@
+Żyjący z pańskich stołów dworscy zausznicy.\
 Te pary zwierząt główne i patryjarchalne,\
 Ukryte w jądrze puszczy, światu niewidzialne,\
 Dzieci swe ślą dla osad za granicę lasu,\
