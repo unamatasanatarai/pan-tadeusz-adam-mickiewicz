@@ -1,3 +1,4 @@
+Czy zdrów? dlaczego smutny? pyta się, nalega,\
 Napomyka o Zosi, zaczyna z nim żarty;\
 Tadeusz nieruchomy, na łokciu oparty,\
 Nic nie gadając marszczył brwi i usta krzywił:\
