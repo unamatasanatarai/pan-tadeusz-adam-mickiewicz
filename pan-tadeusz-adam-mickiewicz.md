@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    A na to Zosia rzekła skromnie:\
 «Jestem kobietą, rządy nie należą do mnie,\
 Wszakże pan będziesz mężem; ja do rady młoda,\
