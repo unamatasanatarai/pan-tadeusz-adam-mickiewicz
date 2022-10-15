@@ -1,3 +1,4 @@
+Czuł, że wyrządził wielką krzywdę Telimenie,\
 Że go słusznie skarżyła, mówiło sumienie;\
 Lecz czuł, że po tych skargach tym mocniej ją zbrzydził.\
 O Zosi, ach! pomyślić nie ważył się, wstydził.\
