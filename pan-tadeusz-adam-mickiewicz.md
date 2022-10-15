@@ -1,3 +1,4 @@
+«Jeśli pan chce mieć pokój, niech wszystko zagrabi.\
 Po co proces, mopanku! sprawa jak dzień czysta:\
 Zamek w ręku Horeszków był przez lat czterysta;\
 Część gruntów oderwano w czasie Targowicy,\
