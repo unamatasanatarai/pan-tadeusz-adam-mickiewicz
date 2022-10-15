@@ -1,3 +1,4 @@
+«Bracie! — rzekł ksiądz — ważne są do tego powody.\
 Pamiętasz, że Jacek chciał do wojska słać syna,\
 Potem w Litwie zostawił: cóż w tym za przyczyna?\
 Oto w domu ojczyźnie potrzebniejszy będzie.\
