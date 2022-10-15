@@ -1,3 +1,4 @@
+A nie ma żadnej szczerby na tym Scyzoryku\
 I żaden go nie splamił zbojecki uczynek:\
 Tylko otwarta wojna albo pojedynek.\
 Raz tylko! Panie daj mu wieczny odpoczynek!\
