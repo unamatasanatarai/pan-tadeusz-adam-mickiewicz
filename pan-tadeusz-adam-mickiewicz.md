@@ -1,3 +1,4 @@
+Tyle scen dramatycznych i tyle powieści!\
 Skoro zamek mych przodków Soplicom zagrabię,\
 Ciebie osadzę w murach jak mego burgrabię.\
 Twoja powieść, Gerwazy, zajęła mię mocno.\
