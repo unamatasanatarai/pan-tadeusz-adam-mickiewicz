@@ -1,3 +1,4 @@
+Stawała przed oczyma: i tak z łaski Boga,\
 Dotąd mej narzeczonej dochowałem wiary,\
 I nie bywszy małżonkiem, jestem wdowiec stary,\
 Chociaż Wojski ma drugą córę dość nadobną,\
