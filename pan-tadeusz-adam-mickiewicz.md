@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Muzyk, jakby sam swojej dziwił się piosence,\
 Upuścił drążki z palców, podniósł w górę ręce;\
 Czapka lisia spadła mu z głowy na ramiona,\
 Powiewała poważnie broda podniesiona,\
