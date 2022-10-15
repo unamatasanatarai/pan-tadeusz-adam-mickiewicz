@@ -1,3 +1,4 @@
+Chusteczkę batystową białą w ręku zwija,\
 I tak cała wygląda biała jak lilija.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poprawiwszy raz jeszcze i włosów, i stroju,\
