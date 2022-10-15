@@ -1,3 +1,4 @@
+A on stąpa powoli, niby od niechcenia:\
 Ale z każdego kroku, z każdego ruszenia,\
 Można tancerza czucia i myśli wyczytać.\
 Oto stanął, jak gdyby chciał swą damę pytać,\
