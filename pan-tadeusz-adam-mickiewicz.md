@@ -1,3 +1,4 @@
+Ja o cudzie prostaków poradzić się wolę.\
 I ja astronomii słuchałem dwa lata\
 W Wilnie, gdzie Puzynina, mądra i bogata\
 Pani, oddała dochód z wioski dwiestu chłopów\
