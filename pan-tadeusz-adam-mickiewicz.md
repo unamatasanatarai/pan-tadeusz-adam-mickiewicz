@@ -1,3 +1,4 @@
+My na was nieobecnych całą winę zwalim\
 I na Płuta: tak resztę rodzeństwa ocalim.\
 Żegnam was nie na długo; są pewne nadzieje,\
 Że nam z wiosną swobody zorza zajaśnieje\
