@@ -1,3 +1,4 @@
+Teraz ostrzegam: jeśli piśniesz jedno słowo\
 Ażeby ślub mój zerwać, to jak Bóg na niebie\
 Że z tymi paznokciami przyskoczę do ciebie\
 I...» — «Nie będę — rzekł Hrabia — szczęścia pani kłócił»\
