@@ -1,3 +1,4 @@
+«Stryja, synowca — wołał Hrabia — całe plemię\
 Wyzywaj!» «Zamek — wołał Klucznik — wieś i ziemie\
 Zabieraj pan». To mówiąc, zwrócił się do Hrabi:\
 «Jeśli pan chce mieć pokój, niech wszystko zagrabi.\
