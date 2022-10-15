@@ -1,3 +1,4 @@
+«Przepraszam — rzekł — panienko! Widzę, żem pomieszał\
 Zabawy! Ach, przepraszam: jam właśnie pośpieszał\
 Na śniadanie: już późno, chciałem na czas zdążyć;\
 Panienka wie, że drogą trzeba wkoło krążyć,\
