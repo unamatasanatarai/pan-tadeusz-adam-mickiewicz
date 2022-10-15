@@ -1,3 +1,4 @@
+Raz po raz, to znak pewny, że bitwę wygrywa.\
 Na przykład pod Austerlitz: Francuzi tak stali\
 Z armatami, a na nich biegła ćma Moskali.\
 Cesarz patrzył i milczał. Co Francuzi strzelą,\
