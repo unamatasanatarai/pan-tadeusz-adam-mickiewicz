@@ -1,3 +1,4 @@
+W niej spisane dokładnie wszystkie specyjały\
 Stołów polskich; podług niej hrabia na Tęczynie\
 Dawał owe biesiady we włoskiej krainie,\
 Którym się Ojciec Święty Urban Ósmy dziwił;\
