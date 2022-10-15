@@ -1,3 +1,4 @@
+Właśnie o jego śmierci nadeszła wiadomość\
 Do Warszawy w tę chwilę, gdy cesarz jegomość\
 Raczył mu dać za dawne czyny bohaterskie\
 Legiji honorowej znaki kawalerskie.
