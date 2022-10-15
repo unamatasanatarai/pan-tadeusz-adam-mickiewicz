@@ -1,3 +1,4 @@
+Ale zręcznie ciesielskim wyrzezane sklutem,\
 Krzywe jak szabasowych ramiona świeczników;\
 Na końcu wiszą gałki, coś na kształt guzików,\
 Które Żydzi modląc się na łbach zawieszają\
