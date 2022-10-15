@@ -1,3 +1,4 @@
+Szczwacze zwrócili na się rozjaśnione lice\
 I długo rozdzielone złączyli prawice.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem rzekł Rejent: «Stawiłem niegdyś konia z rzędem,\
