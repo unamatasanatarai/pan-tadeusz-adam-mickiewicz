@@ -1,3 +1,4 @@
+Szmer zmieszany ze śmiechem śród ciżby się szerzył;\
 Nastąpił rozejm kłótni, kwestarz ją uśmierzył:\
 Człowiek stary, lecz krępy i bardzo pleczysty.\
 Właśnie kiedy Asesor podbiegł do jurysty,\
