@@ -1,3 +1,4 @@
+Ale za bramą rzędem rozbiegli się długim.\
 W środku jechali obok Asesor z Rejentem;\
 A choć na siebie czasem patrzyli ze wstrętem,\
 Rozmawiali przyjaźnie, jak ludzie honoru\
