@@ -1,3 +1,4 @@
+Tysiącznym osimsetnym szóstym; właśnie z Gdańskiem\
 Handlowałem, a krewnych mam wiele w Poznańskiem.\
 Jeździłem ich odwiedzić; więc z panem Józefem\
 Grabowskim, który teraz jest rejmentu szefem,\
