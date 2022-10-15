@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Odszedł; lecz wyraz «podłość» echem się powtórzył\
 W sercu. Wzdrygnął się młodzian, czuł, że nań zasłużył,\
 Czuł, że wyrządził wielką krzywdę Telimenie,\
 Że go słusznie skarżyła, mówiło sumienie;\
