@@ -1,3 +1,4 @@
+Wtem, wielkim szczęściem, dwakroć kichnął Podkomorzy\
 «Wiwat!» krzyknęli wszyscy; on się wszystkim skłonił\
 I z wolna w tabakierę palcami zadzwonił.\
 Tabakiera ze złota, z brylantów oprawa,\
