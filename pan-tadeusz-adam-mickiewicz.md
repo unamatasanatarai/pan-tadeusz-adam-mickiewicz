@@ -1,3 +1,4 @@
+Broń Boże! Szlachta Bracia! ja przy prawie stoję.\
 Wszak Hrabia wygrał, zyskał dekretów niemało:\
 Tylko je egzekwować! Tak dawniej bywało:\
 Trybunał pisał dekret; szlachta wypełniała,\
