@@ -1,3 +1,4 @@
+Chodząc jako wartownik około drzwi stryja,\
 Bo musi w ważnych rzeczach rady jego szukać\
 Dziś jeszcze, nim spać pójdzie. Nie śmie do drzwi stukać;\
 Sędzia drzwi na klucz zamknął, z kimś tajnie rozmawia;\
