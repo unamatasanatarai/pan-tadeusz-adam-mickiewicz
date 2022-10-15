@@ -1,3 +1,4 @@
+«Gdzie wy — krzyknęła szlachta — gdzie wy, to tam i my!\
 Niech żyją Horeszkowie! wiwant Półkozice!\
 Wiwat Klucznik Rębajło! Hejże na Soplicę!»
 
