@@ -1,3 +1,4 @@
+Odwracali ode mnie twarz obywatele,\
 Uciekali ode mnie dawni przyjaciele;\
 Kto był lękliwy, z dala witał się i stronił:\
 Nawet lada chłop, lada Żyd, choć się pokłonił,\
