@@ -1,3 +1,4 @@
+Sławny ów proces Rymszów z dominikanami,\
 Aż wygrał wreszcie syndyk klasztorny ksiądz Dymsza,\
 Skąd jest przysłowie: większy Pan Bóg niż pan Rymsza;\
 Ja zaś dołożę, lepszy miód od Scyzoryka».\
