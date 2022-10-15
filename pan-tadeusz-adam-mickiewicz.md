@@ -1,3 +1,4 @@
+Temu da, kto na drugą nagrodę zasłużył».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy pogładził czoło i brwi zmrużył;\
 Strzelcy zaczęli szemrać, każdy coś powiadał:\
