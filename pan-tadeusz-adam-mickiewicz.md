@@ -1,3 +1,4 @@
+Niech je w sercu wyryję i w myśli zapiszę.\
 Przebaczę łacniej, chociaż przestaniesz mnie kochać,\
 Pomnąc jakoś mnie kochał!» I zaczęła szlochać.
 
