@@ -1,3 +1,4 @@
+Mogąc żyć u Hrabiego na łaskawym chlebie,\
 Nie chciał, bo wszędzie tęsknił i czuł się niezdrowym,\
 Jeżeli nie oddychał powietrzem zamkowym.
 
