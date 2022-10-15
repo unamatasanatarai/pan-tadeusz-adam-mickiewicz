@@ -1,3 +1,4 @@
+I rozchylając gęstwę badylów, w jarzynie\
 Jako rybak pod wodą nurkujący płynie;\
 Wzniósł głowę: cicho wszędzie; do okien się skrada:\
 Cicho wszędzie; przez okna głąb pałacu bada:\
