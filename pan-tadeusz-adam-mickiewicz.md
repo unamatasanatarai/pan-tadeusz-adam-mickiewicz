@@ -1,3 +1,4 @@
+Każdy zażył przez grzeczność i kilkakroć kichnął.\
 Bernardyn, korzystając z przerwy, mówił daléj:\
 «Oj, wielcy ludzie od tej tabaki kichali!\
 Czy uwierzycie państwo, że z tej tabakiery,\
