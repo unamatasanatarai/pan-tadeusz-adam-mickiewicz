@@ -1,3 +1,4 @@
+Zimnej schyla się, nim się zanurzyć ośmieli,\
 Klęknęła i powoli chyliła się bokiem;\
 Wreszcie, jakby porwana koralu potokiem,\
 Upadła nań i cała wzdłuż się rozpostarła.\
