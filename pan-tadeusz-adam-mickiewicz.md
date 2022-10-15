@@ -1,3 +1,4 @@
+Karmieniu psów, zbieraniu i czyszczeniu broni;\
 U wieczerzy, zaledwo kto przysiadł do stoła;\
 Nawet strona Kusego z partyją Sokoła,\
 Przestała dawnym wielkim zatrudniać się sporem:\
