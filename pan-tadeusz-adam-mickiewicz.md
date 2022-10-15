@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Różne też były dla dam i mężczyzn potrawy:\
 Tu roznoszono tace z całą służbą kawy,\
 Tace ogromne, w kwiaty ślicznie malowane,\
 Na nich kurzące wonnie imbryki blaszane\
