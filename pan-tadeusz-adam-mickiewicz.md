@@ -1,3 +1,4 @@
+Rąk niespokojnych, widać: mówca — coś tłumaczy,\
 I palcem eksplikuje, i na dłoni znaczy.\
 Ci mówcy zalecają swoich kandydatów;\
 Z różnym skutkiem, jak widać z miny szlachty bratów.
