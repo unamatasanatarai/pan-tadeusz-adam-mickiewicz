@@ -1,3 +1,4 @@
+«Bez waścinej pomocy ukarać potrafię\
 Zuchwałego szlachetkę; a waść, mości grafie,\
 Przed dekretem ten zamek za wcześnie przywłaszczasz:\
 Nie wać tu jesteś panem, nie wać nas ugaszczasz.\
