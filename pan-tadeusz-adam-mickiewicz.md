@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Konewka dotąd małe dał męstwa dowody.\
 Choć najpierwszy ze szlachty uwolniony z kłody,\
 Choć zaraz znalazł w wozie swą miłą konewkę,\
 Swój szturmak faworytny i z nim kul sakiewkę:\
