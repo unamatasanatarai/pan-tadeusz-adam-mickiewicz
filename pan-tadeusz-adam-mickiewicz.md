@@ -1,3 +1,4 @@
+I pomimo dawniejsze dwóch stronnictw niezgody\
 Walczą jak bracia, jeden drugiego zachęca.\
 Dobrzyńscy, widząc, jak się Podhajski wykręca\
 Tuż przed szeregiem jegrów i kosą ich kraje,\
