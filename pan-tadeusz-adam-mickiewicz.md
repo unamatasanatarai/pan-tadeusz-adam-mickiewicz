@@ -1,3 +1,4 @@
+Z których składa się dziwna muzyka wieczoru.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaczął ją puszczyk, jęcząc na poddaszu dworu;\
 Szepnęły wiotkim skrzydłem nietoperze, lecą\
