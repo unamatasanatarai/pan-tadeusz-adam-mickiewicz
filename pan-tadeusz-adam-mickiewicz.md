@@ -1,3 +1,4 @@
+Ale stryj nagle pierwsze zamiary odmienił,\
 Kazał, aby przyjechał i aby się żenił\
 I objął gospodarstwo; przyrzekł na początek\
 Dać małą wieś, a potem cały swój majątek.
