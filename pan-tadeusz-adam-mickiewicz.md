@@ -1,3 +1,4 @@
+Te pary zwierząt główne i patryjarchalne,\
 Ukryte w jądrze puszczy, światu niewidzialne,\
 Dzieci swe ślą dla osad za granicę lasu,\
 A sami we stolicy używają wczasu;\
