@@ -1,3 +1,4 @@
+I gestami ją bardzo dobitnie malował.\
 (Był dawniej adwokatem pan Rejent Bolesta,\
 Zwano go kaznodzieją, że zbyt lubił gesta).\
 Teraz ręce przy boku miał, w tył wygiął łokcie,\
