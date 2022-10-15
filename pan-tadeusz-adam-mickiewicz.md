@@ -1,3 +1,4 @@
+Nuż im z Ewangelii, z statutów dowodzić;\
 Nie ma rady: śmieli się i musieli zgodzić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spór ich potem w dozgonną przyjaźń się zamienił,\
