@@ -1,3 +1,4 @@
+Głosząc przybycie trzeciej narzeczonej pary.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Był to Rejent, sam siebie Rejentem ogłosił,\
 Nikt go nie poznał. Dotąd polskie suknie nosił,\
