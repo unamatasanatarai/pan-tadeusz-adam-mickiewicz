@@ -1,3 +1,4 @@
+I dwie twarze w jeden się rumieniec oblekły.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, by nie zdradzić swego roztargnienia:\
 «Prawda — rzekł — mój Rejencie, prawda bez wątpienia,\
