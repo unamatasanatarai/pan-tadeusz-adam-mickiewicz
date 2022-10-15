@@ -1,3 +1,4 @@
+Tryumf nad miękkim sercem serce twe zatwardził;\
 Żeś je zdobył zbyt łacno, zbyt prędkoś nim wzgardził!\
 Dobrze mi tak! Lecz straszną nauczona probą,\
 Wierz mi, iż więcej niż ty gardzę sama sobą!»
