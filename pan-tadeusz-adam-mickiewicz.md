@@ -1,3 +1,4 @@
+I tam umarł przykładnie. Znam się też z Śniadeckim,\
 Który jest mądrym bardzo człekiem, chociaż świeckim.\
 Owóż astronomowie planetę, kometę,\
 Uważają tak jako mieszczanie karetę;\
