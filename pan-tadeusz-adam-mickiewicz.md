@@ -1,3 +1,4 @@
+Człowiek stary, lecz krępy i bardzo pleczysty.\
 Właśnie kiedy Asesor podbiegł do jurysty,\
 Gdy już sobie gestami grozili szermierze,\
 On raptem porwał obu z tyłu za kołnierze\
