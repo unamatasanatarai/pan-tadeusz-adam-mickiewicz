@@ -1,3 +1,4 @@
+Pamiętam za mych czasów podobne wypadki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już Sędzia spał. Więc Woźny cicho wszedł do sieni,\
 Siadł przy świecy i dobył książeczkę z kieszeni,\
