@@ -1,3 +1,4 @@
+Ledwiem przyłożył, prawie nie mierzył — wypala!\
 Wiesz!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przeklęta broń ognista!... Kto mieczem zabija,\
