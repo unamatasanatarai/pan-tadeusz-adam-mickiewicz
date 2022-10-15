@@ -1,3 +1,4 @@
+«Ja — rzekł Asesor — stawię me złote obroże,\
 Jaszczurem wykładane, z kółkami ze złota,\
 I smycz tkany jedwabny, którego robota\
 Równie cudna jak kamień, co się na nim świeci.\
