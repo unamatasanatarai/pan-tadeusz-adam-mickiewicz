@@ -1,3 +1,4 @@
+W obu stawach piały żab niezliczone hordy,\
 Oba chóry zgodzone w dwa wielkie akordy.\
 Ten fortissimo zabrzmiał, tamten nuci z cicha;\
 Ten zdaje się wyrzekać, tamten tylko wzdycha:\
