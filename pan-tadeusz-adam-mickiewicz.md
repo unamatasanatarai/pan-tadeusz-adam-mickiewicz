@@ -1,3 +1,4 @@
+I odarty ze śniegu już się zazielenił.\
 Bo lekka, ciepłem letnim powoli rozgrzana,\
 Roztopiła się lodu cukrowego piana\
 I dno odkryła, dotąd zatajone oku;\
