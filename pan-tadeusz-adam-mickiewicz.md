@@ -1,3 +1,4 @@
+Oto obrali sędziów i zakład stawili.\
 Ogiński sto włók lasu raz przegrał o wilka;\
 Niesiołowskiemu borsuk kosztował wsi kilka!\
 I wy, panowie, pójdźcie za starych przykładem,\
