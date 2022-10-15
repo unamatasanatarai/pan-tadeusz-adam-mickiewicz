@@ -1,3 +1,4 @@
+«Po coś waść — krzyknął Robak — do tych ruin łaził?\
 Wiesz, jak zamku nie cierpię; odtąd moja noga\
 Tam nie postanie. Znowu kłótnia! kara Boga!\
 Jakże tam było? powiedz; trzeba tę rzecz zatrzeć.\
