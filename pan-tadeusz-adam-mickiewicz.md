@@ -1,3 +1,4 @@
+Pyta losu, wzniósł ręce, wytknął wielkie palce,\
 Zmrużył oczy, paznokciem do paznokcia mierzy:\
 Widać, że kreskę swoją kabale powierzy;\
 Jeśli palce trafią się, da afirmatywę,\
