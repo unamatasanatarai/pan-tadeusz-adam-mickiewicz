@@ -1,3 +1,4 @@
+Może do ich wzgardzenia weźmie pochop nowy.\
 Widząc, że ci, co innym mają dać przykłady,\
 Z łowów przynoszą tylko poswarki i zwady!\
 Miejcie też wzgląd powinny dla mych włosów siwych;\
