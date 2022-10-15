@@ -1,3 +1,4 @@
+Z Soplicą; i czytając, z tych imion wywabia\
 Pamięć spraw wielkich, wszystkie procesu wypadki,\
 I stają mu przed oczy sąd, strony i świadki;\
 I ogląda sam siebie, jak w żupanie białym,\
