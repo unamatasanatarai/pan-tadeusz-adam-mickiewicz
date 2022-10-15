@@ -1,3 +1,4 @@
+Gdy pan Sędzia w mundurze wojewódzkim wchodzi\
 I pana Tadeusza z Zofią przywodzi.\
 Tadeusz lewą dłonią dotykając głowy,\
 Pozdrowił swych dowódców przez ukłon wojskowy;\
