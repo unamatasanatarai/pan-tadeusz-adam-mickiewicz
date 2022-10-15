@@ -1,3 +1,4 @@
+Wtem zapadło do głębi; jeszcze przez konary\
 Błysnęło, jako świeca przez okiennic szpary,\
 I zgasło. I wnet sierpy gromadnie dzwoniące\
 We zbożach, i grabliska suwane po łące,\
