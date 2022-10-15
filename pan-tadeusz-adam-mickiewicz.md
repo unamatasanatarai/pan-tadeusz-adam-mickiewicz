@@ -1,3 +1,4 @@
+Niech się inaczej spór nasz zalotny roztrzygnie:\
 Walczmy, kto kogo czuciem miłości wyścignie!\
 Zostawim oba drogie serc naszych przedmioty,\
 Pośpieszymy obadwa na miecze, na groty;\
