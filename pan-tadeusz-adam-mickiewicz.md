@@ -1,3 +1,4 @@
+Panienka wie, że drogą trzeba wkoło krążyć,\
 Przez ogród zdaje mi się jest do dworu prościéj».\
 Dziewczyna rzekła: «Tędy droga jegomości;\
 Tylko grząd psuć nie trzeba. Tam, między murawą\
