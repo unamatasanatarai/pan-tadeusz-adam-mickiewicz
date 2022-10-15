@@ -1,3 +1,4 @@
+Jankiel z przymrużonymi na poły oczyma\
 Milczy i nieruchome drążki w palcach trzyma.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spuścił je. Zrazu bijąc taktem tryumfalnym,\
