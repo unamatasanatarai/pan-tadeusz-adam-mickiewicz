@@ -1,3 +1,4 @@
+I pilnując się z bliska Gerwazego boku,\
 Aż Saka, syna swego, postrzega w natłoku.\
 Sak prawą ręką szturmak wymierza, a lewą\
 Ciągnie za sobą długie sążniowate drzewo,\
