@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Może i teraz, kto wie? możem znowu zgrzeszył!\
 Możem nad rozkaz wodzów powstanie przyśpieszył!\
 Ta myśl, że dom Sopliców pierwszy się uzbroi,\
 Że pierwszą Pogoń w Litwie zatkną krewni moi!...\
