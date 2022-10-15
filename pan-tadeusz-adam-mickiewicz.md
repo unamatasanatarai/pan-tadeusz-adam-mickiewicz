@@ -1,3 +1,4 @@
+Że ją nudzi rzecz długa, choć najwymowniejsza.\
 Ale wszyscy słuchali w milczeniu głębokiem.\
 Sędzia Podkomorzego zdał się radzić okiem;\
 Podkomorzy pochwałą rzeczy nie przerywał,\
