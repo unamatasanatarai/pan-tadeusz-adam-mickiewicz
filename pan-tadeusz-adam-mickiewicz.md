@@ -1,3 +1,4 @@
+«Wańka! — krzyknął na chłopca Asesor po rusku —\
 Tasak mój sanguszkowski pociągnąć na brusku:\
 Wiesz, tasak co od księcia miałem w podarunku;\
 Pas opatrzyć, czy kula jest w każdym ładunku».\
