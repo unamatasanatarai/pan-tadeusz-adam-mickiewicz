@@ -1,3 +1,4 @@
+Nim spostrzegł się, wleciała przez okno, świecąca,\
 Nagła, cicha i lekka, jak światłość miesiąca.\
 Nucąc chwyciła suknie, biegła do zwierciadła:\
 Wtem ujrzała młodzieńca i z rąk jej wypadła\
