@@ -1,3 +1,4 @@
+Liczy gałki, szlachta je pożera oczyma,\
 Właśnie wstrząsnął ostatnią; woźni ręce wznoszą\
 I imię obranego urzędnika głoszą.
 
