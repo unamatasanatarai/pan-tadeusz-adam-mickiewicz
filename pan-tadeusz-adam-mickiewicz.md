@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Takie gwiazd historyje, które z książek zbadał\
 Albo słyszał z podania, Wojski opowiadał.\
 Chociaż wieczorem słaby miał wzrok Wojski stary\
 I nie mógł w niebie dojrzeć nic przez okulary,\
