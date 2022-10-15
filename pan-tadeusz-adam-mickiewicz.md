@@ -1,3 +1,4 @@
+Żołnierze po obozie broń czyszczą i jedzą,\
 Lub na płaszczach i siodłach śpią próżni kłopotu,\
 A wodze śród cichego dumają namiotu.
 
