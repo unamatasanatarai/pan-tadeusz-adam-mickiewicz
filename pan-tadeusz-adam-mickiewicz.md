@@ -1,3 +1,4 @@
+I przyjezdny gość, krewny albo człowiek cudzy,\
 Gdy Sędziego nawiedził, skoro pobył mało,\
 Przyjmował zwyczaj, którym wszystko oddychało.
 
