@@ -1,3 +1,4 @@
+Słyszałem, że mi ojciec testamentem kazał\
 Służyć w wojsku, a nie wiem, kto testament zmazał».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Mój Tadeuszku — rzekł stryj — czy waszeć kąpany\
