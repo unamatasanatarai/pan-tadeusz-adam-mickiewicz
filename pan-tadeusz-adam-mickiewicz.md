@@ -1,3 +1,4 @@
+Czy ty oszalał? Ja mam puszczać buntowników!\
 W takim wojennym czasie! Ha, pany Polaki,\
 Ja was nauczę buntu! Ha, szlachta łajdaki,\
 Dobrzyńscy, oj ja znam was, niech łajdaki mokną!\
