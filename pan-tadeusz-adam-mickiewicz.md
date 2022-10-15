@@ -1,3 +1,4 @@
+Która wznosi się czołem nad najwyższe drzewa,\
 A w lewym ręku chustką skrwawioną powiewa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Różne stąd wnioski tworzył stojący przy płocie\
