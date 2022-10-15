@@ -1,3 +1,4 @@
+A więc o Tadeusza już wyrzekli losie,\
 I chcą, by się ożenił, aby pojął Zosię,\
 Wychowankę waćpani. Oboje dostaną,\
 Oprócz fortunki mojej, z łaski Jacka wiano\
