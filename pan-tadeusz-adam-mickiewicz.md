@@ -1,3 +1,4 @@
+Naczyń stołowych sterczą: tu z krągłymi brzegi\
 *Surojadki* srebrzyste, żółte i czerwone,\
 Niby czareczki różnym winem napełnione;\
 *Koźlak*, jak przewrócone kubka dno wypukłe,\
