@@ -1,3 +1,4 @@
+A szczególniej mu słowo «ciocia» koło ucha\
 Brzęczało ciągle jako naprzykrzona mucha.\
 Pragnąłby u Woźnego lepiej się wypytać\
 O pani Telimenie, lecz go nie mógł schwytać;\
