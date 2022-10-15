@@ -1,3 +1,4 @@
+Chce je pieścić, zbliża się, dmuchnie: i z podmuchem\
 Cały kwiat na powietrzu rozleci się puchem,\
 A w ręku widzi tylko badacz zbyt ciekawy\
 Nagą łodygę szarozielonawej trawy.
