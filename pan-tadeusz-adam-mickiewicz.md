@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Porwali się z miejsc wszyscy; chwilę była głucha\
 Cichość, aż Sędzia krzyknął: «W dyby tego zucha!\
 Hola, chłopcy!» — i czeladź rzuciła się żwawo\
 Ciasnym przejściem pomiędzy ścianami i ławą.\
