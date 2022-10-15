@@ -1,3 +1,4 @@
+Rozmawiając za blisko, omusknął z bielidła\
 Karmin lżejszy od pyłków motylego skrzydła;\
 Telimena wracała nazbyt śpieszno z lasu,\
 I poprawić kolory swe nie miała czasu:\
