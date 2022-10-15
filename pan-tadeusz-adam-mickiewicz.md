@@ -1,3 +1,4 @@
+Tym którzy Moskwie służą, szczęśliwszym,— przebacza!\
 Wiedziałem to, a przecież — nie mogłem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Uciekłem z kraju!...\
