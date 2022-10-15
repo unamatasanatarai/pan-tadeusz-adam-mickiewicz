@@ -1,3 +1,4 @@
+I tak, kiedy we dworze sztab wesoły łyka,\
 Za domem zaczęła się w wojsku pijatyka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ryków kapitan milczkiem kielichy wychylał,\
