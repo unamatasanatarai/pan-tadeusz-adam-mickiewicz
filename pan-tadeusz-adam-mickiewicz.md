@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;W tej części sadu rosły tu i ówdzie wiśnie,\
 Śród nich zboże w gatunkach zmieszanych umyślnie:\
 Pszenica, kukuruza, bób, jęczmień wąsaty,\
 Proso, groszek, a nawet krzewiny i kwiaty.\
