@@ -1,3 +1,4 @@
+Wy, co jesteście pierwsi myśliwi w powiecie,\
 Z gorszącej kłótni waszej co będzie? czy wiecie?\
 Oto młodzież, na której Ojczyzny nadzieje,\
 Która ma wsławiać nasze ostępy i knieje,\
