@@ -1,3 +1,4 @@
+Dumał chwilę, niepewny, czy cofać się zbrojnie,\
 Czyli z nowym orężem szukać szczęścia w wojnie:\
 Obrał drugie. Już ławę jak taran murowy\
 W tył dźwignął dla zamachu; już ugiąwszy głowy,\
