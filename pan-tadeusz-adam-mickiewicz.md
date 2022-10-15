@@ -1,3 +1,4 @@
+Brukowanej nie znajdziesz pan tyle kamieni,\
 Ile tu pękło beczek wina w dobrych czasach;\
 Szlachta ciągnęła kufy z piwnicy na pasach,\
 Sproszona na sejm albo sejmik powiatowy,\
