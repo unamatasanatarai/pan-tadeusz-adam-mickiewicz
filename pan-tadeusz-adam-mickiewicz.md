@@ -1,3 +1,4 @@
+A zachwycony wdziękiem nocy tak pogodnej\
 I harmonią cudną orkiestry podwodnej,\
 Owych chorów, co brzmiały jak arfy eolskie,\
 (Żadne żaby nie grają tak pięknie jak polskie),\
