@@ -1,3 +1,4 @@
+Pochyla ku niej głowę, chce szepnąć do ucha;\
 Dama głowę odwraca, wstydzi się, nie słucha;\
 On zdjął konfederatkę, kłania się pokornie,\
 Dama raczyła spójrzeć, lecz milczy upornie;\
