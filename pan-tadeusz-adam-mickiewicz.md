@@ -1,3 +1,4 @@
+Kibić miała wysmukłą, ale jak nieskładną!\
 A owa pulchność liców i rumieńca żywość,\
 Malująca zbyteczną, prostacką szczęśliwość!\
 Znak, że myśl jeszcze drzemie, że serce nieczynne!\
