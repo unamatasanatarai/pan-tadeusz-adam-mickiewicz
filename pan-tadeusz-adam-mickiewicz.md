@@ -1,3 +1,4 @@
+Wreszcie, jakby porwana koralu potokiem,\
 Upadła nań i cała wzdłuż się rozpostarła.\
 Łokcie na trawie, skronie na dłoniach oparła,\
 Z głową na dół skłonioną; na dole u głowy,\
