@@ -1,3 +1,4 @@
+Wiele piechoty, jazdy? Kto wie, niechaj gada!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Milczała patrząc na się kolejno gromada.\
 «Radziłbym — rzecze Prusak — czekać bernardyna\
