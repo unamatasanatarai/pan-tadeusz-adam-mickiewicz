@@ -1,3 +1,4 @@
+Zamknij drzwi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Sędzia spełnił Robaka rozkazy,\
 I usiada na łóżko przy nim; a Gerwazy,\
