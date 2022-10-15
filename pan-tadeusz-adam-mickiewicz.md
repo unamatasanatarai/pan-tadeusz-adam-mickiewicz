@@ -1,3 +1,4 @@
+Z ramion swój szal powiewny, czerwony jak krwawnik;\
 I podobna pływaczce, która do kąpieli\
 Zimnej schyla się, nim się zanurzyć ośmieli,\
 Klęknęła i powoli chyliła się bokiem;\
