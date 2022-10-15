@@ -1,3 +1,4 @@
+Lecz ja tej krwi nie winien, jam o tym nie wiedział».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ksiądz porwał się z poduszek i posępny siedział.\
 Na koniec rzekł, spojrzawszy bystro na Klucznika:\
