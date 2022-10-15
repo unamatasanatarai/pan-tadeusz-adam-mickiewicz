@@ -1,3 +1,4 @@
+Albo pójdźmy mazurka? he! do diabłów trzysta!\
 Wszak ja w jegerskim pułku pierwszy mazurzysta!»\
 Za czym ku damom bliżej chylił się wygięty,\
 I puszczał na przemiany dym i komplementy.
