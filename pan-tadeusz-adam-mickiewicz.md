@@ -1,3 +1,4 @@
+Wstrząsają kulki krągłe, mosiężne, brzęczące.\
 Za baranem szły woły, trzoda owiec, kozy,\
 Za bydłem cztery ciężko pakowane wozy.
 
