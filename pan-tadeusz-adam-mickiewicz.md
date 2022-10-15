@@ -1,3 +1,4 @@
+Lecz armaturę — serów zasłoniły półki\
 I zasklepiły gęsto gniazdami jaskółki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wewnątrz samego domu, w stajni i wozowni,\
