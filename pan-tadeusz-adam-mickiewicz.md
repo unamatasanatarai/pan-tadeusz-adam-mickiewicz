@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«A czy Sędzia — rzekł Major — żółtą księgę czytał?»\
 «Co to za żółta księga?» pan Sędzia zapytał.\
 «Księga — rzekł Major — lepsza niż wasze statuty,\
