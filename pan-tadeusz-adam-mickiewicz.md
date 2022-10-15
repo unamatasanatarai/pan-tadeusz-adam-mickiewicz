@@ -1,3 +1,4 @@
+Skacząc jak żaba, cicho przyczołgał się blisko,\
 Wytknął głowę i ujrzał cudne widowisko.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W tej części sadu rosły tu i ówdzie wiśnie,\
