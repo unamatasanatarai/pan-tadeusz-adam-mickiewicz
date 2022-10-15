@@ -1,3 +1,4 @@
+Zagajając rozmowę, kłótliwych zagadzał,\
 Lecz nie służył nikomu: tylko się przechadzał.\
 Żyd stary i powszechnie znany z poczciwości,\
 Od lat wielu dzierżawił karczmę, a nikt z włości,\
