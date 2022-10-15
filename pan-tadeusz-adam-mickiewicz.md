@@ -1,3 +1,4 @@
+Drugą, by wstrzymać zwierza, o drzewo uczepi,\
 A zając, targnąwszy się, orła wpół rozsczepi;\
 Prawa szpona u drzewa zostaje się w lesie,\
 A lewą zakrwawioną źwierz na pola niesie.
