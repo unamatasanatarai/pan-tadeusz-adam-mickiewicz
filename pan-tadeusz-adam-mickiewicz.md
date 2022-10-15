@@ -1,3 +1,4 @@
+Za Niemen, gdzie ich czeka zastęp narodowy.\
 My na was nieobecnych całą winę zwalim\
 I na Płuta: tak resztę rodzeństwa ocalim.\
 Żegnam was nie na długo; są pewne nadzieje,\
