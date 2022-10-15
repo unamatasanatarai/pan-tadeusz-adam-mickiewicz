@@ -1,3 +1,4 @@
+Wlawszy kropelkę wina w szklankę panny Róży,\
 A młodszej przysunąwszy z talerzem ogórki,\
 Rzekł: «Muszę ja wam służyć, moje panny córki,\
 Choć stary i niezgrabny». Zatem się rzuciło\
