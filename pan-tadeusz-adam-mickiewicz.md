@@ -1,3 +1,4 @@
+Tu nie słuchaj, ni stryja gróźb, ni namów cioci.\
 Jeśli nie czujesz dla mnie nic oprócz dobroci,\
 Możem te zaręczyny czas jakiś odwlekać;\
 Więzić twej woli nie chcę; będziem, Zosiu, czekać.\
