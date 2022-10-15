@@ -1,3 +1,4 @@
+Czasem poranny wietrzyk, gdy ze wschodu wionie,\
 Zrywa wianki i rzuca na klęczących skronie,\
 I rozlewa jak z mszalnej kadzielnicy wonie.
 
