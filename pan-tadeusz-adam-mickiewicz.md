@@ -1,3 +1,4 @@
+Ten mi jeszcze spokojnie zasnąć nie dozwoli!\
 Idź mi waść spać!» To mówiąc, drzwi na wściąż otwierał\
 I zawołał Woźnego, żeby go rozbierał.
 
