@@ -1,3 +1,4 @@
+Gdzież jest wdzięczność na świecie? Nie ma jej w Dobrzynie!\
 Bracia! chcecie bój z ruskim wieść imperatorem,\
 A boicie się wojny z Soplicowskim dworem?\
 Strach wam turmy! Czyż to ja wzywam na rozboje?\
