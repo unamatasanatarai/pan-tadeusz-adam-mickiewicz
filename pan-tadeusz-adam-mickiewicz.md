@@ -1,3 +1,4 @@
+Podkomorzy już zjechał z żoną i z córkami.\
 Młodzież poszła do lasu bawić się strzelbami,\
 A starzy i kobiety żniwo oglądają\
 Pod lasem i tam pewnie na młodzież czekają.\
