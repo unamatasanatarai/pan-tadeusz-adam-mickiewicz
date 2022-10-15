@@ -1,3 +1,4 @@
+Gdzie jest dziś taki strzelec jak szlachcic Żegota,\
 Co kulą z pistoletu w biegu trafiał kota?\
 Terajewicza znałem, co idąc na dziki,\
 Nie brał nigdy innego oręża prócz piki;\
