@@ -1,3 +1,4 @@
+I dłużej niż tu lud po bohaterze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I przyjaciele wtenczas pomogli rozmowie.\
 I do pieśni rzucali mi słowo po słowie:\
