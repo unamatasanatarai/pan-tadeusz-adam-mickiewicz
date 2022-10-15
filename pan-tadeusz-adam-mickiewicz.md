@@ -1,3 +1,4 @@
+Jakżem ciebie nie poznał po owym wystrzale,\
 Kiedyś tak do niedźwiedzia trafił doskonale?\
 Bo nad ciebie nie miała strzelca Litwa nasza,\
 Byłeś także po Maćku pierwszy do pałasza!\
