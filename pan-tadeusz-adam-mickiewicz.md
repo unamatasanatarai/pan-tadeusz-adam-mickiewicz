@@ -1,3 +1,4 @@
+Strzelby z jednym kalibrem miało wiele osób:\
 Kto zabił niedźwiedzicę? dojdźże! jaki sposób?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu już krzyknęli: »Dosyć! Trzeba raz rzecz skończyć,\
