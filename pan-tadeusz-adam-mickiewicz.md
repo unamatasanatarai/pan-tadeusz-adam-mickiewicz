@@ -1,3 +1,4 @@
+Moskal, lecz dobry człowiek, dał się udobruchać:\
 Cóż, kiedy sam majora Płuta musiał słuchać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ten Major, Polak rodem z miasteczka Dzierowicz,\
