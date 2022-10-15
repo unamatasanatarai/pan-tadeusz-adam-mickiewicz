@@ -1,3 +1,4 @@
+Chcąc iść; lecz go wstrzymała Telimena okiem\
 I twarzą, jak Meduzy głową. Musiał zostać\
 Mimowolnie; poglądał z trwogą na jej postać:\
 Stała blada, bez ruchu, bez tchu i bez życia;\
