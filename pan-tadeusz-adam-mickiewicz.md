@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Biegał po całym domu i szukał komnaty,\
 Gdzie mieszkał dzieckiem będąc, przed dziesięciu laty.\
 Wchodzi, cofnął się, toczył zdumione źrenice\
 Po ścianach: w tej komnacie mieszkanie kobiéce!\
