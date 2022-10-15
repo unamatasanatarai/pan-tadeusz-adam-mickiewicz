@@ -1,3 +1,4 @@
+Zgodą zakończyć moje sądy podkomorskie.\
 Dotąd jedyna trudność jest o fundum dworskie:\
 Mam już projekt zamiany, fundum wynagrodzić\
 Ziemią, w sposób następny...» Tu zaczął wywodzić\
