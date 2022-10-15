@@ -1,3 +1,4 @@
+Zwykli byli Dobrzyńscy żyć o łatwym chlebie:\
 Teraz, zmuszeni sami pracować na siebie\
 Jako zaciężne chłopstwo! tylko że siermięgi\
 Nie noszą, lecz kapoty białe w czarne pręgi,\
