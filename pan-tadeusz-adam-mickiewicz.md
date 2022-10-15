@@ -1,3 +1,4 @@
+Jako dziecię krzykliwe złożone w kolebce,\
 Gdy matka nad nim zwiąże firanki majowe\
 I liścia makowego nasypie pod głowę.\
 Miejsce piękne i ciche: tu się często schrania\
