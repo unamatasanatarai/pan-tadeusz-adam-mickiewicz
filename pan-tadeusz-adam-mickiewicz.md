@@ -1,3 +1,4 @@
+A którą po raz pierwszy na ziemi Auzonów\
 Wygrały Włochom polskie trąby legijonów.\
 Talent śpiewania bardzo na Litwie popłaca,\
 Jedna miłość u ludzi, wsławia i wzbogaca:\
