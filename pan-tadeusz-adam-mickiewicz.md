@@ -1,3 +1,4 @@
+Za czym wstrzymują szlachtę Robak z jednej strony\
 A z drugiej Maciej. Szlachta ostyga w zapale,\
 Ogląda się, cofa się; widzą to Moskale:\
 Kapitan Ryków myśli ostatni cios zadać,\
