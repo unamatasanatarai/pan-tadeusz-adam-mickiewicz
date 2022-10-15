@@ -1,3 +1,4 @@
+Tylko poprawił kaptur, i ręce za pasem\
 Zatknąwszy, wyszedł cicho z pokoju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tymczasem\
