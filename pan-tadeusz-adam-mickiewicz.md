@@ -1,3 +1,4 @@
+Za nimi jeden cichy, posępny cień mignął,\
 Z krwawą na piersi plamą. Gerwazy się wzdrygnął,\
 Poznał Stolnika; zaczął wkoło siebie żegnać,\
 I ażeby tym pewniej straszne sny rozegnać,\
