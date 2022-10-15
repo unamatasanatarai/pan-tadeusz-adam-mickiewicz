@@ -1,3 +1,4 @@
+Papiery i ołówki, poznał rysownika;\
 Choć go bardzo odmienił mundur pułkownika,\
 Bogate szlify, mina prawdziwie ułańska\
 I wąsik poczerniony i bródka hiszpańska.\
