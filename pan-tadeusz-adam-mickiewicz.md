@@ -1,3 +1,4 @@
+Nieskromnie — a dopiero, kiedy podniósł oko!\
 Aż przeląkł się; bystrzejsze teraz miał źrenice.\
 Ledwie spojrzał w rumiane Telimeny lice,\
 Odkrył od razu wielką, straszną tajemnicę —\
