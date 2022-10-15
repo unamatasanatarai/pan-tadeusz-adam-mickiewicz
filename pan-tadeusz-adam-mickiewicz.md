@@ -1,3 +1,4 @@
+Każdy groźnie spoziera i pokręca wąsa,\
 Składa się karabelą, buzdyganem wstrząsa;\
 Za nimi jeden cichy, posępny cień mignął,\
 Z krwawą na piersi plamą. Gerwazy się wzdrygnął,\
