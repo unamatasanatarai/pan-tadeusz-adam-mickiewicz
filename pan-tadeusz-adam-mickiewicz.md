@@ -1,3 +1,4 @@
+Godna, by o cię bronią walczyli rycerze,\
 Byś została romansów heroiną smutnych!\
 Odkryj mi, piękna, tajnie twych losów okrutnych!\
 Znajdziesz wybawiciela. Odtąd twym skinieniem,\
