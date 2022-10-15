@@ -1,3 +1,4 @@
+Na ręku oparł brodę, krzycząc: «Czekać! zwlekać!\
 Sejmikować! Hem, trem, brem, a potem uciekać!\
 Ja w Prusach nie bywałem; rozum królewiecki\
 Dobry dla Prus, a u mnie jest rozum szlachecki.\
