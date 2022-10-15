@@ -1,3 +1,4 @@
+Wykrzykników i westchnień, i nowych powitań.\
 Gdy się pan Wojski dosyć napytał, nabadał,\
 Na samym końcu dzieje tego dnia powiadał.
 
