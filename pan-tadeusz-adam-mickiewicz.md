@@ -1,3 +1,4 @@
+Woźny od rana czekał pod oknem na przyzbie.\
 Sędzia, skończywszy pozew, Protazego wzywa,\
 Skargę przeciw Hrabiemu głośno odczytywa:\
 O skrzywdzenie honoru, zelżywe wyrazy,\
