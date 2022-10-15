@@ -1,3 +1,4 @@
+Prosi do chaty. Weszli, zasiadają ławę;\
 Pierwszy z posłów stał w środku i jął zdawać sprawę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem szlachty coraz gęściej przybywało:\
