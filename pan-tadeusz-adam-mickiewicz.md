@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Późno było, gdy weszli: więc każdy, gdzie może,\
 Zabierają kwatery w zamczysku, we dworze.\
 Skoro dano rozkazy, rozstawiono czaty,\
 Każdy strudzony poszedł spać do swej komnaty,\
