@@ -1,3 +1,4 @@
+Lub chory, bieży umrzeć w swe ojczyste strony.\
 Stąd to w miejscach dostępnych, kędy człowiek gości,\
 Nie znajdują się nigdy martwych zwierząt kości.\
 Słychać, że tam w stolicy między zwierzętami\
