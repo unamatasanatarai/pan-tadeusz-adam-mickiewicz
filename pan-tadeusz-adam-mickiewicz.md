@@ -1,3 +1,4 @@
+Urodzony w niewoli, okuty w powiciu,\
 Ja tylko jedną taką wiosnę miałem w życiu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Soplicowo leżało tuż przy wielkiej drodze,\
