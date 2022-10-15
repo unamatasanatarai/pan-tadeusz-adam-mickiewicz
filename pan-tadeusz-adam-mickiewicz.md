@@ -1,3 +1,4 @@
+Będę żył u mej pani na łaskawym chlebie\
 I kołysząc Horeszków pokolenie trzecie,\
 Wprawiać do Scyzoryka pani mojej dziecię,\
 Jeśli syn — a syn będzie: bo wojny nadchodzą,\
