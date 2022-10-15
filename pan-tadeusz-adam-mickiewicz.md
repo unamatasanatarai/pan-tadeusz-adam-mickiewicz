@@ -1,3 +1,4 @@
+Ogromnym kręgiem, na kształt karetnego koła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Serwis ten był nalany ode dna po brzegi\
 Piankami i cukrami białymi jak śniegi:\
