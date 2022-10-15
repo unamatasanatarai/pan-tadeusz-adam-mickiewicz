@@ -1,3 +1,4 @@
+Czy nie tam pokój panny, gdzie owe okienko?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Myślił zaś w duchu: jeśli nie jest heroiną\
 Romansów, jest młodziuchną, prześliczną dziewczyną.\
