@@ -1,3 +1,4 @@
+I głowę grzebieniastą pochyliwszy bokiem,\
 Aby tym łacniej w niebo mógł celować okiem,\
 Dostrzeże wiszącego jastrzębia śród chmury,\
 Krzyknie: zaraz w ten ogród chowają się kury,\
