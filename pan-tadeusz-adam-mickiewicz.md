@@ -1,3 +1,4 @@
+Wierny sługa; żandarmów oddział miał w komendzie,\
 A choć ledwie dwadzieścia godzin był w urzędzie,\
 Już włożył mundur siny z polskimi wyłogi\
 I ciągnął krzywą szablę i dzwonił w ostrogi.\
