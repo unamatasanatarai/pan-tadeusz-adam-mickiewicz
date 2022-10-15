@@ -1,3 +1,4 @@
+Targowiczanie potem chcieli mnie zaszczycić\
 Urzędem. — Gdybym wtenczas chciał się przemoskwicić!\
 Szatan radził — Już byłem możny i bogaty;\
 Gdybym został Moskalem, najpierwsze magnaty\
