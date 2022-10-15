@@ -1,3 +1,4 @@
+Oto ten mój Scyzoryk u nóg twoich składam,\
 To jest co najdroższego na świecie posiadam;\
 Nie miałem nigdy żony, nie miałem dziecięcia,\
 On był żoną i dzieckiem; z mojego objęcia\
