@@ -1,3 +1,4 @@
+Wszystko na piśmie...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Ale, ale kapitanie —\
 Przerwał Robak — i cóż się tedy z nami stanie,\
