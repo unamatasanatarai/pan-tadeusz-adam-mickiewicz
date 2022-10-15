@@ -1,3 +1,4 @@
+On wolał z flinty strzelać albo szablą robić.\
 Wiedział, że go myślano do wojska sposobić,\
 Że ojciec w testamencie wyrzekł taką wolę;\
 Ustawicznie do bębna tęsknił, siedząc w szkole.\
