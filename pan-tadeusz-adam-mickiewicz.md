@@ -1,3 +1,4 @@
+Przy której i basetla była, i kozice.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Muzykę znał, sam słynął muzycznym talentem;\
 Z cymbałami, narodu swego instrumentem,\
