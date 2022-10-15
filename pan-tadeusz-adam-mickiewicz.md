@@ -1,3 +1,4 @@
+Nie chcąc modnego stroju, aż wymogła płaczem\
 Że ją tak zostawiono, w ubraniu prostaczem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spódniczkę miała długą, białą; suknię krótką\
