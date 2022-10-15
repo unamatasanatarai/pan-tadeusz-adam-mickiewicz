@@ -1,3 +1,4 @@
+Do dworów pańskich, z szlachtą ustawicznie szeptał,\
 I okoliczne wioski dokoła wydeptał,\
 I w karczmach z wieśniakami rozprawiał niemało,\
 A zawsze o tym, co się w cudzych krajach działo.\
