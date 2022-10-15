@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Przyjacielu — rzekł Hrabia — piękne przyrodzenie\
 Jest formą, tłem, materią; a duszą — natchnienie,\
 Które na wyobraźni unosi się skrzydłach,\
 Poleruje się gustem, wspiera na prawidłach.\
