@@ -1,3 +1,4 @@
+Dziecko muz, w Soplicowie oddane na mamki,\
 Umrze pewnie. Mój Hrabio, oprawię to w ramki,\
 Albo w album umieszczę, do rysunków zbiorku,\
 Które zewsząd skupiałam: mam ich dosyć w biurku».
