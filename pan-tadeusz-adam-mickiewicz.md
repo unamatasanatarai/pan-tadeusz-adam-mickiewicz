@@ -1,3 +1,4 @@
+Na Hrabię, który żegnał ją mocno wzruszony.\
 Ona wzdychała, ale ruszyła ramiony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Sędzia rzekł: «Mój Hrabio, śpiesz się, bo już późno,»\
