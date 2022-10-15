@@ -1,3 +1,4 @@
+Dosyć, że się nam zdawał małpą lub papugą\
 W wielkiej peruce, którą do złotego runa\
 On lubił porównywać, a my do kołtuna.\
 Jeśli kto i czuł wtenczas, że polskie ubranie\
