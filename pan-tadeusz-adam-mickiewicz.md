@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy pierwszy raz bydło wygnano na wiosnę,\
 Uważano, że chociaż zgłodniałe i chude,\
 Nie biegło na ruń, co już umaiła grudę,\
