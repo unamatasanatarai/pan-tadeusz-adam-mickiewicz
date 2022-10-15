@@ -1,3 +1,4 @@
+Jako dziecko od Żydów kłute igiełkami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem Telimena wpadła między konie,\
 Wyciągnęła ku Hrabi załamane dłonie:\
