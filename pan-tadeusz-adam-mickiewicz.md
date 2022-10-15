@@ -1,3 +1,4 @@
+Tu wzrok na ścianie wstrzymał, ówdzie na sklepieniu,\
 Przywołując pamiątkę tu smutną, tam miłą;\
 Czasem, jakby chciał mówić: «Wszystko się skończyło»,\
 Kiwnął żałośnie głową; czasem machnął ręką:\
