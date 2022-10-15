@@ -1,3 +1,4 @@
+«Panowie — rzekł — ta kula nie jest z waszej broni,\
 Ona z tej Horeszkowskiej wyszła jednorurki\
 (Tu podniósł flintę starą, obwiązaną w sznurki),\
 Lecz nie ja wystrzeliłem. O, trzeba tam było\
