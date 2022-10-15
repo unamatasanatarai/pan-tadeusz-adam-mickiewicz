@@ -1,3 +1,4 @@
+Że ta chwała należy chartu Sokołowi.\
 Pytano zdania innych; więc wszyscy dokoła\
 Brali stronę Kusego albo też Sokoła,\
 Ci jak znawcy, ci znowu jak naoczne świadki.\
