@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Hrabia lubił widoki niezwykłe i nowe,\
 Zwał je romansowymi; mawiał, że ma głowę\
 Romansową: w istocie był wielkim dziwakiem.\
 Nieraz, pędząc za lisem albo za szarakiem,\
