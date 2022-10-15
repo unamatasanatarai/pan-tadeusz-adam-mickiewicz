@@ -1,3 +1,4 @@
+I szerokim całusem w blade ramię klasnął;\
 Gdy Tadeusz, przypadłszy z boku, w twarz mu trzasnął.\
 I całus, i policzek ozwały się razem,\
 Jeden za drugim, jako wyraz za wyrazem.
