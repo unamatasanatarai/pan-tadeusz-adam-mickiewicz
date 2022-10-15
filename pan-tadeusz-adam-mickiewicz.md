@@ -1,3 +1,4 @@
+Jakby prawo w tył robił za wodza rozkazem,\
 I słowa liturgii takim wyrzekł tonem\
 Do ludu, jak oficer stojąc przed szwadronem:\
 Postrzegali to chłopcy służący mu do mszy.\
