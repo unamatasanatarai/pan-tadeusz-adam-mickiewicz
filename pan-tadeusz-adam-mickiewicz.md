@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Goście powstali, Rejent okropnie się zmieszał,\
 Podkomorzy rywalów zagodzić pośpieszał;\
 Lecz Telimena wziąwszy Hrabiego na stronę:\
 «Jeszcze — szepnęła — Rejent nie wziął mię za żonę;\
