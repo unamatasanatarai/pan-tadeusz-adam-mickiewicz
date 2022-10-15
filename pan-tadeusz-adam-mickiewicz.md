@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nie mógł jej swej pomocy Tadeusz odmówić:\
 Oczyszczając sukienkę, aż do nóg się zniżył,\
 Usta trafem ku skroniom Telimeny zbliżył —\
