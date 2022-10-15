@@ -1,3 +1,4 @@
+Jakby z tej strony miał się objawić cud jaki,\
 I uważają z trwogą wracające ptaki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bo już bocian przyleciał do rodzinnej sosny\
