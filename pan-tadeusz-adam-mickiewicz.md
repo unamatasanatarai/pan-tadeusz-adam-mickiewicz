@@ -1,3 +1,4 @@
+I narzędzia ślusarskie, którymi rynsztunki\
 Poprawiano; proch, papier: robiono ładunki.\
 Czy Hrabia z całym dworem wyjechał na łowy?\
 Ale po cóż broń ręczna? Tu szabla bez głowy\
