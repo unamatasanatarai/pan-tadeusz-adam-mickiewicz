@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Lecz Sędzia rzekł: «Mój Hrabio, śpiesz się, bo już późno,»\
 A ksiądz Robak «Dość tego! — wołał z miną groźną, —\
 Śpiesz się wasze!» Tak rozkaz Sędziego i księdza\
 Rozdziela czułą parę i z izby wypędza.
