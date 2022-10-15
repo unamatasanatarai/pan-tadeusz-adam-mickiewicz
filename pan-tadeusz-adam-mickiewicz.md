@@ -1,3 +1,4 @@
+Teraz, zmuszeni sami pracować na siebie\
 Jako zaciężne chłopstwo! tylko że siermięgi\
 Nie noszą, lecz kapoty białe w czarne pręgi,\
 A w niedzielę kontusze. Strój także szlachcianek\
