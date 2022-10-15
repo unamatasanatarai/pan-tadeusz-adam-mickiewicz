@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nie myślił wcale Wojski przymawiać nikomu,\
 Ani uważał, co tam szepczą po kryjomu;\
 Rad bardzo, że mógł damy i młodzież rozśmieszyć,\
