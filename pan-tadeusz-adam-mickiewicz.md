@@ -1,3 +1,4 @@
+Na śniadanie: już późno, chciałem na czas zdążyć;\
 Panienka wie, że drogą trzeba wkoło krążyć,\
 Przez ogród zdaje mi się jest do dworu prościéj».\
 Dziewczyna rzekła: «Tędy droga jegomości;\
