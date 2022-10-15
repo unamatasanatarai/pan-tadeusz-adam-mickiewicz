@@ -1,3 +1,4 @@
+Nie wiem tedy, za co mnie trzymacie pod strażą.\
 Wnet akt spiszę, niech mi kto latarkę przyniesie,\
 A tymczasem ogłaszam: bracia, uciszcie się!»
 
