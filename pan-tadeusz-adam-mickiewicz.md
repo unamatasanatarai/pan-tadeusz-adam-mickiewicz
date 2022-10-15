@@ -1,3 +1,4 @@
+I całą trzodę straszy ryczeniem złowrogiem;\
 Krowa coraz ku niebu wznosi wielkie oko,\
 Usta z dziwu otwiera i wzdycha głęboko;\
 A wieprz marudzi w tyle, dąsa się i zgrzyta,\
