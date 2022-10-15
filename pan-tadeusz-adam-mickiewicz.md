@@ -1,3 +1,4 @@
+Gdzie dostał ów bilecik, zadatek kochania,\
 Miejsce, jak wiemy, zwane *Świątynią dumania*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy okiem wkoło rzuca, postrzega: to ona!\
