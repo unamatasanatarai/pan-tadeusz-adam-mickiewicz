@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Było dość w Dobrzynie\
 Starych ludzi roztropnych, którzy po łacinie\
 Umieli i w palestrze ćwiczyli się z młodu;\
 Było dość majętniejszych: a z całego rodu\
