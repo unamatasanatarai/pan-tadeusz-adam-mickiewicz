@@ -1,3 +1,4 @@
+Po ogrodzie, umyślnie odwracając głowy\
 Od kochanków, żeby im nie mieszać rozmowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale starce miód piją, tabakierką z kory\
