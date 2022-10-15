@@ -1,3 +1,4 @@
+Przyjąwszy urzędowy pozew, zdarł na sztuki,\
 I postawiwszy przy drzwiach z kijami hajduki,\
 Sam nad Woźnego głową trzymał goły rapier,\
 Krzycząc: «Albo cię zetnę, albo zjedz twój papier!»\
