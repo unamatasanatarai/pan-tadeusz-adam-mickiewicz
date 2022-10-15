@@ -1,3 +1,4 @@
+W stajni kolczuga wielka nad żłobem rozpięta\
 I pierścieniasty pancerz służą za drabinę,\
 W którą chłopiec zarzuca źrebcom dzięcielinę.\
 W kuchni kilka rapierów kucharka bezbożna\
