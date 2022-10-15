@@ -1,3 +1,4 @@
+Cwałem tarkoce, drugą i trzecią spotyka;\
 Z lewej drogi posłaniec jak kuryjer goni,\
 Z prawej przebiegło w zawód kilkanaście koni:\
 Wszyscy śpieszą, ku różnym kierują się stronom.\
