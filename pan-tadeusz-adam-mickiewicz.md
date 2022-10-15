@@ -1,3 +1,4 @@
+Wre taniec, brzmi muzyka, oklaski i zdrowia!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tylko kapral Dobrzyński Sak ani kapeli\
 Nie słucha, ani tańczy, ani się weseli.\
