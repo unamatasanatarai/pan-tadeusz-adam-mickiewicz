@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;W takim dniu pożądany był czas najburzliwszy:\
 Bo nawałnica, boju plac mrokiem okrywszy,\
 Zalała drogi, mosty zerwała na rzece,\
 Z folwarku niedostępną zrobiła fortecę.\
