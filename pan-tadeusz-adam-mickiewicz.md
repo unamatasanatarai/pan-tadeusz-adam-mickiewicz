@@ -1,3 +1,4 @@
+Oba krzyczeli: «Wiwat Chrzciciel z kropidełkiem!»\
 Prusak chciał mówić, ale zgłuszono go zgiełkiem\
 I śmiechem; «Precz — wołano — precz Prusaki tchórze!\
 Kto tchórz, niech w bernardyńskim chowa się kapturze!»
