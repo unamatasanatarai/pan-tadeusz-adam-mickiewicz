@@ -1,3 +1,4 @@
+Czekała — długo, jak my Żydzi Mesyjasza...\
 Ciebie prorokowali dawno między ludem\
 Śpiewaki, ciebie niebo obwieściło cudem,\
 Żyj i wojuj, o ty nasz!...» Mówiąc, ciągle szlochał,\
