@@ -1,3 +1,4 @@
+Brzmi Polonez Trzeciego Maja! — Skoczne dźwięki\
 Radością oddychają, radością słuch poją;\
 Dziewki chcą tańczyć, chłopcy w miejscu nie dostoją —\
 Lecz starców myśli z dźwiękiem w przeszłość się uniosły,\
