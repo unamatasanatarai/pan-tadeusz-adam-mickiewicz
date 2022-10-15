@@ -1,3 +1,4 @@
+Młodzieńca, który nosił Kościuszkowskie miano\
 Na pamiątkę, że w czasie wojny się urodził)\
 Dobrze mój Tadeuszu, żeś się dziś nagodził\
 Do domu, właśnie kiedy mamy panien wiele.\
