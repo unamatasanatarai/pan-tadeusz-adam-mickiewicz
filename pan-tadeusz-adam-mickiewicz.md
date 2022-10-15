@@ -1,3 +1,4 @@
+Cała wyprawa króla nieboszczyka Jana\
 I wyryta chorągiew wielka Mahometa,\
 I ów, taki jak dziś go widzimy, kometa».
 
