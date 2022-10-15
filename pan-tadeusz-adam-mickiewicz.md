@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem Telimena wpadła między konie,\
 Wyciągnęła ku Hrabi załamane dłonie:\
 «Na twój honor! — krzyknęła przeraźliwym głosem,\
