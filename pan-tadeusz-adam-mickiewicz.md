@@ -1,3 +1,4 @@
+Ledwie w niezmiernie ważnych sporach lub umowach\
 Pytany, wyrzekł zdanie i w niewielu słowach.\
 Myślano, że dzisiejszej podejmie się sprawy\
 I stanie swą osobą na czele wyprawy;\
