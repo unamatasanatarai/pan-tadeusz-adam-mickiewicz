@@ -1,3 +1,4 @@
+Przy ognisku myśliwskim, na niedźwiedziej skórze\
 Leżał, słuchając pieśni mądrego Lizdejki,\
 A Wilii widokiem i szumem Wilejki\
 Ukołysany, marzył o wilku żelaznym,\
