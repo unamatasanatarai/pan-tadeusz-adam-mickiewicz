@@ -1,3 +1,4 @@
+A drugą ręką w wodę dla zabawki miota\
 Brane z fartuszka garście zaklętego złota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dalej, z rowu wybiegłszy, strumień na równinie\
