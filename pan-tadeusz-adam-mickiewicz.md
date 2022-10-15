@@ -1,3 +1,4 @@
+Jęk dzieci, płacze matek. — Tak mistrz doskonały\
 Wydał okropność szturmu, że wieśniaczki drżały,\
 Przypominając sobie ze łzami boleści\
 *Rzeź Pragi*, którą znały z pieśni i z powieści,\
