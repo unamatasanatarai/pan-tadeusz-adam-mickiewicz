@@ -1,3 +1,4 @@
+Tylne i spojrzał wkoło, rykiem strasząc wrogi,\
 I przednimi łapami to drzewa korzenie,\
 To pniaki osmalone, to wrosłe kamienie\
 Rwał, waląc w psów i w ludzi, aż wyłamał drzewo.\
