@@ -1,3 +1,4 @@
+Że nasz Tadeusz szczerze zakochany w Zosi.\
 Niechajże przed odjazdem o rękę jej prosi.\
 Mówiłem z Telimeną, już nam nie przeszkadza,\
 Zosia także się z wolą opiekunów zgadza.\
