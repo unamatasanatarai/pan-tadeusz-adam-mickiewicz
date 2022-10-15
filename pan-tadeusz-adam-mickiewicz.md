@@ -1,3 +1,4 @@
+Co mi tam głosy, gałki! U mnie insza gałka.\
 — Tu wydobył z kieszeni garść kul, dzwonił nimi —\
 Ot gałki! — krzyknął — w Sędzię gałkami wszystkimi!»\
 «Do was — wołał Skołuba — do was się łączymy!»\
