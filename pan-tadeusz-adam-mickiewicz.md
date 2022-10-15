@@ -1,3 +1,4 @@
+Przy którym karabela z głownią jaszczurową;\
 Na szyi świecił wielką szpilką brylantową;\
 Konfederatka biała, a na niej pęk gruby\
 Drogich piórek, były to białych czapel czuby\
