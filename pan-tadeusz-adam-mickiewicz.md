@@ -1,3 +1,4 @@
+Gatunek much osobny, zwanych szlacheckimi.\
 Barwą i kształtem całkiem podobne do innych,\
 Ale pierś mają szerszą, brzuch większy od gminnych,\
 Latając bardzo huczą i nieznośnie brzęczą,\
