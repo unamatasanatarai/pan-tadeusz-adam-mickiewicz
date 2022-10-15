@@ -1,3 +1,4 @@
+Słychać krzyk w karczmie, widać w plebanii świéce.\
 Biega; jeden drugiego pyta co to znaczy,\
 Starzy składają radę, młódź konie kulbaczy,\
 Kobiety zatrzymują, chłopcy się szamocą,\
