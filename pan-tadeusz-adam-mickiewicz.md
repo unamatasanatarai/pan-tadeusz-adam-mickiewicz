@@ -1,3 +1,4 @@
+Nudzi się, kręci głową, roboty nie patrzy,\
 Pogląda na gościniec, na drogi rozstajne,\
 Kędy działy się jakieś rzeczy nadzwyczajne.
 
