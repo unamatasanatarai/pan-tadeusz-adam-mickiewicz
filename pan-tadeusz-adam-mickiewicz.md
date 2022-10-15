@@ -1,3 +1,4 @@
+Aż po granicę — po sąsiadów domy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A jeśli czasem i Moskal się zjawił,\
 Tyle nam tylko pamiątki zostawił,\
