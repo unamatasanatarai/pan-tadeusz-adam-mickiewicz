@@ -1,3 +1,4 @@
+Po prawej stronie męża, ma Podkomorzyna,\
 Sędzia, kiedy już gości jak trzeba ustawił,\
 Żegnając po łacinie, stół pobłogosławił.\
 Mężczyznom dano wódkę; za czym wszyscy siedli,\
