@@ -1,3 +1,4 @@
+Służyć w wojsku, a nie wiem, kto testament zmazał».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Mój Tadeuszku — rzekł stryj — czy waszeć kąpany\
 W gorącej wodzie, czy też kręcisz jak lis szczwany,\
