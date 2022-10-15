@@ -1,3 +1,4 @@
+Brał dom żałobę, ale powiedzieć nie śmiano\
 Po kim była żałoba, tylko zgadywano\
 W okolicy; i tylko cichy smutek panów,\
 Lub cicha radość, była gazetą ziemianów.
