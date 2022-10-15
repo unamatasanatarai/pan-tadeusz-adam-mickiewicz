@@ -1,3 +1,4 @@
+O wiosno, kto cię widział, jak byłaś kwitnąca\
 Zbożami i trawami, a ludźmi błyszcząca,\
 Obfita we zdarzenia, nadzieją brzemienna!\
 Ja ciebie dotąd widzę, piękna maro senna!\
