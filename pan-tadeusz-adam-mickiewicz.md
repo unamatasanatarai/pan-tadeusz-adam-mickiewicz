@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Jankiel wymknął się milczkiem, oklep. Prusak, równie\
 Niesłuchany, choć jeszcze rozprawiał wymównie,\
 Chciał zmykać: szlachta w pogoń, wołając, że zdradził.\
 Mickiewicz stał z daleka; ni krzyczał, ni radził,\
