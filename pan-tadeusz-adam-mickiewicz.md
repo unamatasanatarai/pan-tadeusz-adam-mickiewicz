@@ -1,3 +1,4 @@
+Tylko oczyma kręci na dół spuszczonemi;\
 Ów, patrząc wprost przed siebie, niby senny kroczy,\
 Jak po linie, ni w prawo, ni w lewo nie zboczy;\
 Wszyscy zaś ciągle w różne schylają się strony\
