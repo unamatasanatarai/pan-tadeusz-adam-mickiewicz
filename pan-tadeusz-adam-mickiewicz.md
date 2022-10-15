@@ -1,3 +1,4 @@
+Hodować, wychowanie jej opłacał drogo;\
 Chciał ją Tadeuszkowi swojemu wyswatać\
 I tak dwa poróżnione domy znowu zbratać,\
 I dziedziczce bez wstydu ustąpić grabieży...»\
