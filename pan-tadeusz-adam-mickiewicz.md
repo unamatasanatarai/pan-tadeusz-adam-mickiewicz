@@ -1,3 +1,4 @@
+W niczym na świecie — i tak z grzechów w nowe grzechy,\
 Zacząłem pić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I tak niedługo żona ma z żalu umarła,\
