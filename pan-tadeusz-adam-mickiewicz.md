@@ -1,3 +1,4 @@
+Chwilę jeszcze z szpaleru, przez majowe zwoje,\
 Przeświecało coś na wskroś jakby oczu dwoje.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Samotny Hrabia długo jeszcze stał w ogrodzie.\
