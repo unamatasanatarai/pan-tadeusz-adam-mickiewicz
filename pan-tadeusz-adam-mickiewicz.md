@@ -1,3 +1,4 @@
+Złączył ręce, oburącz w dwa drążki uderzył:\
 Uderzenie tak sztuczne, tak było potężne,\
 Że struny zadzwoniły jak trąby mosiężne\
 I z trąb znana piosenka ku niebu wionęła,\
