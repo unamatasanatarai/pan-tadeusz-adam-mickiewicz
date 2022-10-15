@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wnet Gerwazy (to on był) przez tłum się przecisnął\
 Na środek izby, wkoło Scyzorykiem błysnął;\
 Potem w dół chyląc ostrze na znak powitania\
