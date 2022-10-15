@@ -1,3 +1,4 @@
+Bo ubrana, a ubiór powiększa i zmniejsza.\
 I włos u tamtej widział krótki, jasnozłoty,\
 A u tej krucze długie zwijały się sploty?\
 Kolor musiał pochodzić od słońca promieni,\
