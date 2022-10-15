@@ -1,3 +1,4 @@
+Stanęła wojna; cesarz już po całym świecie\
 Ogłasza ją, sejm walny w Warszawie zwołany,\
 I skonfederowane mazowieckie stany\
 Wyrzekną uroczyście przyłączenie Litwy.
