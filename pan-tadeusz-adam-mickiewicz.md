@@ -1,3 +1,4 @@
+Nie zmienia jej talerzów, nie nalewa szklanki,\
 I panien nie zabawia przez rozmowy grzeczne,\
 Z których by wychowanie poznano stołeczne;\
 To jedno puste miejsce nęci go i mami,\
