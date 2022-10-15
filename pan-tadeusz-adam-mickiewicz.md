@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Więc kułak przycisnąwszy na schylonym czole,\
 Biegł ku łąkom, gdzie stawy błyszczały się w dole,\
 I stanął nad błotnistym; w zielonawe tonie\
