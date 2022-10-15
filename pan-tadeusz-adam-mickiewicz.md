@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Lecz Prusak śmiał podjąć się Sędziego obrony,\
 I wołał z wzniesionymi ku szlachcie ramiony:\
 «Panowie Bracia! aj! aj! a na boskie rany!\
 Co znowu? Panie Klucznik, czy waść opętany?\
