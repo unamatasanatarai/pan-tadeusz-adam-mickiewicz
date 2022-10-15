@@ -1,3 +1,4 @@
+Ale od bitwy, w której dziedzic zamku zginął,\
 Gerwazy się odmienił i już od lat wielu\
 Ani był na kiermaszu, ani na weselu;\
 Odtąd jego dowcipnych żartów nie słyszano,\
