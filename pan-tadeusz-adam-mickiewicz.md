@@ -1,3 +1,4 @@
+I pani, i panienka, i nadworne panny:\
 Trzech było strzelców, a szedł ogień nieustanny.\
 Grad kul sypały z dołu moskiewskie piechury;\
 My z rzadka, ale celniej dogrzewali z góry.\
