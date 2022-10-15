@@ -1,3 +1,4 @@
+Chłopcowi każda piękność zda się rówiennicą,\
 A niewinnemu każda kochanka dziewicą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, chociaż liczył lat blisko dwadzieście,\
