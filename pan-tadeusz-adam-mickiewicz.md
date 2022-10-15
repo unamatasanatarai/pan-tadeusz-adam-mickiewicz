@@ -1,3 +1,4 @@
+Że ten czarny niech będzie Horeszko, a drugi\
 Soplica; więc ilekroć szary był na górze\
 Krzyczą: »Wiwat Soplica, pfe Horeszki tchórze!«\
 A gdy spadał, wołali: »Popraw się Soplica,\
