@@ -1,3 +1,4 @@
+Niż tu syn ojca; po psie płaczą szczerze\
 I dłużej niż tu lud po bohaterze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I przyjaciele wtenczas pomogli rozmowie.\
