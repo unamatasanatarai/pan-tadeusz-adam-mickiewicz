@@ -1,3 +1,4 @@
+Że nie wierzono rzeczom najdawniejszym w świecie,\
 Jeśli ich nie czytano w francuskiej gazecie.\
 Podczaszyc, mimo równość, wziął tytuł markiża;\
 Wiadomo, że tytuły przychodzą z Paryża,\
