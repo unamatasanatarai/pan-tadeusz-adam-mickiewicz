@@ -1,3 +1,4 @@
+I jako róży pączek cała się spłoniła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W istocie był to piękny pan: słusznej urody,\
 Twarz miał pociągłą, blade lecz świeże jagody,\
