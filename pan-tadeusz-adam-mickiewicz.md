@@ -1,3 +1,4 @@
+I kredens doń (jak mówi) zaintromitował.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem;\
 Podkomorzy najwyższe brał miejsce za stołem:\
