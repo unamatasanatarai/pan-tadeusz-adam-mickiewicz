@@ -1,3 +1,4 @@
+Pewnie po same wąsy hultaj w piekle siedzi.\
 Chwała księdzu! dwom ludziom on życie ocalił —\
 Może i trzem: Gerwazy nie będzie się chwalił,\
 Ale gdyby ostatnie z krwi Horeszków dziecię\
