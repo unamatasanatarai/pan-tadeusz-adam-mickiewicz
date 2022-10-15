@@ -1,3 +1,4 @@
+«Ja niegdyś darowane od księcia Sanguszki\
 Stawiłem w zakład moje prześliczne obróżki\
 Jaszczurem wykładane z kolcami ze złota,\
 I utkaną z jedwabiu smycz, której robota\
