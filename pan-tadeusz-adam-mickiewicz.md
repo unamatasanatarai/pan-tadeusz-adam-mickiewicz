@@ -1,3 +1,4 @@
+Z tyłu za nim wiatr leci i deszcz znowu suszy,\
 Za wiatrem znowu obłok nadbiega wilgotny:\
 I tak dzień na przemiany był chłodny i słotny.
 
