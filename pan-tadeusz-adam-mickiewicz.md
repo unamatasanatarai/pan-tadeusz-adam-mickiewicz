@@ -1,3 +1,4 @@
+Ruszyli tłumnie, zbrojnie, drogą do Dobrzyna.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Słynie szeroko w Litwie Dobrzyński zaścianek\
 Męstwem swoich szlachciców, pięknością szlachcianek.\
