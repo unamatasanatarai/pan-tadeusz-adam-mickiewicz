@@ -1,3 +1,4 @@
+Rady rzadko udzielał i nie lada komu;\
 Ledwie w niezmiernie ważnych sporach lub umowach\
 Pytany, wyrzekł zdanie i w niewielu słowach.\
 Myślano, że dzisiejszej podejmie się sprawy\
