@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Kropiciel wolny, oczy obraca dokoła,\
 Ręce wyciąga, broni szuka, broni woła;\
 Tymczasem grzmi pięściami, stojąc; mocno w kroku,\
