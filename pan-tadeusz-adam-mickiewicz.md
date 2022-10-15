@@ -1,3 +1,4 @@
+I że spotkaniu z źwierzem Tadeusz przeszkodził;\
 Tadeusz utrzymywał, że będąc silniejszy\
 I do robienia ciężkim oszczepem zręczniejszy,\
 Chciał wyręczyć Hrabiego: tak sobie niekiedy\
