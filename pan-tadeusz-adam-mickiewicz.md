@@ -1,3 +1,4 @@
+Wtenczas na klęczkach drogą powitam Zosienkę\
 I jeśli będzie wolna, poproszę o rękę.\
 Teraz porzucam Litwę może na czas długi,\
 Może Zosi tymczasem podobać się drugi;\
