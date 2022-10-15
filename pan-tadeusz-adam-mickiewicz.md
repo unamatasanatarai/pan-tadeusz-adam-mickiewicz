@@ -1,3 +1,4 @@
+A lewą zakrwawioną źwierz na pola niesie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kropiciel wolny, oczy obraca dokoła,\
 Ręce wyciąga, broni szuka, broni woła;\
