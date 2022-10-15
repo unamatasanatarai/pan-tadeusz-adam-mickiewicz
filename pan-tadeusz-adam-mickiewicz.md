@@ -1,3 +1,4 @@
+On wyrabiał u króla dla was chleb łaskawy,\
 Dzieci wasze kopami pomieszczał w konwikcie\
 Pijarskim, na swym koszcie, odzieży i wikcie;\
 Dorosłych promowował także swym nakładem:\
