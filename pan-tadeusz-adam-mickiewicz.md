@@ -1,3 +1,4 @@
+Miła uchu myśliwców jak druga obława.\
 Wiem, wiem, o co wam idzie. Ta czarnych trosk chmura\
 Pono z Robakowego wzniosła się kaptura!\
 Wstydzicie się swych pudeł! Niech was wstyd nie pali:\
