@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Mrok gęstniał. Tylko w gaju i około rzeczki\
 W łozach, błyskały wilcze oczy jako świeczki;\
 A dalej, u ścieśnionych widnokręgu brzegów,\
