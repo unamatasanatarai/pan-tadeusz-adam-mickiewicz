@@ -1,3 +1,4 @@
+Zawołało: «Niech żyje Kurek na kościele!»\
 Ciżba tłoczy się w salę, a Maciej na czele.\
 Sędzia gościa za rękę do stołu prowadził\
 I wysoko pomiędzy wodzami posadził,\
