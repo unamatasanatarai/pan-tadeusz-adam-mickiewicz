@@ -1,3 +1,4 @@
+Robaka, który przybył z tamtej strony Wisły,\
 Przyjaciel brata, wszystkie wie jego zamysły;\
 A więc o Tadeusza już wyrzekli losie,\
 I chcą, by się ożenił, aby pojął Zosię,\
