@@ -1,3 +1,4 @@
+Kochać i być szczęśliwym!» — «Mych przeznaczeń władza —\
 Rzekł Hrabia — ciemność przeczuć, które ruchem tajnym\
 Rwą się ku stronom obcym, dziełom nadzwyczajnym.\
 Wyznaję, że dziś chciałem na cześć Telimenie\
