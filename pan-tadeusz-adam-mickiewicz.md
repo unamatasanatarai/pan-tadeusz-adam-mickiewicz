@@ -1,3 +1,4 @@
+I tak kręcąc się, skacząc, na Maćka naciera.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ocenił przeciwnika zręczność Maciek stary\
 I lewą ręką włożył na nos okulary,\
