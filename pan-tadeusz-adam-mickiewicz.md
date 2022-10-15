@@ -1,3 +1,4 @@
+A szkół rysunek widny w karczmach i stodołach.\
 Dach z dranic i ze słomy, spiczasty, zadarty,\
 Pogięty jako kołpak żydowski podarty.\
 Ze szczytu wytryskują krużganku krawędzie,\
