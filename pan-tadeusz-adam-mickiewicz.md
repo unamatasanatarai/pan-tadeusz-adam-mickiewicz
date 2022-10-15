@@ -1,3 +1,4 @@
+Człowieka, który, równie miłośnik widoków,\
 Z głową zadartą, ręce włożywszy w kieszenie,\
 Zdawało się, że liczył oczyma kamienie.\
 Poznał go zaraz, ale musiał kilka razy\
