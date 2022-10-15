@@ -1,3 +1,4 @@
+Stąd to Lachy z Rusami w sporach nieskończonych,\
 Idąc z Lecha i Rusa, dwu braci rodzonych;\
 Stąd się tyle procesów litewskich ciągnęło\
 Długo z księżmi Krzyżaki, aż wygrał Jagiełło;\
