@@ -1,3 +1,4 @@
+A tymczasem ostrożnie całą rzecz prowadzić,\
 Aby Moskalom naszych zamiarów nie zdradzić».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«He! czekać? szczekać? zwlekać?» przerwał Maciej drugi\
