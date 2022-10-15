@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Zerwał się i widzenie zaraz uleciało\
 Przestraszone łoskotem; czekał, nie wracało!\
 Tylko usłyszał znowu trzykrotne stukanie\
 I słowa: «Niech pan wstaje, czas na polowanie.\
