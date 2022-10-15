@@ -1,3 +1,4 @@
+I po ciemnozielonym, świeżym, wonnym sianie,\
 Z którego młodzież sobie zrobiła posłanie,\
 Rozpływały się złote, migające pręgi\
 Z otworu czarnej strzechy jak z warkocza wstęgi;\
