@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Telimena skoczywszy padła mu na szyję:\
 «Tegom się spodziewała! Kochasz mnie, więc żyję!\
 Bo dzisiaj miałam dni me własną ręką skrócić;\
 Gdy mnie kochasz mój drogi, czyż możesz mnie rzucić?\
