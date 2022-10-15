@@ -1,3 +1,4 @@
+I szpaków, stada jasnych kit i chorągiewek\
 Zajaśniały na wzgórkach, spadają na błonie:\
 Konnica! Dziwne stroje, niewidziane bronie!\
 Pułk za pułkiem; a środkiem, jak stopione śniegi,\
