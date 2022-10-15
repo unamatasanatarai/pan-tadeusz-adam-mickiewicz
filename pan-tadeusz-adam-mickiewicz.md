@@ -1,3 +1,4 @@
+Choć kropidła nie noszę, drągiem od wiciny\
 Sprawiłem raz Prusakom czterem dobre chrzciny,\
 Którzy mię po pjanemu chcieli w Preglu topić».\
 «Toś zuch Bartku — rzekł Chrzciciel — dobrze! kropić, kropić!»\
