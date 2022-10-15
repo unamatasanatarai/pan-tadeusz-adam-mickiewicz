@@ -1,3 +1,4 @@
+Gest ich sztucznie wydany, farby osobliwe,\
 Tylko głosu im braknie, zresztą gdyby żywe.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Cóż przedstawiają? goście pytali ciekawi.\
