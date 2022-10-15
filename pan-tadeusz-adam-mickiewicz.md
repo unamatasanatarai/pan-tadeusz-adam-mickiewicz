@@ -1,3 +1,4 @@
+Wre szlachta. Tamci piją, ci Hrabiemu życzą\
 Lat setnych, wszyscy: «Hejże na Soplicę!» krzyczą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jankiel wymknął się milczkiem, oklep. Prusak, równie\
