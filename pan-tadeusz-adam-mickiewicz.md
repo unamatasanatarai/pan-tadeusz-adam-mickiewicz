@@ -1,3 +1,4 @@
+Buhaj racicą ziemię kopie, orze rogiem,\
 I całą trzodę straszy ryczeniem złowrogiem;\
 Krowa coraz ku niebu wznosi wielkie oko,\
 Usta z dziwu otwiera i wzdycha głęboko;\
