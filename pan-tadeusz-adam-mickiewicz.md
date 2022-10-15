@@ -1,3 +1,4 @@
+Tylko że stryj i ciotka do tego cię skłania?\
 Ale małżeństwo, Zosiu, jest rzecz wielkiej wagi!\
 Radź się serca własnego; niczyjej powagi\
 Tu nie słuchaj, ni stryja gróźb, ni namów cioci.\
