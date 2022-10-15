@@ -1,3 +1,4 @@
+Intromisyją Hrabi do zamku, do dworu\
 Sopliców, do wsi, gruntów zasianych, ugoru,\
 Słowem, cum gais, boris et graniciebus,\
 Kmetonibus, scultetis, et omnibus rebus\
