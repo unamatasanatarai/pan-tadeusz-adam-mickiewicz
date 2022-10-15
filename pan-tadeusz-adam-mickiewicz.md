@@ -1,3 +1,4 @@
+Mój panie, na zajazdach nie znacie się wcale!\
 Wąsalów, co innego: zdadzą się wąsale;\
 Nie we włości ich szukać, ale po zaściankach,\
 W Dobrzynie, w Rzezikowie, w Ciętyczach, w Rąbankach,\
