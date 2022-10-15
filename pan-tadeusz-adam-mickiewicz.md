@@ -1,3 +1,4 @@
+Po cóż o tym wspominać? Dziś darmo pan Hrabia,\
 Sąsiad wasz, sprawę toczy, dekrety wyrabia:\
 Już nikt z was pomóc nie chce biednemu sierocie!\
 Dziedzic Stolnika tego, który żywił krocie,\
