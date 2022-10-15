@@ -1,3 +1,4 @@
+Co by siał infamiją na obywatela;\
 A że teraz jest równość, więc artykuł trzeci\
 Obowiązuje równie i mieszczan, i kmieci.\
 Ten wyrok marszałkowski pan pisarz umieści,\
