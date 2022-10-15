@@ -1,3 +1,4 @@
+Bo dom o tysiąc kroków widny jak na dłoni,\
 A Hrabia drogi pyta? Ale Hrabia do niéj\
 Chciał koniecznie coś mówić i szukał powodu\
 Rozmowy: «Panna mieszka tu? blisko ogrodu?\
