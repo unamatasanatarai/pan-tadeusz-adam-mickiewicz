@@ -1,3 +1,4 @@
+Ledwo słów kilka wyrzekł, do Podkomorzanki;\
 Nie zmienia jej talerzów, nie nalewa szklanki,\
 I panien nie zabawia przez rozmowy grzeczne,\
 Z których by wychowanie poznano stołeczne;\
