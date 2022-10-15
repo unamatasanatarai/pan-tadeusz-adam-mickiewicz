@@ -1,3 +1,4 @@
+Co przede mną największe pany niegdyś drżały,\
 Com nie żył dnia bez bitki, co, nie Stolnikowi,\
 Ale bym się pokrzywdzić nie dał i królowi,\
 Co we wściekłość najmniejsza wprawiała mnie sprzeczka:\
