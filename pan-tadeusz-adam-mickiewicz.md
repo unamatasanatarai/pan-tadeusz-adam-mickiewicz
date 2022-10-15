@@ -1,3 +1,4 @@
+Na koniec rzekł, spojrzawszy bystro na Klucznika:\
 «Wielki grzech bezbronnego zabić niewolnika!\
 Chrystus zabrania mścić się nawet i nad wrogiem!\
 Oj Kluczniku! odpowiesz ty ciężko przed Bogiem.\
