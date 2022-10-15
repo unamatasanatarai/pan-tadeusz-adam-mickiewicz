@@ -1,3 +1,4 @@
+I drugiej bryki furman równie był poznany:\
 Stary Maciek-Rózeczka, za chłopa przebrany.\
 Szlachta zaczęła krzyczeć, skoro się pokazał,\
 On rzekł: «Głupi!» ... i ręką milczenie nakazał.\
