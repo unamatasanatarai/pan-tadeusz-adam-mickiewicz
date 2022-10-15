@@ -1,3 +1,4 @@
+Nim przyjdzie do zabójstwa, naprzód się przywitać).\
 Już spotkały się szpady i zaczęły zgrzytać;\
 Rycerze wznosząc nogi, prawymi kolany\
 Przyklękają, w przód i w tył skacząc na przemiany.
