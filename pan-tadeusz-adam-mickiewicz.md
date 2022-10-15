@@ -1,3 +1,4 @@
+Słychać, że tam w stolicy między zwierzętami\
 Dobre są obyczaje, bo rządzą się sami;\
 Jeszcze cywilizacją ludzką nie popsuci,\
 Nie znają praw własności, która świat nasz kłóci,\
