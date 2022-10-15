@@ -1,3 +1,4 @@
+Do swojej tabakiery; częstował, kichali,\
 Życzyli sobie zdrowia, on rzecz ciągnął daléj:\
 «Gdy cesarz Napoleon w potyczce zażywa\
 Raz po raz, to znak pewny, że bitwę wygrywa.\
