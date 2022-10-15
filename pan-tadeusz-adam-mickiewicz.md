@@ -1,3 +1,4 @@
+Tace ogromne, w kwiaty ślicznie malowane,\
 Na nich kurzące wonnie imbryki blaszane\
 I z porcelany saskiej złote filiżanki;\
 Przy każdej garnuszeczek mały do śmietanki.\
