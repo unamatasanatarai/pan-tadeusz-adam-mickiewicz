@@ -1,3 +1,4 @@
+Obróć czułe spojrzenie na kolor kochanki\
 (Tu, wstążkę oderwawszy od sukni, zrobiła\
 Kokardę i na piersiach Hrabi przyszpiliła).\
 Niech cię ten kolor wiedzie na działa ogniste,\
