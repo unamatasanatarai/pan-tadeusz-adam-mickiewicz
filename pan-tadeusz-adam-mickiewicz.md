@@ -1,3 +1,4 @@
+Chrząsnęła broń, a była już dawno nabita;\
 Krzyknął: «Cel!» — rury rzędem zabłysnęły długim;\
 Krzyknął: «Ognia koleją!» — grzmią jeden po drugim.\
 Ten strzela, ten nabija, ten chwyta do ręki,\
