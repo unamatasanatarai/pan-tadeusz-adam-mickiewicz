@@ -1,3 +1,4 @@
+Są także w pułku strzelców dwa grenadyjery\
 Dobrzyńscy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Ale, ale: o ich naczelniku —\
