@@ -1,3 +1,4 @@
+Sam przyznałem się: muszę dla ulgi sumienia\
 Pozyskać, a przynajmniej prosić przebaczenia:\
 Posłuchaj mej spowiedzi; potem zrobisz sobie\
 Ze mną, co zechcesz». I tu złożył ręce obie\
