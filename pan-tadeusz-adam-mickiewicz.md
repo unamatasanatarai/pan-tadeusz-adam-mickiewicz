@@ -1,3 +1,4 @@
+Tenże sam markiż przybrał tytuł demokraty;\
 Wreszcie z odmienną modą, pod Napoleonem,\
 Demokrata przyjechał z Paryża baronem;\
 Gdyby żył dłużej, może nową alternatą,\
