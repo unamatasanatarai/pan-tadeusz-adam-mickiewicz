@@ -1,3 +1,4 @@
+Dziewczyna rzekła: «Tędy droga jegomości;\
 Tylko grząd psuć nie trzeba. Tam, między murawą\
 Ścieżka». — «W lewo — zapytał Hrabia — czy na prawo?»\
 Ogrodniczka, podniósłszy błękitne oczęta,\
