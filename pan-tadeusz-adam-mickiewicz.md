@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie wtenczas myśliwi smycze zatrzymali,\
 I wszyscy nieruchomi w miejscach swoich stali;\
 Jeden drugiemu ręką dawał znak milczenia,\
