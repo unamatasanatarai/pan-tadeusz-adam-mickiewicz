@@ -1,3 +1,4 @@
+Hrabia i Ryków idą, obróceni bokiem,\
 Prawą ręką i prawym grożąc sobie okiem;\
 Wtem lewymi rękami odkrywają głowy\
 I kłaniają się grzecznie (zwyczaj honorowy,\
