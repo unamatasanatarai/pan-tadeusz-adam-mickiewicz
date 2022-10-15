@@ -1,3 +1,4 @@
+Podróżny stanął w jednym z okien — nowe dziwo:\
 W sadzie, na brzegu niegdyś zarosłym pokrzywą,\
 Był maleńki ogródek ścieżkami porznięty,\
 Pełen bukietów trawy angielskiej i mięty.\
