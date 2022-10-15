@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A dawniej był obronny! Pełno wszędzie śladów,\
 Że wielkich i że częstych doznawał napadów.\
 Pod bramą dotąd w trawie, jak dziecięca głowa,\
 Wielka leżała kula żelazna działowa\
