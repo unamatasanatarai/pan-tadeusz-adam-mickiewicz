@@ -1,3 +1,4 @@
+Ślinę w gębie, a dłonią rękojeść ściskałem,\
 Chcąc plunąć na tę przyjaźń i wnet szabli dostać;\
 Ale Ewa, zważając mój wzrok i mą postać,\
 Zgadywała, nie wiem jak, co się we mnie działo,\
