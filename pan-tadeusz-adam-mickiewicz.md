@@ -1,3 +1,4 @@
+Wieść o życiu, o chwale i o śmierci syna;\
 Brał dom żałobę, ale powiedzieć nie śmiano\
 Po kim była żałoba, tylko zgadywano\
 W okolicy; i tylko cichy smutek panów,\
