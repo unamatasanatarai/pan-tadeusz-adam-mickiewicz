@@ -1,3 +1,4 @@
+Wciąż tę zdradziecką strunę, melodyję zmąca,\
 Coraz głośniej targając akord rozdąsany,\
 Przeciwko zgodzie tonów skonfederowany:\
 Aż Klucznik pojął mistrza, zakrył ręką lica\
