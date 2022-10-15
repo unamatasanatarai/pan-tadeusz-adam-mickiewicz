@@ -1,3 +1,4 @@
+Zwani niegdyś u Sławian Lele i Polele;\
 Teraz ich w zodyjaku gminnym znów przechrzczono:\
 Jeden zowie się *Litwą*, a drugi *Koroną*.
 
