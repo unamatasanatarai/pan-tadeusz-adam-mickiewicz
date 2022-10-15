@@ -1,3 +1,4 @@
+Cmokają z cicha; charty nadstawiły uszy,\
 Wytknęły pyski na wiatr i drżą niecierpliwie,\
 Jak dwie strzały złożone na jednej cięciwie.\
 Wtem Wojski krzyknął: «Wyczha!» Zając smyk zza płotu\
