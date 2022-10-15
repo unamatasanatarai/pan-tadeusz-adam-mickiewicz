@@ -1,3 +1,4 @@
+Ze mną, co zechcesz». I tu złożył ręce obie\
 Jak do pacierza. Klucznik cofnął się zdumiony,\
 Uderzał ręką w czoło i ruszał ramiony.
 
