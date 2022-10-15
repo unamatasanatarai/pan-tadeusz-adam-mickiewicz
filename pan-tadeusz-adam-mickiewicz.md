@@ -1,3 +1,4 @@
+Byle tylko poczciwi i pod mądrych władzą.\
 Hrabia pan, ma u szlachty wielkie zachowanie,\
 Cały powiat ruszy się, jeśli on powstanie;\
 Znając jego majątek, każdy szlachcic powie:\
