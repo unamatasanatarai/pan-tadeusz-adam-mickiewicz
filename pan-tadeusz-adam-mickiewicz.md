@@ -1,3 +1,4 @@
+Mieszkał tuż przy cesarzu, na dworze, jak w raju:\
 A nie uwierzy Hrabia, jak tęsknił po kraju!\
 Lubił ciągle wspominać swej młodości czasy,\
 Wystawiał wszystko w Polszcze: ziemię, niebo, lasy...»
