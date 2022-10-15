@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ale starce miód piją, tabakierką z kory\
 Częstując się nawzajem, toczą rozhowory.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tak, tak, mój Protazeńku» rzekł Klucznik Gerwazy.\
