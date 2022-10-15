@@ -1,3 +1,4 @@
+Nikt z młodzieży nie myślał szukać go po dworze;\
 Każdy sobą zajęty śpieszył, gdzie kazano;\
 O towarzyszu sennym całkiem zapomniano.
 
