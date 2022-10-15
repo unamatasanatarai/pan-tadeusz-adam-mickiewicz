@@ -1,3 +1,4 @@
+I wyliczać z kolei wszystkich drzew rodzaje:\
 Pomarańcze, cyprysy, oliwki, migdały,\
 Kaktusy, aloesy, mahonie, sandały,\
 Cytryny, bluszcz, orzechy włoskie, nawet figi,\
