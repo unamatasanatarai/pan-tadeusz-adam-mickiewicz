@@ -1,3 +1,4 @@
+Ponad wszystkimi z butlą biegała szynkarka.\
 W środku arendarz Jankiel, w długim aż do ziemi\
 Szarafanie, zapiętym haftkami srebrnemi,\
 Rękę jedną za czarny pas jedwabny wsadził,\
