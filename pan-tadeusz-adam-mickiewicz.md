@@ -1,3 +1,4 @@
+Stoi mi przed oczyma jakby malowana!\
 Piłem, nie mogłem zapić pamięci na chwilę,\
 Ani pozbyć się, chociaż przebiegłem ziem tyle!\
 Teraz oto w habicie jestem Bożym sługą,\
