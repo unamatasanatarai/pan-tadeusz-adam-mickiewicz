@@ -1,3 +1,4 @@
+Robak był bliższy; Hrabię ciałem swym zakrywa,\
 Dostał za niego postrzał, spod konia dobywa,\
 Uprowadza; a szlachcie każe się rozstąpić,\
 Lepiej mierzyć, postrzałów nadaremnych skąpić,\
