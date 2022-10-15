@@ -1,3 +1,4 @@
+Stara wedle dawnego zbudowana wzoru,\
 Który był wymyślony od tyryjskich cieśli,\
 A potem go Żydowie po świecie roznieśli:\
 Rodzaj architektury obcym budowniczym\
