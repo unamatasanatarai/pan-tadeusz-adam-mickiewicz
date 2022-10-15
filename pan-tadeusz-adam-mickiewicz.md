@@ -1,3 +1,4 @@
+Sterczały wkoło sarnie i jelenie rogi\
 Z napisami, gdzie, kiedy te łupy zdobyte;\
 Tuż myśliwców herbowne klejnoty wyryte,\
 I stoi wypisany każdy po imieniu;\
