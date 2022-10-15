@@ -1,3 +1,4 @@
+Lud bitny, a od czasów pana Tadeusza\
 Kościuszki, świat takiego nie miał genijusza\
 Wojennego, jak wielki cesarz Bonaparte.\
 Pamiętam, kiedy przeszli Francuzi przez Wartę;\
