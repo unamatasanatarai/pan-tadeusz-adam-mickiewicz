@@ -1,3 +1,4 @@
+Ów głośny niegdyś u nas z tylu pojedynków,\
 Ów, co korki kobietom wystrzelał z patynków,\
 Ów łotr nad łotry, sławny w czasy wiekopomne,\
 Ów Jacek, vulgo Wąsal — nazwiska nie wspomnę...\
