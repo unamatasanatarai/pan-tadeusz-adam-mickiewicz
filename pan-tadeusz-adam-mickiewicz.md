@@ -1,3 +1,4 @@
+Stała, trzymając w ręku podniesione sito;\
 Do nóg jej biegło ptastwo. Stąd kury szurpate\
 Toczą się kłębkiem; stamtąd kogutki czubate,\
 Wstrząsając koralowe na głowach szyszaki\
