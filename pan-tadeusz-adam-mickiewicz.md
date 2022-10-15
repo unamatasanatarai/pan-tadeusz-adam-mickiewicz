@@ -1,3 +1,4 @@
+Prawdziwa bernardynka, pewnie z Kowna rodem,\
 Miasta sławnego w świecie tabaką i miodem.\
 Byłem tam lat już...» — Robak przerwał mu: «Na zdrowie\
 Wszystkim waszmościom, moi mościwi panowie!\
