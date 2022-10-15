@@ -1,3 +1,4 @@
+Och major Płut, on dzisiaj bardzo poswywolił!\
 On odpowie przed carem, bo on miał komendę.\
 Ja, panie Podkomorzy, wasz przyjaciel będę.\
 Ruskie przysłowie mówi: kto się mocno lubi,\
