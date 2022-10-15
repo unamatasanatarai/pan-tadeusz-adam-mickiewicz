@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Oświadczyli, że zaraz wyjeżdżać gotowi;\
 Tylko się to nie zdało panu Buchmanowi.\
 Buchman, człowiek rozsądny, w bitwę się nie wmieszał,\
