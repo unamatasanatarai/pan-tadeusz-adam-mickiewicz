@@ -1,3 +1,4 @@
+Jesteś mężczyzną, znajdziesz kochankę godniejszą\
 Serca twojego, znajdziesz bogatszą, piękniejszą!\
 Tylko dla mej pociechy, niech wiem przed rozstaniem,\
 Że twoja skłonność była prawdziwym kochaniem,\
