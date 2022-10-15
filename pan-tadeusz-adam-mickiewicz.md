@@ -1,3 +1,4 @@
+W politykę jam nigdy bardzo się nie wdawał,\
 Urzędując i orząc mojej ziemi kawał.\
 Lecz jestem szlachcic, rad bym plamę domu zmazać;\
 Jestem Polak, dla kraju rad bym coś dokazać,\
