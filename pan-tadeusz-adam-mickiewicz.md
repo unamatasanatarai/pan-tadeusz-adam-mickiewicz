@@ -1,3 +1,4 @@
+Światło w rowie na drobne drzazgi się roztrąca,\
 Chwyta je i w głąb niesie toń uciekająca,\
 A z góry znów garściami spada blask miesiąca.\
 Myślałbyś, że u stawu siedzi Świtezianka,\
