@@ -1,3 +1,4 @@
+Jako promień słoneczny, wykradłszy się z chmurki,\
 Kiedy śród roli padnie na krzemienia skibę\
 Lub śród zielonej łąki w drobną wody szybę.
 
