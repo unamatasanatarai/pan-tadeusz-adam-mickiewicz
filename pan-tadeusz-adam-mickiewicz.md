@@ -1,3 +1,4 @@
+Ten kaptur mnisi — znają i Wielkopolanie!\
 Pracowałem przy taczkach rok w pruskiej fortecy;\
 Trzy razy Moskwa kijmi zraniła me plecy,\
 Raz już wiedli na Sybir; potem Austryjacy,\
