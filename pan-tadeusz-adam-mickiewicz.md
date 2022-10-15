@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż zdała się szukać samotności, ciszy.\
 Oddalała się z wolna od swych towarzyszy,\
 I szła lasem na wzgórek pochyło wyniosły,\
