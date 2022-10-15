@@ -1,3 +1,4 @@
+Tadeusz stanął w kącie, wsparł się na kominku,\
 Nic nie mówiąc — szerokie, obłędne źrenice\
 Obracał to na ciotkę, to na siostrzenicę.\
 Dostrzegła Telimena, iż pierwsze spojrzenie\
