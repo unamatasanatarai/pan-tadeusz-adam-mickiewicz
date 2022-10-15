@@ -1,3 +1,4 @@
+Zniknął z oczu. Słyszano, jak w kapustę buchnął;\
 Widziano, po konopiach ciemnych jego biała\
 Konfederatka niby gołąb przeleciała.\
 Konewka strzelił w czapkę, ale chybił celu;\
