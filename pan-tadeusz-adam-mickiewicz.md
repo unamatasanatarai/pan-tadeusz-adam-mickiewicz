@@ -1,3 +1,4 @@
+Niby dusza czyscowa; z podziemu, przez dziury,\
 Wyskakiwały na kształt potępieńców szczury:\
 Gryzą, piją; czasami w kącie zapomniana,\
 Puknie na toast duchom butelka szampana.
