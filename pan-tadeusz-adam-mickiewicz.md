@@ -1,3 +1,4 @@
+Zwraca się z dumą w czole i z wyzwaniem w oku,\
 Prosto w tłum; tłum tancerzy nie śmie dostać w kroku,\
 Ustępują mu z drogi, — i zmieniwszy szyki,\
 Puszczają się znów za nim. —
