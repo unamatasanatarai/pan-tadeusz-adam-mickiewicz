@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nakładają sto ognisk, warzą, skwarzą, pieką,\
 Gną się stoły pod mięsem, trunek płynie rzeką;\
 Chce szlachta noc tę przepić, przejeść i prześpiewać.\
 Lecz powoli zaczęli drzemać i poziewać;\
