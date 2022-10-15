@@ -1,3 +1,4 @@
+Myśliwi z tych mów wiele mogliby korzystać,\
 Lecz nie słuchali pilnie. Ci zaczęli świstać,\
 Ci śmiać się w głos, ci, mając niedźwiedzia w pamięci,\
 Gadali o nim, świeżą obławą zajęci.
