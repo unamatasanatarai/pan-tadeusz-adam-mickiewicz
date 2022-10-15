@@ -1,3 +1,4 @@
+A to piękny scyzoryk, istny miecz katowski!»\
 I z zadziwieniem wielki rapier opatrywał\
 I innym oficerom w kolej pokazywał.\
 Próbowali go wszyscy, ale ledwie który\
