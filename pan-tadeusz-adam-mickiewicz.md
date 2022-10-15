@@ -1,3 +1,4 @@
+Zmieści się i palestra, i goście proszeni.\
 Sień wielka jak refektarz, z wypukłym sklepieniem\
 Na filarach, podłoga wysłana kamieniem,\
 Ściany bez żadnych ozdób, ale mur chędogi;\
