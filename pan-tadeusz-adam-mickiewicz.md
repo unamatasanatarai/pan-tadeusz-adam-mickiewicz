@@ -1,3 +1,4 @@
+Ten aksamit traw, będzież to mak i botwinie?\
 W nimfie tej czyż obaczę jaką ochmistrzynię?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Choć Hrabia Telimenę już dawniej widywał\
