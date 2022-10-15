@@ -1,3 +1,4 @@
+Włos litewskiego ludu, biały albo płowy,\
 Pozłacał się jako łan dojrzałego żyta;\
 Gdzieniegdzie kraśna główka dziewicza wykwita,\
 Ubrana w świeże kwiaty albo w pawie oczy\
