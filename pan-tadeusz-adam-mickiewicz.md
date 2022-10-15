@@ -1,3 +1,4 @@
+Zakręcił je nad głową i zaraz ubroczył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Co potem dokazywał, jakie klęski szerzył,\
 Daremnie śpiewać: nikt by muzie nie uwierzył;\
