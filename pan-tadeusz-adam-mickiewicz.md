@@ -1,3 +1,4 @@
+Ogłosił nam, że jacyś Francuzi wymówni\
 Zrobili wynalazek: iż ludzie są równi...\
 Choć o tym dawno w Pańskim pisano Zakonie,\
 I każdy ksiądz toż samo gada na ambonie.\
