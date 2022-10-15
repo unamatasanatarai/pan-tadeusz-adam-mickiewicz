@@ -1,3 +1,4 @@
+W granatowym kontuszu stał przed trybunałem,\
 Jedna ręka na szabli, a druga do stoła,\
 Przywoławszy dwie strony, «Uciszcie się!» woła.\
 Marząc i kończąc pacierz wieczorny, pomału\
