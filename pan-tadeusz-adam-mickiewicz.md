@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A wtem ozwał się Sędzia nalewając czaszę:\
 «Piję zdrowie Robaka, Wojski, w ręce wasze!\
 Jeśli datkiem nie możem kwestarza zbogacić,\
 Postaramy się przecież za proch mu zapłacić:\
