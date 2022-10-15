@@ -1,3 +1,4 @@
+Może rozbroić wroga, miecz wpół drogi wstrzymać;\
 Ale ta broń ognista... dosyć zamek imać,\
 Chwila, jedna iskierka...
 
