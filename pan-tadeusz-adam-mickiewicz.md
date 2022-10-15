@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Uciszyli się wszyscy, ustało strzelanie;\
 Wojska ciekawe patrzą na wodzów spotkanie.\
 Hrabia i Ryków idą, obróceni bokiem,\
 Prawą ręką i prawym grożąc sobie okiem;\
