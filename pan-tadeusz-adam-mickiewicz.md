@@ -1,3 +1,4 @@
+Ich liście i woń służą grzędom za obronę,\
 Bo przez ich liście nie śmie przecisnąć się żmija,\
 A ich woń gąsienice i owad zabija.\
 Dalej maków białawe górują badyle;\
