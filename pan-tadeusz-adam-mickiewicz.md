@@ -1,3 +1,4 @@
+Przechadzają się sobie poważnymi kroki,\
 Czarne oczy kierują na czarne obłoki,\
 Wytknąwszy język z suchej szerokiej gardzieli\
 I skrzydła roztaczając, czekają kąpieli;\
