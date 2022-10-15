@@ -1,3 +1,4 @@
+Po jej kobiercach, na wskroś białych pniów brzozowych,\
 Pod namiotem obwisłych gałęzi majowych,\
 Snuło się mnóstwo kształtów, których dziwne ruchy,\
 Niby tańce, i dziwny ubiór: istne duchy\
