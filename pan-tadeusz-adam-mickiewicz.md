@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Panie Rębajło — rzekł ksiądz — już mię nie zatrwożą\
 Gniewy ludzkie, bo jestem już pod ręką Bożą.\
 Zaklinam cię na imię Tego, co świat zbawił\
 I na krzyżu zabójcom swoim błogosławił,\
