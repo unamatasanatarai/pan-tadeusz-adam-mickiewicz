@@ -1,3 +1,4 @@
+Rozświeci twarz, i znowu okryty całunem\
 Uciekł w niebo i drzwi chmur zatrzasnął piorunem.\
 Znowu wzmaga się burza, ulewa nawalna\
 I ciemność gruba, gęsta, prawie dotykalna.\
