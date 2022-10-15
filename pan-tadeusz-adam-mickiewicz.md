@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Sama spojrzała: Hrabia uśmiechnął się mile,\
 I widocznie był wdzięczny jej za pochwał tyle;\
 Postrzegła się, umilkła, oczy opuściła\
 I jako róży pączek cała się spłoniła.
