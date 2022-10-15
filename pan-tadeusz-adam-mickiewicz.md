@@ -1,3 +1,4 @@
+Wzniesioną trzymał strzelbę, jeszcze dym szedł z rury!\
 Wziąłem go na cel; zbójca stał jak skamieniały!\
 Dwa razy dałem ognia, i oba wystrzały\
 Chybiły: czym ze złości, czy z żalu źle mierzył...\
