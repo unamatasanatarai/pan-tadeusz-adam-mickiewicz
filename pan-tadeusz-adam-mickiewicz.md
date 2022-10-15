@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jenerał wpół śmiejąc się, a na wpół wzruszony:\
 «Kolego — rzekł — jeżeli ustąpisz mnie żony\
 I dziecka, to zostaniesz przez resztę żywota\
