@@ -1,3 +1,4 @@
+Przypomniał, że za pierwszym na miejsce wejrzeniem\
 Odgadnął zaraz, czyim miało być siedzeniem.\
 Rumienił się, serce mu biło nadzwyczajnie:\
 Więc rozwiązane widział swych domysłów tajnie!\
