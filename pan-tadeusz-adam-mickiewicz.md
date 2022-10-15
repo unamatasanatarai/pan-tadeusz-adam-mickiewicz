@@ -1,3 +1,4 @@
+Właśnie mu teraz szlachcic nad uchem zadzwonił;\
 Po dwakroć Wojski machnął, zdziwił się, że chybił,\
 Trzeci raz machnął, tylko co okna nie wybił;\
 Aż mucha, odurzona od tyla łoskotu,\
