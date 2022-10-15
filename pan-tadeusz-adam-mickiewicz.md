@@ -1,3 +1,4 @@
+Zwał je romansowymi; mawiał, że ma głowę\
 Romansową: w istocie był wielkim dziwakiem.\
 Nieraz, pędząc za lisem albo za szarakiem,\
 Nagle stawał i w niebo poglądał żałośnie,\
