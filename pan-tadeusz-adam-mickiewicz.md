@@ -1,3 +1,4 @@
+Nowa by się w powieści zrobiła zawiłość:\
 Tu serce, tam powinność — tu zemsta, tam miłość!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak szepcąc spiął ostrogi; koń leciał do dworu,\
