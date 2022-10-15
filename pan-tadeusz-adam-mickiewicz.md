@@ -1,3 +1,4 @@
+Bądź zdrów, więcej na waszym nie postanę progu\
 Z nami kwita, — zostawmy resztę Panu Bogu».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jacek rękę wyciągnął, — cofnął się Gerwazy,\
