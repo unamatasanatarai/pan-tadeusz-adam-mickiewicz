@@ -1,3 +1,4 @@
+Już serwis, jak planeta koniecznym obrotem,\
 Zmienia porę, już zboża malowane złotem,\
 Nabrawszy ciepła w izbie powoli topnieją,\
 Już trawy pożółkniały, liścia czerwienieją,\
