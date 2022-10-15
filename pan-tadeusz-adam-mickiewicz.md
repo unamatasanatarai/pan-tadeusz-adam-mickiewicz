@@ -1,3 +1,4 @@
+Owóż astronomowie planetę, kometę,\
 Uważają tak jako mieszczanie karetę;\
 Wiedzą, czyli zajeżdża przed króla stolicę,\
 Czyli z rogatek miejskich rusza za granicę;\
