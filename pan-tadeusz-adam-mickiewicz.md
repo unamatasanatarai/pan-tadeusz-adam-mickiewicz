@@ -1,3 +1,4 @@
+Żenić się. Kochajmy się, ale tak — z osobna.\
 Zostać dłużej nie mogę; nie, nie, jechać muszę.\
 Bądź zdrowa, Telimeno moja; jutro ruszę».
 
