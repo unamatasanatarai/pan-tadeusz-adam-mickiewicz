@@ -1,3 +1,4 @@
+Świeciły się, jak gdyby od zielonej blachy,\
 Od mchu i trawy, która buja jak na łące.\
 Po strzechach gumien niby ogrody wiszące\
 Różnych roślin, pokrzywa i krokos czerwony,\
