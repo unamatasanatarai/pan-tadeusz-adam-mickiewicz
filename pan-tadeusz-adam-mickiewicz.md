@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Słyszy wewnątrz szlochanie. Nie trącając klamek,\
 Ostrożnie dziurką klucza zagląda przez zamek:\
 Widzi rzecz dziwną! Sędzia i Robak na ziemi\
