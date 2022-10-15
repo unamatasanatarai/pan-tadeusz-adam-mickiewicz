@@ -1,3 +1,4 @@
+Że ją tak zostawiono, w ubraniu prostaczem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Spódniczkę miała długą, białą; suknię krótką\
 Z zielonego kamlotu z różową obwódką;\
