@@ -1,3 +1,4 @@
+Dziewczyna, uprzejmością Hrabiego ujęta,\
 Zrazu rumieniła się, spuściwszy oczęta,\
 Potem śmiać się zaczęli, w końcu rozmawiali\
 O jakimś niespodzianym w ogrodzie spotkaniu,\
