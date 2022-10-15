@@ -1,3 +1,4 @@
+Na jagodach miał kręgi dziwnego rumieńca,\
 We wzroku ducha pełnym błyszczał żar młodzieńca,\
 Aż gdy na Dąbrowskiego starzec oczy zwrócił,\
 Zakrył rękami, spod rąk łez potok się rzucił:\
