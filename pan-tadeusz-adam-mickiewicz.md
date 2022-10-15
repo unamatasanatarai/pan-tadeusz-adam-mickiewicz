@@ -1,3 +1,4 @@
+I przystawić je tutaj konno dla pośpiechu».\
 «Wańka! — krzyknął na chłopca Asesor po rusku —\
 Tasak mój sanguszkowski pociągnąć na brusku:\
 Wiesz, tasak co od księcia miałem w podarunku;\
