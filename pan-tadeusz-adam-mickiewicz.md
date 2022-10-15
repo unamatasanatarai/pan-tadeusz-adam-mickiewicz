@@ -1,3 +1,4 @@
+I jak pan wie, oddano władaniu Soplicy.\
 Nie tylko tę część, wszystko zabrać im należy,\
 Za koszta procesowe, za karę grabieży.\
 Mówiłem panu zawsze: procesów zaniechać;\
