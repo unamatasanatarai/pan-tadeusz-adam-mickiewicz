@@ -1,3 +1,4 @@
+Na przykład pod Austerlitz: Francuzi tak stali\
 Z armatami, a na nich biegła ćma Moskali.\
 Cesarz patrzył i milczał. Co Francuzi strzelą,\
 To Moskale pułkami jak trawa się ścielą:\
