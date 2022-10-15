@@ -1,3 +1,4 @@
+Prześladując w ojczyźnie Boga, przodków wiarę,\
 Prawa i obyczaje, nawet suknie stare.\
 Żałośnie było widzieć wyżółkłych młokosów,\
 Gadających przez nosy, a często bez nosów,\
