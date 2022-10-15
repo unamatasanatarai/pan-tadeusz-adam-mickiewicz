@@ -1,3 +1,4 @@
+Że w pół godziny zjedli dwadzieścia trzy zrazy\
 I wychylili ponczu ogromne pół wazy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc Major syt i wesół w krześle się rozwalił,\
