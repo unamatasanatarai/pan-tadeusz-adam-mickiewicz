@@ -1,3 +1,4 @@
+A jegrów rozbrojonych prowadzić w niewolę.\
 Długo szukano Płuta. On, w krzaku pokrzywy\
 Zarywszy się głęboko, leżał jak nieżywy;\
 Wyszedł wreszcie ujrzawszy, że było po bitwie.\
