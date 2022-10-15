@@ -1,3 +1,4 @@
+Słowa jej podsłuchiwa i drugim powtarza;\
 A kiedy wejdzie w modę raz młoda osoba,\
 Każdy ją chwalić musi, choć i nie podoba.\
 Znaleźć się, spodziewam się, że umiesz: w stolicy\
