@@ -1,3 +1,4 @@
+Szeroko otworzonych, jak zwykle wejrzenie,\
 Kiedy z jasności dziennej przedziera się w cienie.\
 Ujrzał i małą rączkę, niby wachlarz z boku\
 Nadstawioną ku słońcu dla ochrony wzroku;\
