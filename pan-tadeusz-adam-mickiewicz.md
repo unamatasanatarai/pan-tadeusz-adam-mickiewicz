@@ -1,3 +1,4 @@
+Ogon też znacznie chartom pomaga do pędu:\
 A pan kusość uważasz za dowód dobroci?\
 Zresztą zdać się możemy na sąd pańskiej cioci.\
 Choć pani Telimena mieszkała w stolicy\
