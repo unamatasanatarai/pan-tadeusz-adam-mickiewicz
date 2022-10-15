@@ -1,3 +1,4 @@
+I Gerwazy do gumna na ich karkach wjechał,\
 Zniknął w ciemności, ale bitwy nie zaniechał:\
 Bo przeze drzwi jęk słychać, wrzask i gęste razy.\
 Wkrótce ucichło wszystko. Wyszedł sam Gerwazy\
