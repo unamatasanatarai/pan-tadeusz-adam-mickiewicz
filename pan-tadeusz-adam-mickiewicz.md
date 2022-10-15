@@ -1,3 +1,4 @@
+Hrabia go ucałował i na pierś przyszpilał;\
 Tadeusz z drugiej strony krzak ziela rozchylał,\
 Widząc, że się ku niemu tym zielem przewija\
 Coś białego: była to rączka jak lilija;\
