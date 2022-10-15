@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Oto na prawo widać liczne szlachty grono:\
 Pewnie ich przed sejmikiem na ucztę sproszono.\
 Czeka nakryty stolik; nikt gości nie sadza,\
 Stoją kupkami, każda kupka się naradza.\
