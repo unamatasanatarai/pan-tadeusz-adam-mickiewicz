@@ -1,3 +1,4 @@
+Ot gałki! — krzyknął — w Sędzię gałkami wszystkimi!»\
 «Do was — wołał Skołuba — do was się łączymy!»\
 «Gdzie wy — krzyknęła szlachta — gdzie wy, to tam i my!\
 Niech żyją Horeszkowie! wiwant Półkozice!\
