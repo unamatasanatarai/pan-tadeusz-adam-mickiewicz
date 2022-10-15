@@ -1,3 +1,4 @@
+(Widać było, że słuchał rozmowy niechętnie)\
 «Mnie polityka nudzi; jeżeli z Warszawy\
 Mam list, to rzecz zakonna, to są nasze sprawy\
 Bernardyńskie: cóż o tym gadać u wieczerzy;\
