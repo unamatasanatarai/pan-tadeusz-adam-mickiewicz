@@ -1,3 +1,4 @@
+Orłowski, który życie strawił w Peterburku,\
 Sławny malarz (mam jego kilka szkiców w biurku)\
 Mieszkał tuż przy cesarzu, na dworze, jak w raju:\
 A nie uwierzy Hrabia, jak tęsknił po kraju!\
