@@ -1,3 +1,4 @@
+«Z Częstochowy? — rzekł Wilbik. — Byłem tam w spowiedzi,\
 Kiedym na odpust chodził lat temu trzydzieście.\
 Czy to prawda, że Francuz gości teraz w mieście,\
 Że chce kościół rozwalać i skarbiec zabierze:\
