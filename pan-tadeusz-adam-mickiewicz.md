@@ -1,3 +1,4 @@
+A wszyscy obrócili oczy do kamienia,\
 Nad którym stał pan Sędzia. On zwierza obaczył\
 I rąk skinieniem swoje rozkazy tłumaczył.\
 Pojęli wszyscy: stoją, a środkiem po roli\
