@@ -1,3 +1,4 @@
+Od czasu jako mury zamku podźwigniono,\
 Który uraczał hojnie tylu szlachty bratów,\
 Tyle wesołych słyszał i odbił wiwatów,\
 Nie pamiętano takiej posępnej wieczerzy;\
