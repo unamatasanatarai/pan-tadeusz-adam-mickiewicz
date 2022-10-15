@@ -1,3 +1,4 @@
+Pisnął Brzytewka — «Więc go kropić!» dodał Chrzciciel;\
 «Jeśli zdrajca — rzekł Buchman — więc na szubienicę!»\
 «Hejże! — krzyknęli wszyscy — hejże na Soplicę!»
 
