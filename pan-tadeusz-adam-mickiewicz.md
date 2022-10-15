@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;I w lasach cisza. Ptaszek zbudzony nie śpiewa;\
 Otrząsnął pierze z rosy, tuli się do drzewa,\
 Głowę wciska w ramiona, oczy znowu mruży\
