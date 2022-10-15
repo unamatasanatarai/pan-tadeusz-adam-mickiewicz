@@ -1,3 +1,4 @@
+Wyrwawszy się Bóg wie skąd, jak Filip z konopi,\
 Przepisał wszystkich strzelców powiatu? O wstydzie!\
 Cóż o tym będą gadać w Oszmianie i Lidzie,\
 Które od wieków walczą z tutejszym powiatem\
