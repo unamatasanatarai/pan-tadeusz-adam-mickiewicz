@@ -1,3 +1,4 @@
+Znowu wzmaga się burza, ulewa nawalna\
 I ciemność gruba, gęsta, prawie dotykalna.\
 Znowu deszcz ciszej szumi, grom na chwilę uśnie;\
 Znowu wzbudzi się, ryknie i znów wodą chluśnie.\
