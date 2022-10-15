@@ -1,3 +1,4 @@
+Czyż wypada?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Załamał ręce ksiądz zdziwiony.\
 Wlepiwszy oczy w Sędzię, ruszywszy ramiony,\
