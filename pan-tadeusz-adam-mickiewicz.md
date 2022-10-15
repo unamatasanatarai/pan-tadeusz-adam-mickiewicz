@@ -1,3 +1,4 @@
+Lecz na wzmiankę Warszawy, rzekł podniósłszy głowę:\
 «Pan Podkomorzy! Oj wy! Pan zawsze ciekawy\
 O Bonaparta, zawsze wam tam do Warszawy!\
 He! Ojczyzna! Ja nie szpieg, a po polsku umiem, —\
