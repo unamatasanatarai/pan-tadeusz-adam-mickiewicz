@@ -1,3 +1,4 @@
+Okazały budową, poważny ogromem,\
 Dziedzictwo starożytnej rodziny Horeszków;\
 Dziedzic zginął był w czasie krajowych zamieszków.\
 Dobra całe zniszczone sekwestrami rządu,\
