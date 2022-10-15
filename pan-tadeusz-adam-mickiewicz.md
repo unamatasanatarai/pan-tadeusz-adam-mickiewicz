@@ -1,3 +1,4 @@
+Niech żyje nasz marszałek, Maciek nad Maćkami!\
 Hej do laski!» Dobrzyńscy krzyczą: «Zapraszamy!»\
 A obca szlachta woła w głos: «Nie pozwalamy!»\
 Rozstrycha się tłum na dwie kupy rozdzielony,\
