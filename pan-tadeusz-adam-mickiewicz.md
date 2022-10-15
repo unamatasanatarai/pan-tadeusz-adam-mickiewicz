@@ -1,3 +1,4 @@
+Swój szturmak faworytny i z nim kul sakiewkę:\
 Nie chciał bić się; powiadał, że sobie nie ufa\
 Na czczo. Szedł więc, gdzie stała spirytusu kufa:\
 Ręką jak łyżką strumień do ust sobie chylił.\
