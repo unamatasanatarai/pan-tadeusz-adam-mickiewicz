@@ -1,3 +1,4 @@
+Gerwazy, groźny ręką, językiem Protazy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazego nie było; ruszył na obławę,\
 Nie chcąc, aby tak ważną i trudną wyprawę\
