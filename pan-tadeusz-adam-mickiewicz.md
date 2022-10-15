@@ -1,3 +1,4 @@
+Przecież zwinął się i tak sprężyście podskoczył,\
 Że padł na piersi sennych, po głowach się toczył,\
 Miotał się jako szczupak, gdy się w piasku rzuca,\
 A ryczał jako niedźwiedź, bo miał silne płuca.\
