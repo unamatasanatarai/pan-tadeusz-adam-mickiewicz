@@ -1,3 +1,4 @@
+Tymczasem, kto miał udział najczynniejszy w bitwie,\
 Ten nie może bezpieczny zostać się na Litwie:\
 Musicie więc do Księstwa uciekać Panowie,\
 A mianowicie Maciej, co się Chrzciciel zowie,\
