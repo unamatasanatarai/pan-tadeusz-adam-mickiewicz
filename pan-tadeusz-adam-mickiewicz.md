@@ -1,3 +1,4 @@
+Odświeżają nadstygłe warkoczów pierścionki,\
 Drugie klęcząc pracują około falbonki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy się tak Rejent bawi ze swą narzeczoną,\
