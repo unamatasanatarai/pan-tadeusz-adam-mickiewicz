@@ -1,3 +1,4 @@
+«Panowie Bracia! aj! aj! a na boskie rany!\
 Co znowu? Panie Klucznik, czy waść opętany?\
 Czy o tym była mowa? Że ktoś miał wariata\
 Banitę bratem: to co, karać go za brata?\
