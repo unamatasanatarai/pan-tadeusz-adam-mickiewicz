@@ -1,3 +1,4 @@
+Lubił bardzo myślistwo, już to dla zabawy,\
 Już to że odgłos trąbki i widok obławy\
 Przypominał mu jego lata młodociane,\
 Kiedy miał strzelców licznych i psy zawołane:\
