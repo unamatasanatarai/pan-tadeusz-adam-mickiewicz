@@ -1,3 +1,4 @@
+Wpadły na łąki, świszczą po łozach i trawach.\
 Pryskają łóz gałęzie; lecą traw przekosy\
 Na wiatr jako garściami wyrywane włosy,\
 Zmieszane z kędziorami snopów. Wiatry wyją,\
