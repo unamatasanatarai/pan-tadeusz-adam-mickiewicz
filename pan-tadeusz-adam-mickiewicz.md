@@ -1,3 +1,4 @@
+Z włości wezwać wasalów!» «Lokajów? broń Boże! —\
 Przerwał Gerwazy. Czy to zajazd jest hultajstwem?\
 Kto widział zajazd robić z chłopstwem i z lokajstwem?\
 Mój panie, na zajazdach nie znacie się wcale!\
