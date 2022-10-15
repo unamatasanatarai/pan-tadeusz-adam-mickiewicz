@@ -1,3 +1,4 @@
+Deprekować; czekaj waść, czasu jeszcze dosyć.\
 Chyba inny giez jaki waści stąd wygania,\
 To gadaj szczerze, po co takie omawiania?\
 Jestem twój stryj; choć stary, znam, co serce młode;\
