@@ -1,3 +1,4 @@
+Po tych rozmowach zawsze jakowaś nowina\
 Rozeszła się w sąsiedztwie. Postać bernardyna\
 Wydawała, że mnich ten nie zawsze w kapturze\
 Chodził i nie w klasztornym zestarzał się murze.\
