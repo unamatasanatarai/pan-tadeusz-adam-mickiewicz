@@ -1,3 +1,4 @@
+Zbiór ten pochodził w części z pobożności ludu,\
 A w części z ciekawości: bo dziś w Soplicowie\
 Na nabożeństwie mają być jenerałowie,\
 Sławni dowódcy owi naszych legijonów,\
