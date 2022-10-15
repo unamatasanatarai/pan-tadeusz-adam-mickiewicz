@@ -1,3 +1,4 @@
+Bo gdy zagonem pełzał ku owej pasterce,\
 Paliło mu się w głowie, skakało w nim serce;\
 Tyle wdzięków w tajemnej nimfie upatrywał,\
 W tyle ją cudów ubrał, tyle odgadywał!\
