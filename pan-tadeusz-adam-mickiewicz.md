@@ -1,3 +1,4 @@
+Związkowi temu i mnie sierotą zostawił,\
 Wziąwszy do chwały swojej nadobną Wojszczankę,\
 Przyjaciela mojego córę Hreczeszankę.\
 Pozostała mi tylko pamiątka jej cnoty,\
