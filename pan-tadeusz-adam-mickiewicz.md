@@ -1,3 +1,4 @@
+I gada mnie o czuciach! o niezmiennym sercu!\
 Łgarz jesteś! pfe! Ja z waści, panie Tadeuszu,\
 Zrobię śledztwo, ja waści jeszcze natrę uszu!\
 Dziś dość miałem kłopotów, aż mnie głowa boli;\
