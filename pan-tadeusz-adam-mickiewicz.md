@@ -1,3 +1,4 @@
+Panna nie nadto młoda, już pono półwieczna,\
 Lecz gospodyni dobra, osoba stateczna\
 I posażna: bo oprócz swej dziedzicznej wioski\
 Sumką z daru Sędziego powiększała wnioski.
