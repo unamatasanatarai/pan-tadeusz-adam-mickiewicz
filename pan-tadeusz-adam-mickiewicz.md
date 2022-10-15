@@ -1,3 +1,4 @@
+Jacek ją Telimenie dał na wychowanie,\
 Słysząc, że jest osoba dobra, świat znająca:\
 A postrzegam, że ona coś tu nam zamąca,\
 Intryguje i pono Tadeuszka wabi:\
