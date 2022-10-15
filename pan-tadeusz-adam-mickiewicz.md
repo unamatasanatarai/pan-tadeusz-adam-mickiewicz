@@ -1,3 +1,4 @@
+Rodzoniutki braciszek owego wąsala!\
 Żyje dotąd i z swoich bogactw się przechwala,\
 Zamku Horeszków tyka swych kopców krawędzią,\
 Szanowany w powiecie, ma urząd, jest Sędzią!\
