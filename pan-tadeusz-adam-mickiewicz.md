@@ -1,3 +1,4 @@
+Cały las wiąże w jedno i jakoby zlewa;\
 I bór czernił się na kształt ogromnego gmachu,\
 Słońce nad nim czerwone jak pożar na dachu.\
 Wtem zapadło do głębi; jeszcze przez konary\
