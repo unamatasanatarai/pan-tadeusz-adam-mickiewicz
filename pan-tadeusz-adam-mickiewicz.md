@@ -1,3 +1,4 @@
+Spuściwszy nos, do domów, z domów dalej w nogi —\
 O, to był rwetes! Wszystkie wielkopolskie drogi\
 Pełne uciekających. Niemczyska jak mrowie\
 Pełzną, ciągną pojazdy, które lud tam zowie\
