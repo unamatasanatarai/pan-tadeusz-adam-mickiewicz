@@ -1,3 +1,4 @@
+I przybiegłszy, ze wstydu nie śmieją wznieść oczu,\
 I zamiast iść do panów, stały na uboczu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Rejent spuścił ku piersiom zasępione czoło,\
