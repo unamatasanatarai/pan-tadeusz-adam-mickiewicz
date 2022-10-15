@@ -1,3 +1,4 @@
+Że hojność państwa dla nas nie jest bez powodu,\
 Winni coś Soplicowie dla Horeszków rodu».\
 (Tej części mowy Sędzia słuchał z niepojętem\
 Pomieszaniem, żałością i widocznym wstrętem;\
