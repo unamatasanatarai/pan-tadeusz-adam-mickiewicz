@@ -1,3 +1,4 @@
+Uważałem, że waszeć wczoraj gryzłeś wargi,\
 Poglądając spode łba na pewną dziewczynkę;\
 Widziałem, że i ona miała kwaśną minkę.\
 Znam ja te wszystkie głupstwa; kiedy dzieci para\
