@@ -1,3 +1,4 @@
+«Ja — rzekła Telimena — nie chcę ci zagradzać\
 Drogi do sławy, szczęściu twojemu przeszkadzać!\
 Jesteś mężczyzną, znajdziesz kochankę godniejszą\
 Serca twojego, znajdziesz bogatszą, piękniejszą!\
