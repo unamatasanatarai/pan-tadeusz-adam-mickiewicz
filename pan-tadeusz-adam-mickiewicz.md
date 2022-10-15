@@ -1,3 +1,4 @@
+Kazał ognia zaprzestać, machnął chustką białą.\
 Pyta się Tadeusza, jaką broń podoba;\
 Po układach, na szpady zgodzili się oba.\
 Tadeusz broni nie miał: gdy szukano szpady,\
