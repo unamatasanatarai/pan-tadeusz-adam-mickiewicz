@@ -1,3 +1,4 @@
+Proso, groszek, a nawet krzewiny i kwiaty.\
 Domowemu to ptactwu taki ochmistrzyni\
 Wymyśliła ogródek: sławna gospodyni,\
 Zwała się Kokosznicka, z domu Jendykowi-\
