@@ -1,3 +1,4 @@
+Chciałem sprzęt ten zostawić w dziedzictwie dla dzieci;\
 Dzieci pewnie mieć będę: wiesz, że się dziś żenię;\
 Ale ten sprzęt, Rejencie, proszę uniżenie,\
 Bądź łaskaw przyjąć w zamian za twój rzęd bogaty\
