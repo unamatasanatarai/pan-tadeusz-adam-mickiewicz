@@ -1,3 +1,4 @@
+Nareszcie — użyć świata póki służą lata!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak myśląc, po alkowie śmiało i wesoło\
 Przeszła się kilka razy. Znów spuściła czoło.
