@@ -1,3 +1,4 @@
+Lecz strwożył się. Krzyknąwszy: «Jegry! bunt! Jej Bogu!»\
 Dobył szpady, broniąc się, zbliżał się do progu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem, z drugiej strony izby wpada szlachty wiele\
