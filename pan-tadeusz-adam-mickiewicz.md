@@ -1,3 +1,4 @@
+Jak gdyby w skrzydła bijąc, częstym ramion ruchem\
 Dmą w miechy i oblicza wypełniają duchem:\
 Myśliłbyś, że ta para w powietrze uleci,\
 Podobna do pyzatych Boreasza dzieci.\
