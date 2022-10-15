@@ -1,3 +1,4 @@
+W wieku może by była największa różnica:\
 Ogrodniczka dziewczynką zdawała się małą,\
 A pani ta niewiastą już w latach dojrzałą;\
 Lecz młodzież o piękności metrykę nie pyta,\
