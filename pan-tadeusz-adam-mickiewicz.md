@@ -1,3 +1,4 @@
+On potem w Hiszpaniji, gdy nasze ułany\
 Zdobyły Samosiery grzbiet oszańcowany,\
 Obok Kozietulskiego był ranny dwa razy!\
 Następnie, jak wysłaniec, z tajnymi rozkazy\
