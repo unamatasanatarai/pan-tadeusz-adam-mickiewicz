@@ -1,3 +1,4 @@
+Żeby uchodzącego tym łacniej dosiągnął,\
 Powstał i całą prawą rękę wzdłuż wyciągnął,\
 Popychając karabin, a tak się wysilił\
 Pchnięciem i wagą broni, że się aż pochylił:\
