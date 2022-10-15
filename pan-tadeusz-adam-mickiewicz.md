@@ -1,3 +1,4 @@
+Odemknął, wbiegł do domu, pragnął go powitać.\
 Dawno domu nie widział, bo w dalekim mieście\
 Kończył nauki, końca doczekał nareszcie.\
 Wbiega i okiem chciwie ściany starodawne\
