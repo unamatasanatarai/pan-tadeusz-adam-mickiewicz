@@ -1,3 +1,4 @@
+A resztę rozdzielono między wierzycieli.\
 Zamku żaden wziąć nie chciał, bo w szlacheckim stanie\
 Trudno było wyłożyć koszt na utrzymanie;\
 Lecz Hrabia, sąsiad bliski, gdy wyszedł z opieki,\
