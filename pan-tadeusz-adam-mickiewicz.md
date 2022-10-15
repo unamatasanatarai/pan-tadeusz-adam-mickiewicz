@@ -1,3 +1,4 @@
+Mówiąc, że to machina żmudna, staroświecka,\
 Że to ma pozór niby zabawki dla dziecka,\
 Nieprzyzwoitej dla tak znakomitych ludzi!\
 Sędzio! i Sędzia mówił że to gości znudzi!\
