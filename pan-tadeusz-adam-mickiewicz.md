@@ -1,3 +1,4 @@
+Od której odbijał się drżący blask miesięczny,\
 I przystąpiwszy, cicho jęknęła: «Niewdzięczny!\
 Szukałeś wzroku mego, teraz go unikasz;\
 Szukałeś rozmów ze mną, dziś uszy zamykasz,\
