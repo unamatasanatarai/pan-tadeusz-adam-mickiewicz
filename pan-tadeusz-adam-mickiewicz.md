@@ -1,3 +1,4 @@
+Chybiły: czym ze złości, czy z żalu źle mierzył...\
 Usłyszałem wrzask kobiet, spojrzałem — pan nie żył».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Gerwazy umilknął i łzami się zalał,\
