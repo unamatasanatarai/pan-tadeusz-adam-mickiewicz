@@ -1,3 +1,4 @@
+Bo zbyt często słyszano krzyk złowieszczych ptaków,\
 Które na pustych polach gromadząc się w kupy,\
 Ostrzyły dzioby, jakby czekając na trupy;\
 Zbyt często postrzegano, że psy ziemię ryły\
