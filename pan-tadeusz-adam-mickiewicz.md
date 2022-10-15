@@ -1,3 +1,4 @@
+Odwagi; straszno wspomnieć, w oczach mi się ćmiło!\
 Bo prosto biegli ku mnie oba paniczowie,\
 A niedźwiedź z tyłu już, już na Hrabiego głowie,\
 Ostatniego z Horeszków!... chociaż po kądzieli.\
