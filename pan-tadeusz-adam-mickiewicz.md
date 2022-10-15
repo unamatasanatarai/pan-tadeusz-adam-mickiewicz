@@ -1,3 +1,4 @@
+Bracia szlachta! Panowie! potrzeba rozsądku!\
 Dobrodzieje! potrzeba ładu i porządku!\
 Chcecie wojny, więc zróbmy konfederacyją;\
 Obmyślmy, gdzie zawiązać i pod laską czyją?\
