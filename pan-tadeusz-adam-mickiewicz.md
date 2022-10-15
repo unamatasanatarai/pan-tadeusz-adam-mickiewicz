@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    «Śmiałbym upraszać młodzieży,\
 Ażeby po staremu bawić u wieczerzy,\
 Nie milczeć i żuć: czy my ojce kapucyni?\
 Kto milczy między szlachtą, to właśnie tak czyni,\
