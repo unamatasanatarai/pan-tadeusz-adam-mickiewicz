@@ -1,3 +1,4 @@
+I ze sztabami swymi jenerał Dąbrowski,\
 Kniaziewicz, Małachowski, Giedrojć i Grabowski.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Późno było, gdy weszli: więc każdy, gdzie może,\
