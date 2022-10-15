@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Skoro ujrzał Hrabiego, czapkę z głowy schwycił,\
 I krewnego swych panów ukłonem zaszczycił,\
 Chyląc łysinę wielką, świecącą z daleka,\
 I naciętą od licznych kordów jak nasieka;\
