@@ -1,3 +1,4 @@
+Kręci się, podskakuje, czasem przysiadywa,\
 Lewą rękę opuszcza, a broń z prawej ręki\
 Suwa naprzód jak żądło z wężowej paszczęki\
 I znowu ją w tył cofa, na kolanie wspiera:\
