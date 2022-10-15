@@ -1,3 +1,4 @@
+Zgadywano, że kogoś potajemnie kocha. —\
 Ale Stolnik, jak zawsze spokojny, wesoły,\
 Dawał na zamku bale, zbierał przyjacioły.\
 Mnie już nie prosił: na cóż byłem mu potrzebny?\
