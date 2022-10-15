@@ -1,3 +1,4 @@
+Czerniła się na całym brzegu widnokręga.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Któż zbadał puszcz litewskich przepastne krainy,\
 Aż do samego środka, do jądra gęstwiny?\
