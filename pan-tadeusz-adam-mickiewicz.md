@@ -1,3 +1,4 @@
+Jako stary opiekun, co kochanków śledzi,\
 Podsłuchał ich rozmowę, gniewa się, szamoce,\
 Trzęsie głową, rękami, i groźby bełkoce:\
 Tak ów młyn nagle zatrząsł mchem obrosłe czoło\
