@@ -1,3 +1,4 @@
+Zaczęło złoto kapać i błyskać na słońcu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W kociołkach bigos grzano. W słowach wydać trudno\
 Bigosu smak przedziwny, kolor i woń cudną;\
