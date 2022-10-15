@@ -1,3 +1,4 @@
+Rodzi się z Horeszkówny; małżonka dostanie!\
 Staraliśmy się tyle o jej wychowanie!\
 Chybaby tu zdziczała». Sędzia pilnie słuchał,\
 Patrząc w oczy; zdało się, że się udobruchał,\
