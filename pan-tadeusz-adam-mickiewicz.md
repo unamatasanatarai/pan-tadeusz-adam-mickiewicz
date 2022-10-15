@@ -1,3 +1,4 @@
+Polować, tak jak u nas, bez żadnego względu\
 Na artykuły ustaw, przepisy urzędu,\
 Nie szanując niczyich kopców ani miedzy,\
 Jeździć po cudzym gruncie, bez dziedzica wiedzy,\
