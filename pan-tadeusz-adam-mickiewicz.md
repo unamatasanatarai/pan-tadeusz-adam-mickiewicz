@@ -1,3 +1,4 @@
+Od książęcia Sanguszki mam ją w podarunku».\
 Tu pokazywał strzelbę przedziwnej roboty,\
 Choć maleńką, i zaczął wyliczać jej cnoty.\
 «Ja biegłem — przerwał Rejent, otarłszy pot z czoła —\
