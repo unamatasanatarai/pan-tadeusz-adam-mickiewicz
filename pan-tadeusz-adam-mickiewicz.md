@@ -1,3 +1,4 @@
+Długo musi pracować, nim poprawi sławy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia mówił, że pierwszy do oszczepu godził,\
 I że spotkaniu z źwierzem Tadeusz przeszkodził;\
