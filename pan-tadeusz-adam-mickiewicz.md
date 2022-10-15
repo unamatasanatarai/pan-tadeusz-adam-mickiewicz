@@ -1,3 +1,4 @@
+Wstydzicie się swych pudeł! Niech was wstyd nie pali:\
 Znałem myśliwych lepszych od was, a chybiali;\
 Trafiać, chybiać, poprawiać, to kolej strzelecka.\
 Ja sam, chociaż ze strzelbą włóczę się od dziecka,\
