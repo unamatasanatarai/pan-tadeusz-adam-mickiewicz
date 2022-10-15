@@ -1,3 +1,4 @@
+Dobrodzieje! potrzeba ładu i porządku!\
 Chcecie wojny, więc zróbmy konfederacyją;\
 Obmyślmy, gdzie zawiązać i pod laską czyją?\
 Tak było w Wielkopolszcze: widzim rejteradę\
