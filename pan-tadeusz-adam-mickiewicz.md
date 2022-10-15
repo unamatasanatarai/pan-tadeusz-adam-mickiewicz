@@ -1,3 +1,4 @@
+Wonnymi powiewami kwiatów oddychając.\
 Oblicze aż na krzaki fijołkowe skłonił,\
 Oczyma ciekawymi po drożynach gonił\
 I znowu je na drobnych śladach zatrzymywał,\
