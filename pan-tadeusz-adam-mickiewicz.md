@@ -1,3 +1,4 @@
+On zdjął konfederatkę, kłania się pokornie,\
 Dama raczyła spójrzeć, lecz milczy upornie;\
 On krok zwalnia, oczyma jej spojrzenia śledzi,\
 I zaśmiał się na koniec; rad z jej odpowiedzi\
