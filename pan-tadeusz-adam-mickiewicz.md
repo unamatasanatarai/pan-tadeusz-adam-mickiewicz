@@ -1,3 +1,4 @@
+A na kozłach Niemczysko chude na kształt deski;\
 Nogi miał długie, cienkie jak od chmielu tyki,\
 W pończochach, ze srebrnymi klamrami trzewiki,\
 Peruka z harbajtelem zawiązanym w miechu.\
