@@ -1,3 +1,4 @@
+Słowem, z daleka karczma chwiejąca się, krzywa,\
 Podobna jest do Żyda, gdy się modląc kiwa:\
 Dach jak czapka, jak broda strzecha roztrzęsiona,\
 Ściany dymne i brudne jak czarna opona,\
