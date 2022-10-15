@@ -1,3 +1,4 @@
+To niedźwiedź; tu już nie żal poszukać odwetu,\
 Czy szerpentyną, czyli nawet z pistoletu.\
 Spór wasz trudno pogodzić, więc dawnym zwyczajem,\
 Na pojedynek nasze pozwolenie dajem.\
