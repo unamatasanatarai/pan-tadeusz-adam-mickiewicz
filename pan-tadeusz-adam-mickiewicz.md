@@ -1,3 +1,4 @@
+Chrzciciel, gdy miłą broń swą, swe Kropidło zoczył,\
 Chwycił je, ucałował, z radości podskoczył,\
 Zakręcił je nad głową i zaraz ubroczył.
 
