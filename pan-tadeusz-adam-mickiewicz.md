@@ -1,3 +1,4 @@
+Zabiłem własnym sztykiem dwóch dzielnych szlachciców:\
 Jeden był Mokronowski, szedł z kosą przed frontem,\
 I kanonierowi uciął rękę z lontem.\
 Oj! wy Lachy! Ojczyzna! ja to wszystko czuję,\
