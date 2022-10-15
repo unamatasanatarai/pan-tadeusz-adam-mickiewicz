@@ -1,3 +1,4 @@
+Poprawił czapkę, z kolan wziął do rąk konewkę,\
 Zmacał sztenflem naboju, podsypał panewkę,\
 I spojrzał na plac boju. Widzi, że błyszcząca\
 Fala bagnetów szlachtę bije i roztrąca:\
