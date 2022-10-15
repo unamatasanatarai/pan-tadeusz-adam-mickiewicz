@@ -1,3 +1,4 @@
+Ze swym dżokejstwem, które posłuszne i karne,\
 Stanowiło niejako wojsko regularne;\
 Gdy inna szlachta była, zwyczajem powstania,\
 Burzliwa i niezmiernie skora do wieszania.
