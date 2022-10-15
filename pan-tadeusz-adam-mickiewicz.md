@@ -1,3 +1,4 @@
+Ksiądz Robak o tym gadał: wszakże wszyscy wiecie?»\
 «Wiemy!» krzyknęli — «Dobrze. Owoż mądrej głowie —\
 Ciągnął mówca, spojrzawszy bystro — dość dwie słowie.\
 Nieprawdaż?» «Prawda» rzekli. «Gdy cesarz francuski —\
