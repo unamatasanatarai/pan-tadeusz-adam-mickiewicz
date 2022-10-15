@@ -1,3 +1,4 @@
+Utonął w niej jak pszczoła w liliji kielichu.\
 Uczuł na ustach zimno; znalazł klucz i biały\
 Papier w trąbkę zwiniony; był to listek mały.\
 Porwał, schował w kieszenie; nie wie, co klucz znaczy,\
