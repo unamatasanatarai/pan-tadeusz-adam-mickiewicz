@@ -1,3 +1,4 @@
+Kto milczy między szlachtą, to właśnie tak czyni,\
 Jako myśliwiec, który nabój rdzawi w strzelbie.\
 Dlatego ja rozmowność naszych przodków wielbię:\
 Po łowach szli do stołu, nie tylko by jadać,\
