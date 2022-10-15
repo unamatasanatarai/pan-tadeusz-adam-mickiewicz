@@ -1,3 +1,4 @@
+Znowu biegał po izbie, dymem gęsto buchał,\
 Podobny do szmermelu albo do rakiety.\
 Chodziły za nim prosząc i płacząc kobiety.\
 «Majorze — mówił Sędzia — choć pozwiesz do prawa;\
