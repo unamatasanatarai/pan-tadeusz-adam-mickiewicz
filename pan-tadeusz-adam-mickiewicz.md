@@ -1,3 +1,4 @@
+Popularny dla jego krewnych i stronników.\
 Wąsal tak wzbił się w dumę łaskawym przyjęciem,\
 Że mu się uroiło zostać pańskim zięciem.\
 Do zamku nieproszony coraz częściej jeździł,\
