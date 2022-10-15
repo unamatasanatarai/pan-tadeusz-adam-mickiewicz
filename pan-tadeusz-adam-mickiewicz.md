@@ -1,3 +1,4 @@
+I rzekł:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Jaśnie wielmożny koronny hetmanie,\
 Czy jenerale, mniejsza o tytułowanie,\
