@@ -1,3 +1,4 @@
+Mówiłem: »Ej Dobrzyński! ej, przyjdzie do woza\
 Koza« — a co, Dobrzyński? widzisz: będzie łoza!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Potem Sędziemu szepnął, schyliwszy się w ucho:\
