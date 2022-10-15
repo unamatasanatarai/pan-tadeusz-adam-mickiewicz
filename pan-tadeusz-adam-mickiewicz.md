@@ -1,3 +1,4 @@
+Książę Radziwiłł nie mógł dosiedzieć na koniu:\
 Zsiadł i, objąwszy sławną mą charcicę Kanię,\
 Trzykroć jej w samą głowę dał pocałowanie,\
 A potem trzykroć ręką klasnąwszy po pysku,\
