@@ -1,3 +1,4 @@
+Zapach moki i gęstość miodowego płynu.\
 Wiadomo, czym dla kawy jest dobra śmietana;\
 Na wsi nietrudno o nią: bo kawiarka z rana,\
 Przystawiwszy imbryki, odwiedza mleczarnie\
