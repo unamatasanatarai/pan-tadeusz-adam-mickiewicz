@@ -1,3 +1,4 @@
+Nadaremnie Kropiciel dąsa się i miota.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sztab stał we dworze, a z nim zbrojnej szlachty wiele:\
 Podhajscy, Birbaszowie, Hreczechy, Biergele,\
