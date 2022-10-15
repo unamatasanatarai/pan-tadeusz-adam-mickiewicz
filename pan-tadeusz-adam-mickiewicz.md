@@ -1,3 +1,4 @@
+I długo rozdzielone złączyli prawice.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem rzekł Rejent: «Stawiłem niegdyś konia z rzędem,\
 Opisałem się także przed ziemskim urzędem,\
