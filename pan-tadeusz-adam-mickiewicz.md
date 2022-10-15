@@ -1,3 +1,4 @@
+W kuchni kilka rapierów kucharka bezbożna\
 Odhartowała, kładąc je w piec zamiast rożna;\
 Buńczukiem, łupem z Wiednia, otrzepywa żarna:\
 Słowem, wygnała Marsa Ceres gospodarna\
