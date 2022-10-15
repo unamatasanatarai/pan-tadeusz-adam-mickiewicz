@@ -1,3 +1,4 @@
+Jego ramiona silne, jego pierś szeroką,\
 I w twarz spojrzała, z której wytryskał rumieniec,\
 Ilekroć z jej oczyma spotkał się młodzieniec:\
 Bo z pierwszej lękliwości całkiem już ochłonął,\
