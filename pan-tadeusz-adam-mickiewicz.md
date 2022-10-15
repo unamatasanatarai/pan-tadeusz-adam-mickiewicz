@@ -1,3 +1,4 @@
+Wskazują palcem; drudzy oczyma tam biegli,\
 Aż wreszcie wszystkie głowy, jak kłosy schylone\
 Wstecznym wiatrem, w przeciwną zwróciły się stronę\
 W kąt.
