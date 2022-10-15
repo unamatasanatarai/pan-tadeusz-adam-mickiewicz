@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Bracie! Bóg wie, żem dotąd tajemnic dochował,\
 Którem z żalu za grzechy w spowiedzi ślubował:\
 Że Bogu i Ojczyźnie poświęcony cały,\
 Nie służąc pysze, ziemskiej nie szukając chwały,\
