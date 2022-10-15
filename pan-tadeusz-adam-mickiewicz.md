@@ -1,3 +1,4 @@
+Jakby w słowach, we wzroku mym była trucizna!\
 Dobrze mi tak, wiedziałam, kto jesteś: mężczyzna!\
 Nie znając kokieterii, nie chciałam cię dręczyć,\
 Uszczęśliwiłam; takżeś umiał mnie zawdzięczyć!\
