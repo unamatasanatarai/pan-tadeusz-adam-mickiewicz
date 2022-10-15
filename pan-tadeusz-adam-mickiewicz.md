@@ -1,3 +1,4 @@
+Przy swojej pięknej Ewie, przy swym wdzięcznym zięciu,\
 Zestarzałby spokojny, może wnuki swoje\
 Kołysałby!... Teraz co?... Nas zgubił oboje\
 I sam... i to zabójstwo... i wszystkie następstwa\
