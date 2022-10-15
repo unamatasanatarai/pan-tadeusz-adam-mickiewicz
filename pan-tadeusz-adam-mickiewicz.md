@@ -1,3 +1,4 @@
+Mych odwiedzin: to kto wie? może bym odjechał,\
 Pogniewał się, połajał, w końcu go zaniechał;\
 Ale on, chytrze dumny, wpadł na koncept nowy:\
 Udawał, że mu nawet nie przyszło do głowy,\
