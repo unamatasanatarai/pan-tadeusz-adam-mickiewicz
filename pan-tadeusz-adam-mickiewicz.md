@@ -1,3 +1,4 @@
+«Hejże! — krzyknęli wszyscy — hejże na Soplicę!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Prusak śmiał podjąć się Sędziego obrony,\
 I wołał z wzniesionymi ku szlachcie ramiony:\
