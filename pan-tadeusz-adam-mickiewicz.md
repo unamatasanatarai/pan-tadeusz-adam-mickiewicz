@@ -1,3 +1,4 @@
+Gdy mnie kochasz mój drogi, czyż możesz mnie rzucić?\
 Tobie oddałam serce, oddam ci majątek,\
 Pójdę za tobą wszędzie; każdy świata kątek\
 Będzie mnie z tobą miły! Z najdzikszej pustyni\
