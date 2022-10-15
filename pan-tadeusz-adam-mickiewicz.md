@@ -1,3 +1,4 @@
+Zrazu jak stada dzikich gęsi lub łabędzi,\
 A z tyłu wiatr jak sokół do kupy je pędzi:\
 Ściskają się, grubieją, rosną — nowe dziwy!\
 Dostają krzywych karków, rozpuszczają grzywy,\
