@@ -1,3 +1,4 @@
+I znowu je na drobnych śladach zatrzymywał,\
 Myślał o nich i, czyje były, odgadywał.\
 Przypadkiem oczy podniósł, i tuż na parkanie\
 Stała młoda dziewczyna... Białe jej ubranie\
