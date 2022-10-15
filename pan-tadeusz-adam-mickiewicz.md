@@ -1,3 +1,4 @@
+Gdy jestem nędzarz sercem, będę ręką wielki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena pytała: «Któż panu przeszkadza\
 Kochać i być szczęśliwym!» — «Mych przeznaczeń władza —\
