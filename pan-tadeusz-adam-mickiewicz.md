@@ -1,3 +1,4 @@
+Przyjechał pan Podczaszyc na francuskim wózku,\
 Pierwszy człowiek, co w Litwie chodził po francusku.\
 Biegali wszyscy za nim, jakby za rarogiem,\
 Zazdroszczono domowi, przed którego progiem\
