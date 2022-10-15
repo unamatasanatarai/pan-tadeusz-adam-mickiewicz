@@ -1,3 +1,4 @@
+Środkiem dziedzińca; aż tam, gdzie rosła pokrzywa,\
 Zasadza się, a Saka gestami przyzywa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sak, broniąc dworu, stanął z szturmakiem u proga:\
