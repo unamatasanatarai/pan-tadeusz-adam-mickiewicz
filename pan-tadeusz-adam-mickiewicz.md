@@ -1,3 +1,4 @@
+I «Pax, pax, pax vobiscum — krzyczał — pokój z wami!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zdziwiły się, zaśmiały nawet strony obie.\
 Przez szacunek, należny duchownej osobie,\
