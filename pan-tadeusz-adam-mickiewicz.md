@@ -1,3 +1,4 @@
+I z zamku na dziedziniec wyszli dla ochłody.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tam włość już kończy ucztę: krążą miodu dzbany.\
 Muzyka już się stroi i wzywa na tany;\
