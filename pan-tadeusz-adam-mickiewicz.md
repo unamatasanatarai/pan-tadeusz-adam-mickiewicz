@@ -1,3 +1,4 @@
+Długo nimi po oczach Gerwazego wodził,\
 Na koniec, jakby ślepym chciał uderzyć ciosem,\
 Zasłonił oczy ręką i rzekł mocnym głosem:
 
