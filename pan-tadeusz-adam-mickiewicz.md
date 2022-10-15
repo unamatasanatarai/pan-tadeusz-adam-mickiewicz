@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tymczasem goście, potraw czekający w sali,\
 Z zadziwieniem na wielki serwis poglądali,\
 Którego równie drogi kruszec jak robota.\
 Jest podanie, że książę Radziwiłł-Sierota\
