@@ -1,3 +1,4 @@
+Z góry i z dołu, wielcy wielkich, małych mali,\
 Jak zaczniem ciąć, tak całe szelmostwo się zwali,\
 I tak zakwitnie szczęście i Rzeczpospolita.\
 Nieprawdaż?» «Prawda — rzekli — jakby z książki czyta».\
