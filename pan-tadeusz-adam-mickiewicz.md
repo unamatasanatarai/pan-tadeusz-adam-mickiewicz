@@ -1,3 +1,4 @@
+Najuboższych różni się od chłopskich katanek:\
 Zwykle chodzą w drylichach albo perkaliczkach,\
 Bydło pasą nie w łapciach z kory, lecz w trzewiczkach,\
 I żną zboże, a nawet przędzą w rękawiczkach.
