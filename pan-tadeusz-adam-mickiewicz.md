@@ -1,3 +1,4 @@
+I zasklepiły gęsto gniazdami jaskółki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wewnątrz samego domu, w stajni i wozowni,\
 Pełno znajdziesz rynsztunków, jak w starej zbrojowni.\
