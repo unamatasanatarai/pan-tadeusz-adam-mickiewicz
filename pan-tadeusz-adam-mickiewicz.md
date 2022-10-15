@@ -1,3 +1,4 @@
+Bóg nas czy diabeł złączył, trzeba się rozłączyć;\
 Dwóch nas jak dwóch słońc pono zanadto na świecie!«\
 A więc do szerpentynek i stają na mecie.\
 Oba szanowni ludzie; co ich szlachta godzą,\
