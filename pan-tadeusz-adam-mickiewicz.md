@@ -1,3 +1,4 @@
+Odmawiał litaniją o czyscowych duszach.\
 Znowu wzrok mu skleił się, zadzwoniło w uszach —\
 Widzi tłum szlachty konnej, błyszczą karabele:\
 Zajazd! zajazd Korelicz i Rymsza na czele!\
