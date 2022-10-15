@@ -1,3 +1,4 @@
+I kwitnące gruszkami i jabłkami sady.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie mają czas goście darów lata użyć;\
 Darmo proszą Wojskiego, żeby je przedłużyć:\
