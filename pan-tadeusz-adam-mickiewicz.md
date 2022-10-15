@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski z Woźnym Protazym ze świecami w sieni\
 Stali i rozprawiali, nieco poróżnieni:\
 Bo w niebytność Wojskiego Woźny po kryjomu\
