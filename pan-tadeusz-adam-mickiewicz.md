@@ -1,3 +1,4 @@
+A waszeć, panie śmiałku, co wyzywasz starce,\
 Obaczym, czyli jesteś tak strasznym rycerzem:\
 Rozprawimy się jutro, plac i broń wybierzem;\
 Dziś uchodź, pókiś cały».
