@@ -1,3 +1,4 @@
+Prócz Tadeusza widać, że ją wszyscy znali.\
 Kibić miała wysmukłą, kształtną, pierś powabną,\
 Suknię materyjalną, różową, jedwabną,\
 Gors wycięty, kołnierzyk z koronek, rękawki\
