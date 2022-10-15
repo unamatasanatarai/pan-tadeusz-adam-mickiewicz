@@ -1,3 +1,4 @@
+Nie znając kokieterii, nie chciałam cię dręczyć,\
 Uszczęśliwiłam; takżeś umiał mnie zawdzięczyć!\
 Tryumf nad miękkim sercem serce twe zatwardził;\
 Żeś je zdobył zbyt łacno, zbyt prędkoś nim wzgardził!\
