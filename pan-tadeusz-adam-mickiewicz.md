@@ -1,3 +1,4 @@
+Wymyślili i która młockarnią się zowie,\
 A jest razem sieczkarnią, ma cepy i noże,\
 Razem i słomę kraje, i wybija zboże:\
 Tak pracują Kropiciel i Brzytwa pospołu,\
