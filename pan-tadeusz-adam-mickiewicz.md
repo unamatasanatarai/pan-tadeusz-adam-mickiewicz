@@ -1,3 +1,4 @@
+A byłem mu potrzebnym: miałem zachowanie\
 U szlachty i lubili mnie wszyscy ziemianie:\
 Więc on niby miłości mojej nie dostrzegał,\
 Przyjmował mnie jak dawniej, a nawet nalegał\
