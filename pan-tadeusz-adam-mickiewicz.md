@@ -1,3 +1,4 @@
+W całej przeszłości i w całej przyszłości,\
 Jedna już tylko dziś kraina taka,\
 W której jest trochę szczęścia dla Polaka:\
 Kraj lat dziecinnych! On zawsze zostanie\
