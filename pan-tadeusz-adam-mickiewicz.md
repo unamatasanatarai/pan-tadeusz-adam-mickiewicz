@@ -1,3 +1,4 @@
+Który uraczał hojnie tylu szlachty bratów,\
 Tyle wesołych słyszał i odbił wiwatów,\
 Nie pamiętano takiej posępnej wieczerzy;\
 Tylko pukanie korków i brzęki talerzy,\
