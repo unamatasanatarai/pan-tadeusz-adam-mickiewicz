@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Teraz bawił tam Rejent cudnie wystrojony,\
 I usługiwał damie, swojej narzeczonéj,\
 Biegając i podając sygnety, łańcuszki,\
 Słoiki i flaszeczki, i proszki, i muszki;\
