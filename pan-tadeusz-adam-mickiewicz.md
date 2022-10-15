@@ -1,3 +1,4 @@
+Po co proces, mopanku! sprawa jak dzień czysta:\
 Zamek w ręku Horeszków był przez lat czterysta;\
 Część gruntów oderwano w czasie Targowicy,\
 I jak pan wie, oddano władaniu Soplicy.\
