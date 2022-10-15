@@ -1,3 +1,4 @@
+Aby tasiemka była długa, rozciągnięta,\
 Bo to długie; a zawsze od lewego ucha\
 Ciąć oburącz, to przetniesz od głowy do brzucha».
 
