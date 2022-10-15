@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Zdziwiły się, zaśmiały nawet strony obie.\
 Przez szacunek, należny duchownej osobie,\
 Nie śmiano łajać mnicha; a po takiej probie,\
 Nikt też nie miał ochoty zaczynać z nim zwadę,\
