@@ -1,3 +1,4 @@
+Pan dobrze wychowany, krewny wojewody,\
 Pamiętaj być mu grzeczną».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Słychać rżenie koni\
