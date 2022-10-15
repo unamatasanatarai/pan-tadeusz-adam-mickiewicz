@@ -1,3 +1,4 @@
+Prawda, że ochmistrzyni ani pleban wioski,\
 Nie uwierzyli nigdy w te Wojskiego wnioski\
 I trzymali inaczej o muszym rodzaju;\
 Lecz Wojski nie odstąpił dawnego zwyczaju:\
