@@ -1,3 +1,4 @@
+Wracają: powiadają, że trzeci małżonek,\
 Pan Rejent, szczując kota, zgubił swój pierścionek\
 Ślubny, szuka na łące; a Rejenta dama\
 Jeszcze u gotowalni, choć spieszy się sama\
