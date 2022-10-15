@@ -1,3 +1,4 @@
+Jeździłem ich odwiedzić; więc z panem Józefem\
 Grabowskim, który teraz jest rejmentu szefem,\
 A podówczas żył na wsi blisko Obiezierza,\
 Polowaliśmy sobie na małego źwierza.\
