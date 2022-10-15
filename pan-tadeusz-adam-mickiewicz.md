@@ -1,3 +1,4 @@
+Idąc kłaniał się damom, starcom i młodzieży;\
 Za nim szedł kwestarz, Sędzia tuż przy bernardynie.\
 Sędzia u progu rękę dał Podkomorzynie,\
 Tadeusz Telimenie, Asesor Krajczance,\
