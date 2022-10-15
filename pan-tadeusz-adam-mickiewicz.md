@@ -1,3 +1,4 @@
+Bo nawet wozy, w które już składać zaczęto\
 Kopę żyta, niepełne jadą do stodoły:\
 Cieszą się z niezwyczajnej ich lekkości woły.
 
