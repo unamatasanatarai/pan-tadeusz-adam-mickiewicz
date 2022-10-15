@@ -1,3 +1,4 @@
+Przyjąłem, hodowałem, myślę o jej losie:\
 Dość mnie nudzi ta cała historyja babia!\
 A potem, czegóż jeszcze wlazł mi tu ten Hrabia?\
 Z jakim prawem do zamku? Wszak wiesz przyjacielu,\
