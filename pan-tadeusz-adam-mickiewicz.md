@@ -1,3 +1,4 @@
+Lecz nie ja wystrzeliłem. O, trzeba tam było\
 Odwagi; straszno wspomnieć, w oczach mi się ćmiło!\
 Bo prosto biegli ku mnie oba paniczowie,\
 A niedźwiedź z tyłu już, już na Hrabiego głowie,\
