@@ -1,3 +1,4 @@
+Chciała wyjść na dziedziniec, lecz szukała pary;\
 Wzięła koszyczek z kołka: «Panowie, jak widzę,\
 Chcecie zostać w pokoju, ja idę na rydze;\
 Kto łaska, proszę za mną» — rzekła, koło głowy\
