@@ -1,3 +1,4 @@
+Gotów zawżdy rzucić go, puścić się w kraj świata,\
 W nędzy i poniewierce przeżyć długie lata,\
 Walcząc z ludźmi i z losem, póki mu śród burzy\
 Przyświeca ta nadzieja, że Ojczyźnie służy.
