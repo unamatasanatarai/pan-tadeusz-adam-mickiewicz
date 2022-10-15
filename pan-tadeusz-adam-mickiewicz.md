@@ -1,3 +1,4 @@
+Woźnemu jest obrazów wspaniałych zarysem.\
 Czytał więc i rozmyślał: Ogiński z Wizgirdem,\
 Dominikanie z Rymszą, Rymsza z Wysogirdem,\
 Radziwił z Wereszczaką, Giedroić z Rdułtowskim,\
