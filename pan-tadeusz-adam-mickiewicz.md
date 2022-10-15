@@ -1,3 +1,4 @@
+O łzach, którymi płynie Polska cała,\
 O sławie, która jeszcze nie przebrzmiała:\
 O nich pomyśleć nie mieliśmy duszy!...\
 Bo naród bywa na takiej katuszy,\
