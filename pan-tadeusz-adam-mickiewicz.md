@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Nie w smak Podkomorzemu poszła Maćka mowa,\
 Młodzież zaczęła szemrać; Sędzia przerwał swary,\
 Głosząc przybycie trzeciej narzeczonej pary.
 
