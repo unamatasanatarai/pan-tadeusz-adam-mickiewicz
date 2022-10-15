@@ -1,3 +1,4 @@
+A on zmienił się w lisa, tak Suwarów w charta;\
 Tak Bonaparte znowu w kota się przerzuca,\
 Dalej drzeć pazurami, a Suwarów w kuca.\
 Obaczcież, co się stało w końcu z Bonapartą...»\
