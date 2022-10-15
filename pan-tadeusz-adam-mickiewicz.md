@@ -1,3 +1,4 @@
+I wtenczas jeszcze oko zwróć do tej kokardy,\
 Wspomnij, czyja ten kolor przyszpiliła ręka!»\
 Tu mu podała rękę. Pan Hrabia przyklęka,\
 Całuje; Telimena zbliżyła do oka\
