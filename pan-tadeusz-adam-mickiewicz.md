@@ -1,3 +1,4 @@
+Część tylna, na kształt dziwnej świątyni stawiona,\
 Przypomina z pozoru ów gmach Salomona,\
 Który pierwsi ćwiczeni w budowań rzemieśle\
 Hiramscy na Syjonie wystawili cieśle.\
