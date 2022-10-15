@@ -1,3 +1,4 @@
+Chłód duszy ogrzać znowu jej wzroku promieniem:\
 Już ten wzrok, jako księżyc światły a bez ciepła,\
 Błyskał po wierzchu duszy, która do dna krzepła.\
 Takie robiąc sam w sobie wyrzuty i skargi,\
