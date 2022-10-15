@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Właśnie dwukonną bryką wjechał młody panek\
 I obiegłszy dziedziniec zawrócił przed ganek.\
 Wysiadł z powozu; konie porzucone same,\
 Szczypiąc trawę ciągnęły powoli pod bramę.\
