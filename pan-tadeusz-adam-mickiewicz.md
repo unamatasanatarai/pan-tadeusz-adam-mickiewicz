@@ -1,3 +1,4 @@
+Chustkę, a drugim okiem pogląda z wysoka\
 Na Hrabię, który żegnał ją mocno wzruszony.\
 Ona wzdychała, ale ruszyła ramiony.
 
