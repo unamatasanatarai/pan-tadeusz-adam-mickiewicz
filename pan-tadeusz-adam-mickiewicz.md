@@ -1,3 +1,4 @@
+Gospodarze już dawno wyszli do roboty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już zaczęły żniwiarki swą piosnkę zwyczajną,\
 Jak dzień słotny ponurą, tęskną, jednostajną,\
