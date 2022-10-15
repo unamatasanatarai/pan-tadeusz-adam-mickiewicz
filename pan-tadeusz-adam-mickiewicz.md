@@ -1,3 +1,4 @@
+A kiedy się rozsławisz walecznymi czyny,\
 I gdy nieśmiertelnymi przesłonisz wawrzyny\
 Skrwawiony szyszak i hełm twój zwycięstwem hardy:\
 I wtenczas jeszcze oko zwróć do tej kokardy,\
