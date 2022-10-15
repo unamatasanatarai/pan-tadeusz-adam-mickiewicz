@@ -1,3 +1,4 @@
+Czasem myśl przychodziła skoczyć, ją ocalić,\
 Nawet Stolnika...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Broniliście się, ty wiesz, dzielnie i przytomnie.\
