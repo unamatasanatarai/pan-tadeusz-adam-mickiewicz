@@ -1,3 +1,4 @@
+Odmienia drogę, rad by towarzyszów zmylić,\
 Lecz go szybkimi kroki ścigają natręty,\
 I zewsząd obwijają tanecznymi skręty;\
 Więc gniewa się, prawicę na rękojeść składa,\
