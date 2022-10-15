@@ -1,3 +1,4 @@
+Wybierać gniazda ptasie, robić zauszniczki.\
 Niewdzięczna! Chociaż tyle pięknych darów strwonił,\
 Choć przed nim uciekała, choć mu ojciec bronił:\
 On jeszcze! ile razy na parkanie siadał,\
