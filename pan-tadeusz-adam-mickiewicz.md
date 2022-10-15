@@ -1,3 +1,4 @@
+Z lewej strony Strapczyna, a z prawej zawisał\
 Sprawnik i dusząc gardziel krew czarną wysysał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za czym Wojski rozkazał kij żelazny włożyć\
