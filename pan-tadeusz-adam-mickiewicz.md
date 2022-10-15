@@ -1,3 +1,4 @@
+Dwojga imion, generał niegdyś trybunalski,\
 Vulgo Woźny, woźnieńską obdukcyją robię\
 I wizyją formalną, zamawiając sobie\
 Urodzonych tu wszystkich obecnych świadectwo,\
