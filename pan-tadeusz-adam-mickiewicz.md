@@ -1,3 +1,4 @@
+W wielkiej peruce, którą do złotego runa\
 On lubił porównywać, a my do kołtuna.\
 Jeśli kto i czuł wtenczas, że polskie ubranie\
 Piękniejsze jest niż obcej mody małpowanie,\
