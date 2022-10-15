@@ -1,3 +1,4 @@
+Trzepie skrzydłem jak motyl na szpilce przybity,\
 Aż ujrzawszy wśród łąki ptaka lub zająca,\
 Runie nań z góry jako gwiazda spadająca.
 
