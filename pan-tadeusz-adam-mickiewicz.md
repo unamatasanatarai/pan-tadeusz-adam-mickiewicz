@@ -1,3 +1,4 @@
+Okryte zamiast śronu cukrowymi pianki;\
 Na krawędziach naczynia stoją dla ozdoby\
 Niewielkie z porcelany wydęte osoby\
 W polskich strojach: jakoby aktory na scenie,\
