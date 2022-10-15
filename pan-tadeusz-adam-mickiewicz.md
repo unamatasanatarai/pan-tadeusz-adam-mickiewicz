@@ -1,3 +1,4 @@
+Żyd wzbrania się, powiada, że ręce zgrubiały,\
 Odwykł od grania, nie śmie i panów się wstydzi;\
 Kłaniając się umyka. Gdy to Zosia widzi,\
 Podbiega i na białej podaje mu dłoni\
