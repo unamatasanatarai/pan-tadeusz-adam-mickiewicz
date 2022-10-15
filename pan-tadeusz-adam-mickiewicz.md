@@ -1,3 +1,4 @@
+Rzekł z uśmiechem, a był to uśmiech jadowity:\
 «Chart bez ogona jest jak szlachcic bez urzędu,\
 Ogon też znacznie chartom pomaga do pędu:\
 A pan kusość uważasz za dowód dobroci?\
