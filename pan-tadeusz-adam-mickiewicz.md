@@ -1,3 +1,4 @@
+Na grotach zawieszono brzuchate kociołki;\
 Z wozów niosą jarzyny, mąki i pieczyste,\
 I chleb.
 
