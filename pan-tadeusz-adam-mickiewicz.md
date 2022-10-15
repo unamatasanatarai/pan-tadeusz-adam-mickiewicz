@@ -1,3 +1,4 @@
+Alem słyszał, że chłopi pochodzą od Chama,\
 Żydowie od Jafeta, my szlachta od Sema,\
 A więc panujem jako starsi nad obiema.\
 Jużci pleban inaczej uczy na ambonie...\
