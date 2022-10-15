@@ -1,3 +1,4 @@
+Z łaski Bożej, dość Hrabio: ja jestem kobietą,\
 Już wiem resztę, przestań mi pleść ni to ni owo.\
 Teraz ostrzegam: jeśli piśniesz jedno słowo\
 Ażeby ślub mój zerwać, to jak Bóg na niebie\
