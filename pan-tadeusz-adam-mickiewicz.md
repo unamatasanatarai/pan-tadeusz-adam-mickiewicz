@@ -1,3 +1,4 @@
+Moją konfederacką ogłaszam wam laską:\
 Że Jacek wierną służbą i cesarską łaską\
 Zniósł infamiji plamę, powraca do cześci,\
 I znowu się w rzęd prawych patryjotów mieści.\
