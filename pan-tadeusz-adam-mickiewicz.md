@@ -1,3 +1,4 @@
+Jakim w owym ostatnim szóstym dniu stworzenia\
 Ojce ich pierwsze, co się w ogrójcu gnieździły,\
 Patrzyły na Adama, nim się z nim skłóciły.\
 Szczęściem, człowiek nie zbłądzi do tego ostępu,\
