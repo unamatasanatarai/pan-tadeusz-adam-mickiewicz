@@ -1,3 +1,4 @@
+Ku ziemi wychylona i wszerz rozpostarta,\
 Jak wielki żagiel, biorąc wszystkie wiatry w siebie,\
 Od południa na zachód leciała po niebie.
 
