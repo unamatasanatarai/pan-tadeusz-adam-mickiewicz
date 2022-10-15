@@ -1,3 +1,4 @@
+Nie mogła nic przemówić: aż się jej rzuciły\
 Strumieniem łzy — poznałem, jak byłem jej miły!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pomnę, pierwszy raz w życiu jam się łzami zalał\
