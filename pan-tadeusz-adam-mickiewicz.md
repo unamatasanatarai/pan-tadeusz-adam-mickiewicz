@@ -1,3 +1,4 @@
+Ani ogar wywietrzy dla zbyt tęgiej woni.\
 W konopiach człowiek dworski, uchodząc kańczuka\
 Lub pięści, siedzi cicho, aż się pan wyfuka.\
 I nawet często zbiegli od rekruta chłopi,\
