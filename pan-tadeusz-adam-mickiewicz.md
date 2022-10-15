@@ -1,3 +1,4 @@
+Chwała księdzu! dwom ludziom on życie ocalił —\
 Może i trzem: Gerwazy nie będzie się chwalił,\
 Ale gdyby ostatnie z krwi Horeszków dziecię\
 Wpadło w bestyi paszczę, nie byłbym na świecie,\
