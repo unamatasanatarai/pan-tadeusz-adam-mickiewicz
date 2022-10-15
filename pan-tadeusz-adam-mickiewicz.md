@@ -1,3 +1,4 @@
+Za chybioną źwierzynę, ileż w waszej ciszy\
 Upolowałem dumań, gdy w dzikim ostępie,\
 Zapomniawszy o łowach, usiadłem na kępie,\
 A koło mnie srebrzył się tu mech siwobrody,\
