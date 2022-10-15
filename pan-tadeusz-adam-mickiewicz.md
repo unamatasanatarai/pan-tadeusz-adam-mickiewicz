@@ -1,3 +1,4 @@
+Te groty przywiózł w pakach gotowych z Królewca\
 Pod sekretem; weźmiem je, zaraz zrobim drzewca;\
 Szabel nam nie zabraknie; szlachta na koń wsiędzie,\
 Ja z synowcem na czele, i — jakoś to będzie!»
