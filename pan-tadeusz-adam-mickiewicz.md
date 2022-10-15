@@ -1,3 +1,4 @@
+Widząc, że się ku niemu tym zielem przewija\
 Coś białego: była to rączka jak lilija;\
 Pochwycił ją, całował i usty po cichu\
 Utonął w niej jak pszczoła w liliji kielichu.\
