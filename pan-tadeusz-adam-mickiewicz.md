@@ -1,3 +1,4 @@
+Usta widział ciekawe, roztulone nieco,\
 I ząbki, co jak perły śród koralów świecą,\
 I lica, choć od słońca zasłaniane dłonią\
 Różową, same całe jak róże się płonią.
