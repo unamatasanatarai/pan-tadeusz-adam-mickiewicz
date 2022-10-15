@@ -1,3 +1,4 @@
+Ranga moskiewska, order: cóż to za znaczenie?\
 Któryż to z dawnych panów, ba, nawet dzisiejszych,\
 Między szlachtą w powiecie nieco zamożniejszych,\
 Dba o podobne fraszki? Przecież są w estymie\
