@@ -1,3 +1,4 @@
+Zlany granatem czarnej, zgniecionej jagody,\
 A tam się czerwieniły wrzosiste pagórki,\
 Strojne w brusznice jakby w koralów paciórki.\
 Wokoło była ciemność; gałęzie u góry\
