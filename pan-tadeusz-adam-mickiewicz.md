@@ -1,3 +1,4 @@
+Skłonił się i oddał mu swoję szpadę nagą,\
 Skrwawioną po rękojeść, i rzekł: «Lachy braty!\
 Oj biada mnie, żem nie miał choć jednej armaty!\
 Dobrze mówił Suworów: »pomnij Ryków kamrat,\
