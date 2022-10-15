@@ -1,3 +1,4 @@
+Co mówię! wszak Polacy miewali zamieszki\
 Z Litwą, gorsze niżeli z Soplicą Horeszki,\
 A gdy na rozum wzięła królowa Jadwiga,\
 To się bez sądów owa skończyła intryga.\
