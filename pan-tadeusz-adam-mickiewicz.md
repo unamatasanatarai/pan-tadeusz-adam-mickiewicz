@@ -1,3 +1,4 @@
+Świętego Bartłomieja albo Matyjasza:\
 Tak Syn Macieja zawżdy zwał się Bartłomiejem,\
 A znowu Bartłomieja syn zwał się Maciejem:\
 Kobiety wszystkie chrzczono Kachny lub Maryny.\
