@@ -1,3 +1,4 @@
+Że wy ludzie weseli, dobrzy do wypitki,\
 I także ludzie śmiali, dobrzy do wybitki.\
 U nas ruskie przysłowie: Kto na wozie jedzie,\
 Bywa często pod wozem; kto dzisiaj na przedzie,\
