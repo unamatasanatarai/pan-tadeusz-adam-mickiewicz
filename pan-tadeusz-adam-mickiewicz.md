@@ -1,3 +1,4 @@
+Bliznę, wyciętej skóry na szerokość dłoni,\
 I w brodzie ślad niedawny lancy lub postrzału;\
 Ran tych nie dostał pewnie przy czytaniu mszału.\
 Ale nie tylko groźne wejrzenie i blizny,\
