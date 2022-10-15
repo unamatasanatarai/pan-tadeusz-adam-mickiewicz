@@ -1,3 +1,4 @@
+Gdyby nie szatan, co go plącząc w grzech za grzechem,\
 W kłamstwo za kłamstwem, wreszcie odstąpił z uśmiechem!\
 Złajany, pogardzony od wszystkich, w dni parę\
 Zmarnował przyszłość! Uczuł słuszną zbrodni karę.
