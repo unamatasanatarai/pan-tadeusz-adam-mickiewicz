@@ -1,3 +1,4 @@
+Bije się; gdy ku niemu podszedł Podkomorzy,\
 I wznosząc karabelę, rzekł poważnym tonem:\
 «Kapitanie! nie splamisz czci twojej pardonem.\
 Dałeś próby, rycerzu nieszczęsny, lecz mężny,\
