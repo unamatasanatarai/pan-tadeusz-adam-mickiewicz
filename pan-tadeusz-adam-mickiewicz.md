@@ -1,3 +1,4 @@
+Aż Klucznik pojął mistrza, zakrył ręką lica\
 I krzyknął: «Znam! znam głos ten! to jest *Targowica*!»\
 I wnet pękła ze świstem struna złowróżąca; Muzyk bieży do prymów, urywa takt, zmaca,\
 Porzuca prymy, bieży z drążkami do basów,\
