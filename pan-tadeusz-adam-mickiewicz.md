@@ -1,3 +1,4 @@
+A Moskal jak nas trzymał, tak trzyma za szyję.\
 Pono nim słońce wnidzie, rosa oczy wyje».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Mospanie — rzekł bernardyn — babska rzecz narzekać,\
