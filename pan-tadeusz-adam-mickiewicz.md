@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy te słowa z uczuciem mówił chłopiec młody,\
 Zaświeciły mu, jako dwie wielkie jagody\
 Pereł, dwie łzy na wielkich błękitnych źrenicach,\
