@@ -1,3 +1,4 @@
+Znacząc te miejsca, gdzie wnet ciśnie grom po gromie:\
 Tej ciszy chwila była w Soplicowskim domie.\
 Myśliłbyś, że przeczucie nadzwyczajnych zdarzeń\
 Ścięło usta i wzniosło duchy w kraje marzeń.
