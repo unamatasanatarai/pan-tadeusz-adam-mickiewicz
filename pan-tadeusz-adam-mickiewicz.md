@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Przeklęta broń ognista!... Kto mieczem zabija,\
 Musi składać się, natrzeć, odbija, wywija,\
 Może rozbroić wroga, miecz wpół drogi wstrzymać;\
