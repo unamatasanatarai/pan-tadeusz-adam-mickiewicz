@@ -1,3 +1,4 @@
+Nim zaczął gadać, długo śmiał się:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Cha, cha, cha, cha,\
 Kłaniam, kłaniam! Cha, cha, cha, wyśmienicie, przednie!\
