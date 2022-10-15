@@ -1,3 +1,4 @@
+(Ostatniego z Horeszków, chociaż po kądzieli),\
 Mniej baczni młodzi ruchów starca nie pojęli:\
 Gerwazy zbladnął, ławą Hrabiego zakłada,\
 Cofa się ku drzwiom. «Łapaj!» krzyknęła gromada.
