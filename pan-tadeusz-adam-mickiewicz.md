@@ -1,3 +1,4 @@
+Jego damaskowaną krzywą karabelę,\
 Którą piki i sztyki rzezał na kształt sieczki,\
 I której żartem skromne dał imię *Rózeczki*.\
 Z konfederata stał się stronnikiem królewskim,\
