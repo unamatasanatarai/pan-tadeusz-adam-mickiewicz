@@ -1,3 +1,4 @@
+Pokazało się, iż był w ręku najsilniejszy:\
 Ująwszy rapier lekko, jakby szpadę dźwignął\
 I nad głowami gości błyskawicą mignął,\
 Przypominając polskie fechtarskie wykręty:\
