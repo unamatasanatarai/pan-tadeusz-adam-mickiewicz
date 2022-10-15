@@ -1,3 +1,4 @@
+I czterej Stypułkowscy i trzej Mickiewicze,\
 Krzyknęli: «Wiwat równość!» stając za Skołubą.\
 Tymczasem Buchman wołał: «Zgoda będzie zgubą!»\
 Kropiciel krzyczał: «Bez was obejdziem się sami;\
