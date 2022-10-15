@@ -1,3 +1,4 @@
+Wre robota; pięćdziesiąt nożów w stoły tętni,\
 Zwijają się kuchciki czarne jak szatany:\
 Ci niosą drwa, ci z mlekiem i z winem sagany;\
 Leją w kotły, skowrody, w rondle, dym wybucha;\
