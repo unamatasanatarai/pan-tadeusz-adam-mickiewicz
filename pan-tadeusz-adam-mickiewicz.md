@@ -1,3 +1,4 @@
+A czynownik na cztery tygodnie do kozy.\
 Zabawiła nas cały wieczór ta pustota;\
 Zrobiła się nazajutrz z tego anegdota,\
 Że w sądy o mym piesku wielki łowczy wdał się:\
