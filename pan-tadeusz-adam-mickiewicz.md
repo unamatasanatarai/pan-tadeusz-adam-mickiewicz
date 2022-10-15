@@ -1,3 +1,4 @@
+Kiedyż to będzie! Wszak to ile w kalendarzu\
 Jest świąt, na każde święto Francuzów nam wróżą:\
 Wygląda człek, wygląda, aż się oczy mrużą;\
 A Moskal jak nas trzymał, tak trzyma za szyję.\
