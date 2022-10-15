@@ -1,3 +1,4 @@
+Nieprawda! dalibógże! To wy tylko sami\
 Pozywacie go, a on zgody szuka z wami,\
 Ustępuje ze swego, jeszcze grzywny płaci.\
 Ma proces z Hrabią: cóż stąd? obadwa bogaci;\
