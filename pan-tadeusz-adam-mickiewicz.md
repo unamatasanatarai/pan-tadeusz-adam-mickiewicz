@@ -1,3 +1,4 @@
+Raportu nie podamy, tak się nikt nie dowie.\
 Bóg dał ręce żeby brać: to ruskie przysłowie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Słysząc to Major wstaje i od gniewu parska:\
