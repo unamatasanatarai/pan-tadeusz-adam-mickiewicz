@@ -1,3 +1,4 @@
+Zajęci częstowaniem włościan, chodząc jedli.\
 Starożytny był zwyczaj, iż dziedzice nowi\
 Na pierwszej uczcie sami służyli ludowi.
 
