@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Podkomorzy siedział na przyzbie przed domem.\
 Przerwał rozmowę gości; znać, że głos zabiera:\
 Błysnęła przy księżycu wielka tabakiera\
