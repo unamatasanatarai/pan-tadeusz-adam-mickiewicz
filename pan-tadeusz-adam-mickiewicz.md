@@ -1,3 +1,4 @@
+Obok Kozietulskiego był ranny dwa razy!\
 Następnie, jak wysłaniec, z tajnymi rozkazy\
 Biegał po różnych stronach ducha ludzi badać,\
 Towarzystwa tajemne wiązać i zakładać;\
