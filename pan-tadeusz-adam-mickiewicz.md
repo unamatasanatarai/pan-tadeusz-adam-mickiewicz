@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Szmer wzmagał się. Wtem Jankiel posłuchania prosił,\
 Na ławę wskoczył, stanął i nad głowy wznosił\
 Brodę jak wiechę, co mu aż do pasa wisi.\
