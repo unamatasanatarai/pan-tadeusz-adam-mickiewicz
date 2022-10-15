@@ -1,3 +1,4 @@
+Pan łzy miał w oczach; te łzy, powiem panu szczerze,\
 Wpadły mnie aż do serca; odtąd panu wierzę\
 Że mnie lubisz; ilekroć mówiłam pacierze\
 Za pana powodzenie, zawsze przed oczami\
