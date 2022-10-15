@@ -1,3 +1,4 @@
+Było teatrum (książę kochał się w teatrze),\
 Fajerwerk dawał Kaszyc, który mieszka w Jatrze,\
 Pan Tyzenhauz tancerzy przysłał, a kapele\
 Ogiński i pan Sołtan, co mieszka w Zdzieńciele.\
