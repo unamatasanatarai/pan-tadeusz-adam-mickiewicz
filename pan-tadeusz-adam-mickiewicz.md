@@ -1,3 +1,4 @@
+Tadeuszek, niemało mam niespokojności.\
 Jestem bezdzietny, stary; ten dobry chłopczyna,\
 Wszak to moja na świecie pociecha jedyna,\
 Przyszły dziedzic fortunki mojej. Z łaski nieba,\
