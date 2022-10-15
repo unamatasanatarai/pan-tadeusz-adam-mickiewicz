@@ -1,3 +1,4 @@
+Opasany gołębi sznurem, na kształt wstęgi\
 Białej, środkiem pstrokaty w gwiazdy, w cętki, w pręgi.\
 Tu dzioby bursztynowe, tam czubki z korali\
 Wznoszą się z gęstwi pierza jak ryby spod fali,\
