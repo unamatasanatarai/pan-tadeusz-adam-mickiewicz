@@ -1,3 +1,4 @@
+Że go przyjmuję grzecznie, chce mnie za nos wodzić!\
 Wiedz wasze, że Soplice nie zwykli się godzić:\
 Gdy pozwą, muszą wygrać; nieraz w ich imieniu\
 Trwał proces, aż wygrali w szóstym pokoleniu.\
