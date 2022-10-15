@@ -1,3 +1,4 @@
+Chybili. Niedźwiedź skoczył; oni tuż utkwiony\
 Oszczep jeden chwycili czterema ramiony,\
 Wydzierali go sobie. Spojrzą, aż tu z pyska\
 Wielkiego, czerwonego dwa rzędy kłów błyska,\
