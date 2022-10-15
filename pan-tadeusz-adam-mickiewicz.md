@@ -1,3 +1,4 @@
+Ledwie dziedziniec taką gromadę ogarnie,\
 Odezwały się trąby, otworzono psiarnie;\
 Zgraja chartów, wypadłszy, wesoło skowycze;\
 Widząc rumaki szczwaczów, dojeżdżaczów smycze,\
