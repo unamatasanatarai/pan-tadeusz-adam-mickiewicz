@@ -1,3 +1,4 @@
+Niewidzialny i ledwie dosłyszany szepce,\
 Jako dziecię krzykliwe złożone w kolebce,\
 Gdy matka nad nim zwiąże firanki majowe\
 I liścia makowego nasypie pod głowę.\
