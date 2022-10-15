@@ -1,3 +1,4 @@
+Zapomniawszy o łowach, usiadłem na kępie,\
 A koło mnie srebrzył się tu mech siwobrody,\
 Zlany granatem czarnej, zgniecionej jagody,\
 A tam się czerwieniły wrzosiste pagórki,\
