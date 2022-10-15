@@ -1,3 +1,4 @@
+Wiedzą wszyscy, że mu nikt na tym instrumencie\
 Nie wyrówna w biegłości, w guście i talencie.\
 Proszą, ażeby zagrał, podają cymbały;\
 Żyd wzbrania się, powiada, że ręce zgrubiały,\
