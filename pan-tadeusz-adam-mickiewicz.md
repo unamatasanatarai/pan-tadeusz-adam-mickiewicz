@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Jak to — parsknął Asesor — do kroćset niedźwiedzi!\
 To to niby pan zabił? Co też to Pan bredzi?»\
 «Słuchaj no — odparł Rejent — tu, panie, nie śledztwo,\
 Tu obława, tu wszystkich weźmiem na świadectwo...»
