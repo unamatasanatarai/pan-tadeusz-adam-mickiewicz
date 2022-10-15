@@ -1,3 +1,4 @@
+Jakby dwa wodotryski, dwa rogi jelenie,\
 I mignie między drzewa źwierz żółtawym pasem,\
 Jak promień, kiedy wpadłszy gaśnie między lasem.
 
