@@ -1,3 +1,4 @@
+Czego dowodem jawnym jest, że w zamku jada».\
 «Brzechaczu! — wrzasnął Klucznik — ja cię wnet nauczę!»\
 I dobywszy zza pasa swe żelazne klucze,\
 Okręcił wkoło głowy, puścił z całej mocy.\
