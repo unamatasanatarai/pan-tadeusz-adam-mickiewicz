@@ -1,3 +1,4 @@
+Za domem zaczęła się w wojsku pijatyka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ryków kapitan milczkiem kielichy wychylał,\
 Lecz Major pił i razem damom się przymilał.\
