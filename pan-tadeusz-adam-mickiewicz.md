@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jest w tym zasługa nie chcieć zostać winowajcą\
 Narodowym, choć naród okrzyczy cię zdrajcą!\
 Zwłaszcza, w kim taka, jaka była we mnie duma!
