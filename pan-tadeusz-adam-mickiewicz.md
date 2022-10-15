@@ -1,3 +1,4 @@
+Muzyka już się stroi i wzywa na tany;\
 Szukają Tadeusza, który stał na stronie\
 I coś pilnego szeptał swojej przyszłej żonie.
 
