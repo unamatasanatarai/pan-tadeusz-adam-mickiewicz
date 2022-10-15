@@ -1,3 +1,4 @@
+Telimena w ich domu miałaby schronienie\
 Na przyszłość; krewna Zosi i Hrabiego swatka,\
 Dla młodego małżeństwa byłaby jak matka.
 
