@@ -1,3 +1,4 @@
+Powiedz, czym ci ten drogi dar mam wynagrodzić\
 I czym twoje sieroctwo i wdowstwo osłodzić?»\
 «Czy ja Cybulski? — rzecze na to Klucznik z żalem —\
 Co żonę przegrał, grając w mariasza z Moskalem,\
