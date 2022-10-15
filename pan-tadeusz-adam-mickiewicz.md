@@ -1,3 +1,4 @@
+Tak dwa stawy gadały do siebie przez pola\
 Jak grające na przemian dwie arfy Eola.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mrok gęstniał. Tylko w gaju i około rzeczki\
