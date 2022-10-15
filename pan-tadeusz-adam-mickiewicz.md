@@ -1,3 +1,4 @@
+Lecz póty was nie spuszczę, aż się pogodzicie«.\
 Oni w złość; a tu szlachta kładnie się na ziemi\
 Od śmiechu, a ja z księdzem słowy poważnemi\
 Nuż im z Ewangelii, z statutów dowodzić;\
