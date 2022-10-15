@@ -1,3 +1,4 @@
+Wiosną równie jak latem zbiegać pola, knieje,\
 Zabijać nieraz lisa, właśnie gdy linieje,\
 Albo cierpieć, iż kotną samicę zajęczą\
 Charty w runi uszczują, a raczej zamęczą,\
