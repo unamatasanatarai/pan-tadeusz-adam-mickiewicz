@@ -1,3 +1,4 @@
+Miałem za sobą Dobrzyn i cztery zaścianki!\
 Ach, gdyby ona była jak nasze szlachcianki\
 Silna i zdrowa! gdyby ucieczki, pogoni\
 Nie zlękła się i mogła słuchać szczęku broni!...\
