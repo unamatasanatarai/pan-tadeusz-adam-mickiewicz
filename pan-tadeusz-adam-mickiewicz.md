@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Było to właśnie wkrótce po jej zaręczynach.\
 Wszędzie gadano tylko o tych zaręczynach;\
 Powiadano, że Ewa, gdy brała obrączkę\
 Z rąk Wojewody, mdlała, że wpadła w gorączkę,\
