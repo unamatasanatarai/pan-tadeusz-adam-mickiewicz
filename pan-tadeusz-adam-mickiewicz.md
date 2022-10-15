@@ -1,3 +1,4 @@
+Już go chwycili. Biegą do dworu, w podwórze\
 Wpadają. Dwór budzi się, psy w hałas, w krzyk stróże.\
 Wyskoczył wpół ubrany Sędzia; widzi zgraję\
 Zbrojną, myśli, że zbójcy, aż Hrabię poznaje.\
