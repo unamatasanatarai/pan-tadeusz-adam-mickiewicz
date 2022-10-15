@@ -1,3 +1,4 @@
+Chciał przypatrzyć się, spytać; długo stał nad drogą,\
 Daremnie wołał, nie mógł zatrzymać nikogo\
 Ni poznać we mgle. Jezdni migają jak duchy;\
 Tylko słychać raz po raz tętent kopyt głuchy\
