@@ -1,3 +1,4 @@
+Romans, gdzie wymieniony jestem po imieniu.\
 Romans ma tytuł: Polak, czyli tajemnice\
 Zamku Birbante-rokka. Czy są tu ciemnice\
 W tym zamku?» «Są — rzekł Klucznik — ogromne piwnice,\
