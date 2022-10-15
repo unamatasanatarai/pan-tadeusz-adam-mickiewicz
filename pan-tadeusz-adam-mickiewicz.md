@@ -1,3 +1,4 @@
+Jeśli syn — a syn będzie: bo wojny nadchodzą,\
 A w czasie wojny zawżdy synowie się rodzą».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie ostatnie słowa domówił Gerwazy,\
