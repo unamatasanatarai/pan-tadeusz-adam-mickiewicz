@@ -1,3 +1,4 @@
+Dziś, okryte tumanem, te mokrzycę chrupią,\
 Te jamki w roli kopiąc, parami się kupią,\
 I na wolnym powietrzu myślą użyć wczasu;\
 Ale przed bydłem muszą powracać do lasu.
