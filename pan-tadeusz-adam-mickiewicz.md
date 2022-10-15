@@ -1,3 +1,4 @@
+Z palcami swymi zabiegł aż do drugiej strony,\
 I «cap!» Tadeuszowi wrzasnął tuż nad uchem:\
 Tadeusz i sąsiadka, tym głosu wybuchem\
 Znienacka przestraszeni właśnie w pół rozmowy,\
