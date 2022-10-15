@@ -1,3 +1,4 @@
+Jeśli prawda, że jesteś księdzem zakonnikiem,\
 Jużci sukienka broni cię przed Scyzorykiem.\
 Bądź zdrów, więcej na waszym nie postanę progu\
 Z nami kwita, — zostawmy resztę Panu Bogu».
