@@ -1,3 +1,4 @@
+Jechał Lucyper, Boga gdy wyzwał w zapasy,\
 Mlecznym gościńcem pędząc cwał w niebieskie progi,\
 Aż go Michał zbił z wozu, a wóz zrzucił z drogi.\
 Teraz, popsuty, między gwiazdami się wala;\
