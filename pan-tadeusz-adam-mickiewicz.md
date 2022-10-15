@@ -1,3 +1,4 @@
+Wedle prawa na ciebie powinna by spadać.\
 Ci chłopi są nie moi, lecz twoi poddani:\
 Nie śmiałbym ich urządzić bez woli ich pani.\
 Teraz, kiedy już mamy Ojczyznę kochaną:\
