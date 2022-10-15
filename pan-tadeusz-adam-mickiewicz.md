@@ -1,3 +1,4 @@
+Na powrót w usta mówcy —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «A! a! to rzecz nowa!\
 Czy to Tadeuszowi szkodzi, czy nie szkodzi —\
