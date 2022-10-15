@@ -1,3 +1,4 @@
+Nareszcie księżyc srebrną pochodnię zaniecił,\
 Wyszedł z boru i niebo, i ziemię oświecił.\
 One teraz, z pomroku odkryte w połowie,\
 Drzemały obok siebie jako małżonkowie\
