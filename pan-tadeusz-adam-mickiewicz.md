@@ -1,3 +1,4 @@
+«Przypatrzcie się — rzekł Robak — tej groźnej postawie:\
 Zgadnijcie czyja? — Wszyscy patrzyli ciekawie.—\
 Wielki to człowiek, cesarz, ale nie Moskali,\
 Ich carowie tabaki nigdy nie bierali...»\
