@@ -1,3 +1,4 @@
+Chłopiec, co je posłyszał, znikał nagle z domu,\
 Lasami i bagnami skradał się tajemnie,\
 Ścigany od Moskali, skakał kryć się w Niemnie\
 I nurkiem płynął na brzeg Księstwa Warszawskiego,\
