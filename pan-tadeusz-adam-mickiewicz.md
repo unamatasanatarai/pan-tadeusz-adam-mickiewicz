@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem się szlachta do Hrabiego kupi\
 Idą w karczmę. Gerwazy wspomniał dawne czasy:\
 Kazał sobie trzy podać od kontuszów pasy,\
