@@ -1,3 +1,4 @@
+Dziś uchodź, pókiś cały».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Dobra była rada:\
 Klucznik i Hrabia wpadli w obroty nie lada.\
