@@ -1,3 +1,4 @@
+Skrzywdzili mnie — a co? wpadł w me szpony szlachciura!\
 Mówiłem: »Ej Dobrzyński! ej, przyjdzie do woza\
 Koza« — a co, Dobrzyński? widzisz: będzie łoza!»
 
