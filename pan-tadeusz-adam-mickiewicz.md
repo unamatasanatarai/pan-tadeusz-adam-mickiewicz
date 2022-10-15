@@ -1,3 +1,4 @@
+Wstecznym wiatrem, w przeciwną zwróciły się stronę\
 W kąt.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Z kąta, kędy wisiał portret nieboszczyka,\
