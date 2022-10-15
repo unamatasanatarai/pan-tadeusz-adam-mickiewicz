@@ -1,3 +1,4 @@
+Honorowym, staruszek milczał jak zaklęty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po zawarciu układów wyszedł z izby Ryków,\
 A Robak kazał wezwać szlachtę wojowników,\
