@@ -1,3 +1,4 @@
+Rozkrzyżował ramiona na kształt drogowskazu\
 I we dwa kąty izby rzucił ich od razu.\
 Chwilę z rozciągnionymi stał w miejscu rękami,\
 I «Pax, pax, pax vobiscum — krzyczał — pokój z wami!»
