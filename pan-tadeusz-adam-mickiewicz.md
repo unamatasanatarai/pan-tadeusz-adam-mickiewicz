@@ -1,3 +1,4 @@
+Dolewał, służył pilnie, ściskał za kolana,\
 Ale do rozmawiania z nim nie miał ochoty\
 I widać, że czuł jakieś tajemne kłopoty.
 
