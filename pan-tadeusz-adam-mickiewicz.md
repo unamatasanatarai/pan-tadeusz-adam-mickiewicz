@@ -1,3 +1,4 @@
+A Klucznik rzekł wzruszony: «Wielkie sądy Boże!\
 Prawda! prawda! Więc to ty? i tyżeś to Jacku\
 Soplico? pod kapturem? żyłeś po żebracku!\
 Ty, którego pamiętam, gdy zdrowy, rumiany,\
