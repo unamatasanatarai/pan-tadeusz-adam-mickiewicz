@@ -1,3 +1,4 @@
+Za granicę, pod znaki narodowe bieży?\
 Choćbym chciał zostać, czy to ode mnie zależy?\
 Ojciec mnie testamentem kazał, abym służył\
 W wojsku polskim, teraz stryj ten rozkaz powtórzył:\
