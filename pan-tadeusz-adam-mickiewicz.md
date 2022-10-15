@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Dobrze mój Tadeuszu, (bo tak nazywano\
 Młodzieńca, który nosił Kościuszkowskie miano\
 Na pamiątkę, że w czasie wojny się urodził)\
