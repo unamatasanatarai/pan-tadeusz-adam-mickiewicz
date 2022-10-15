@@ -1,3 +1,4 @@
+Z wieku mu i z urzędu ten zaszczyt należy,\
 Idąc kłaniał się damom, starcom i młodzieży.\
 Przy nim stał kwestarz, Sędzia tuż przy bernardynie.\
 Bernardyn zmówił krótki pacierz po łacinie;\
