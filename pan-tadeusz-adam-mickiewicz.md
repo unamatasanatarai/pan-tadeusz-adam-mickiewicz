@@ -1,3 +1,4 @@
+Gracz szarak! Skoro poczuł wszystkie charty w kupie\
 Pstręk na prawo, koziołka, z nim w prawo psy głupie,\
 A on znowu fajt w lewo, jak wytnie dwa susy,\
 Psy za nim fajt na lewo: on w las, a mój Kusy\
