@@ -1,3 +1,4 @@
+Tabakiera ze złota, z brylantów oprawa,\
 A w środku jej był portret króla Stanisława.\
 Ojcu Podkomorzego sam król ją darował,\
 Po ojcu Podkomorzy godnie ją piastował;\
