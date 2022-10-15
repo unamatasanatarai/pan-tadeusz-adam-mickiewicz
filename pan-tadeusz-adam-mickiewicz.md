@@ -1,3 +1,4 @@
+Nawet nie chce synowi oznajmić, że żyje,\
 A ciągle nim zarządza. Naprzód w legijony\
 Chciał go posyłać; byłem okropnie zmartwiony.\
 Potem zgodził się przecie, by w domu pozostał\
