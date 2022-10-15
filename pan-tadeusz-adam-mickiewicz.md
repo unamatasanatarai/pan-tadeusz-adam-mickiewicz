@@ -1,3 +1,4 @@
+Naprzód Tadeuszowi, jako krewną bliską.\
 Zosia grzecznie dygnęła, on skłonił się nisko,\
 Chciał coś do niej przemówić, już usta otworzył:\
 Ale spojrzawszy w oczy Zosi, tak się strwożył,\
