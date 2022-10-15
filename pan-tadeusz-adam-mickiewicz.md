@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Był on prostak, lecz umiał czuć wdzięk przyrodzenia,\
 I patrząc w las ojczysty, rzekł pełen natchnienia:\
 «Widziałem w botanicznym wileńskim ogrodzie,\
 Owe sławione drzewa rosnące na wschodzie\
