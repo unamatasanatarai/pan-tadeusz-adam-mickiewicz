@@ -1,3 +1,4 @@
+Już chmura, roztaczając cienie na kształt sieci,\
 Wyławia resztki światła, a za słońcem leci,\
 Jak gdyby je pochwycić chciała przed zachodem.\
 Kilka wichrów raz po raz prześwisnęło spodem,\
