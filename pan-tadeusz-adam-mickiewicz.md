@@ -1,3 +1,4 @@
+Ogląda się, cofa się; widzą to Moskale:\
 Kapitan Ryków myśli ostatni cios zadać,\
 Spędzić szlachtę z dziedzińca i dworem owładać.
 
