@@ -1,3 +1,4 @@
+Spojrzą, alić nad głowy suwał się kometa\
 Drogą, jaką ciągnęły wojska Mahometa,\
 Z wschodu na zachód. Potem i ksiądz Bartochowski,\
 Składając panegiryk na tryumf krakowski,\
