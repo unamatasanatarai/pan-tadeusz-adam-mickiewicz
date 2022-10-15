@@ -1,3 +1,4 @@
+Tuż przed szeregiem jegrów i kosą ich kraje,\
 Zawołali z radością: «Niech żyją Podhaje!\
 Naprzód bracia Litwini, górą, górą Litwa!»\
 Skołubowie zaś, widząc, jak waleczny Brzytwa,\
