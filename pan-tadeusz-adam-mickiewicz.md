@@ -1,3 +1,4 @@
+Księże Jacku: toć ja nie luter, nie syzmatyk!\
 Kto umierającego smuci, wiem, że grzeszy.\
 Powiem tobie coś, pewnie to ciebie pocieszy.\
 Kiedy nieboszczyk Pan mój upadał zraniony,\
