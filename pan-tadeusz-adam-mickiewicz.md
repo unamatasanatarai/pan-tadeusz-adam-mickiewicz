@@ -1,3 +1,4 @@
+Trzasło ciche półkurcze; wilk zna je po trzasku,\
 Śledzi okiem, postrzega, że z tyłu, za charty,\
 Myśliwiec wpół schylony, na kolanie wsparty,\
 Rurą ku niemu wije i już cyngla tyka.\
