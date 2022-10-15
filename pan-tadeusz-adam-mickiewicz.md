@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gerwazy przypomina starodawne czasy:\
 Każe sobie podawać od kontuszów pasy\
 I nimi z Soplicowskiej piwnicy dobywa\
 Beczki starej siwuchy, dębniaku i piwa.\
