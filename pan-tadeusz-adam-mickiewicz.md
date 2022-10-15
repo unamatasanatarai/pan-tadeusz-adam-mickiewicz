@@ -1,3 +1,4 @@
+Oczy rozwarł szeroko, usta wpół otworzył;\
 Milczał, lecz kielich w ręku tak potężnie cisnął,\
 Że szkło dźwięknąwszy pękło, płyn w oczy mu prysnął.\
 Rzekłbyś, że z winem ognia w duszę się nalało:\
