@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ach, kto choć na dnie serca ma dla przyjaciela\
 Choćby iskierkę czucia, gdy się z nim rozdziela,\
 Dobędzie się iskierka ta przy pożegnaniu,\
