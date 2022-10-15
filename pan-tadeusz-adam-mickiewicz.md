@@ -1,3 +1,4 @@
+I był nieprzyjacielem moskiewskiego rodu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie staruszek chodził po samotnym dworze,\
 Nucąc piosenkę: *Kiedy ranne wstają zorze*,\
