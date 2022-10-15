@@ -1,3 +1,4 @@
+I tym omykiem ćwiczy po sercach jak biczem...\
 Siedzieli z pochylonym ku misie obliczem.\
 Asesor nowe jeszcze miał powody żalów,\
 Patrząc na Telimenę i na swych rywalów.
