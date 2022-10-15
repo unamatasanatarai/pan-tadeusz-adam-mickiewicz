@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wojski jechał pośrodku; staruszek szanowny,\
 Wesoły był nadzwyczaj i bardzo rozmowny.\
 Chcąc kłótników zabawić i do zgody dowieść,\
 Kończył im o Doweyce i Domeyce powieść:\
