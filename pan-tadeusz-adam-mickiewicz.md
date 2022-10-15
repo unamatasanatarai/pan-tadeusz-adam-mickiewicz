@@ -1,3 +1,4 @@
+Niewiniątko! baranek! Ja, będąc kobiétą,\
 Jeśli z miłości nie dbam, choćby mnie odkryto,\
 Choćby mnie osławiono; a ty, ty mężczyzna?\
 Cóż szkodzi z was któremu, chociaż się i przyzna,\
