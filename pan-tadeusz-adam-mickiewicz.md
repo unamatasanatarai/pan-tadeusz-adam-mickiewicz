@@ -1,3 +1,4 @@
+Jak zgrzyt żelaza po szkle: przejął wszystkich dreszczem\
 I wesołość pomięszał przeczuciem złowieszczem.\
 Zasmuceni, strwożeni, słuchacze zwątpili,\
 Czy instrument niestrojny? czy się muzyk myli?\
