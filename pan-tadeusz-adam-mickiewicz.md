@@ -1,3 +1,4 @@
+Wszystko mu się udało: czy wydrzeć gołębie\
 Na wieży, czy jemiołę oberwać na dębie,\
 Czyli z najwyższej sosny złupić wronie gniazdo:\
 Wszystko umiał; myśliłem: pod szczęśliwą gwiazdą\
