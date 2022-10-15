@@ -1,3 +1,4 @@
+Sam ją sobie wybierze. Jeśli znajdzie dama,\
 Najpiękniejszego chłopca weźmie sobie sama».
 
 
