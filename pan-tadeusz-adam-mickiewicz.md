@@ -1,3 +1,4 @@
+Czy dotąd u was w Litwie są takie serwisy\
 I wszyscy takim starym ucztują zwyczajem?\
 Powiedz mi, bo ja życie strawiłem za krajem».
 
