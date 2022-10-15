@@ -1,3 +1,4 @@
+Które na pustych polach gromadząc się w kupy,\
 Ostrzyły dzioby, jakby czekając na trupy;\
 Zbyt często postrzegano, że psy ziemię ryły\
 I jak gdyby śmierć wietrząc, przeraźliwie wyły:\
