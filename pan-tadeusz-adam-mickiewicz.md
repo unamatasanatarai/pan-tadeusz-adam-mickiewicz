@@ -1,3 +1,4 @@
+Daremnie śpiewać: nikt by muzie nie uwierzył;\
 Jak nie wierzono w Wilnie ubogiej kobiécie,\
 Która stojąc na świętej Ostrej Bramy szczycie,\
 Widziała, jako Dejów, moskiewski jenerał,\
