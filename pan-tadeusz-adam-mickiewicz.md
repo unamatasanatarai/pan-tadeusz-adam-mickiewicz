@@ -1,3 +1,4 @@
+A konia ustawicznie bódł i kropił biczem.\
 Ten widok bardzo księdza bernardyna zmieszał,\
 Więc za młodzieńcem kroki szybkimi pośpieszał\
 Do wielkiej puszczy, która, jako oko sięga,\
