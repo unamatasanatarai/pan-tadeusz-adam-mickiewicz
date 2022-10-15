@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Tadeusz kręcił się, nudząc niepomału\
 Długą rozmową, w której nie mógł brać udziału.\
 Aż, gdy zaczęto sławić cudzoziemskie gaje,\
