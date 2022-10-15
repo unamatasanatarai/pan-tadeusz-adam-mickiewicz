@@ -1,3 +1,4 @@
+Pomnąc jakoś mnie kochał!» I zaczęła szlochać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, widząc że tak płacze i tak błaga\
 Czule, i tylko takiej drobnostki wymaga,\
