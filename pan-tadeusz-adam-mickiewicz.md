@@ -1,3 +1,4 @@
+Za pana powodzenie, zawsze przed oczami\
 Stał pan z tymi dużymi błyszczacymi łzami.\
 Potem Podkomorzyna do Wilna jeździła,\
 Wzięła mnie tam na zimę; alem ja tęskniła\
