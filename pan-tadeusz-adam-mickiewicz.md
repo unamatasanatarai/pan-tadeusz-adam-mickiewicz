@@ -1,3 +1,4 @@
+Skoki pod nim sterczały jakby cztery pręty,\
 Rzekłbyś, że ich nie rusza, tylko ziemię trąca\
 Po wierzchu, jak jaskółka wodę całująca.\
 Pył za nim, psy za pyłem; z daleka się zdało,\
