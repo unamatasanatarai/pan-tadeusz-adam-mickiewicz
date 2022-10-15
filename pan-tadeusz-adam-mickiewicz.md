@@ -1,3 +1,4 @@
+Posażne i nadobne panny, w wieku kwiecie,\
 Zdaniem wszystkich najpierwsze partyje w powiecie,\
 Milczące, zaniedbane od milczącej młodzi.\
 Gościnnego Sędziego również to obchodzi;\
