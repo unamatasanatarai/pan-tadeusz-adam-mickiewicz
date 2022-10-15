@@ -1,3 +1,4 @@
+Naprzód, jako najpierwsza województwa władza,\
 Podkomorzy-Marszałek wziął miejsce zaszczytne:\
 Ze słoniowym poręczem krzesło aksamitne;\
 Obok na prawej stronie jenerał Dąbrowski,\
