@@ -1,3 +1,4 @@
+U dłoni skarbowane i wstążką opięte.\
 Szyja także koszulką obciśniona wąską,\
 Kołnierzyk zadzierzgniony różową zawiązką;\
 Zauszniczki wyrżnięte sztucznie z pestek wiszni,\
