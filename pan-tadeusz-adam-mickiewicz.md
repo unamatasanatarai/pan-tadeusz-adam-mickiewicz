@@ -1,3 +1,4 @@
+Kryje atak i odwrót przed nieprzyjacielem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Protazy, choć człek śmiały, uczuł nieco strachu:\
 Bo przypomniał z samego rośliny zapachu\
