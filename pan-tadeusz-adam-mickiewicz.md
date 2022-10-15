@@ -1,3 +1,4 @@
+Widocznie miecz teutoński z norymberskiej stali\
 Ukuty: wszyscy milcząc na broń poglądali.\
 Kto ją podniósł? nie widać; lecz zaraz zgadniono:\
 «To Scyzoryk! niech żyje Scyzoryk! — krzykniono —\
