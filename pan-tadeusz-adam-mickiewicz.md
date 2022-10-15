@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem weszła druga para narzeczona:\
 Asesor, niegdyś cara, dziś Napoleona\
 Wierny sługa; żandarmów oddział miał w komendzie,\
