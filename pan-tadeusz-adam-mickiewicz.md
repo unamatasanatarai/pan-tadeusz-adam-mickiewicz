@@ -1,3 +1,4 @@
+Czy potrzeba, żebyśmy zaraz w pole wyszli?\
 Strzelców zebrać, rzecz łatwa; prochu mam dostatek;\
 W plebanii u księdza jest kilka armatek;\
 Przypominam, iż Jankiel mówił, iż u siebie\
