@@ -1,3 +1,4 @@
+Tam konie rżące lecą ze skoszonej łąki:\
 Wszystko bieży ku studni, której ramię z drzewa\
 Raz wraz skrzypi i napój w koryta rozlewa.
 
