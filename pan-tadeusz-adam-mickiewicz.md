@@ -1,3 +1,4 @@
+Bądź zdrów, najmilszy bracie! bądź zdrów, śpieszyć muszę.\
 Jeśli zginę, ty jeden westchniesz za mą duszę;\
 W przypadku wojny, tobie cała tajemnica\
 Wiadoma: kończ, com zaczął, pomnij, żeś Soplica!»
