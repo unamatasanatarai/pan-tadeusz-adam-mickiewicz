@@ -1,3 +1,4 @@
+W tej chwili! O Gerwazy! uważ, przyjacielu,\
 Masz ludzkie serce!
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Stolnik rzekł: »Panie Soplica,\
