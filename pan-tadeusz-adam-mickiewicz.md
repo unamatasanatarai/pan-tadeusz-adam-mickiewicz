@@ -1,3 +1,4 @@
+Że o tym krzyżu nigdy i słowa nie rzekłem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu rozmowę przerwały chorego cierpienia,\
 I nastąpiła długa godzina milczenia.\
