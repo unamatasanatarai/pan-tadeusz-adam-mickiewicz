@@ -1,3 +1,4 @@
+Pamiętaj być mu grzeczną».
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Słychać rżenie koni\
 I gwar myśliwców; już są pod bramą: to oni!\
