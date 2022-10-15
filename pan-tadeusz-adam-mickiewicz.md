@@ -1,3 +1,4 @@
+Jako w porządnym domu, i obrok, i siano:\
 Bo Sędzia nigdy nie chciał, według nowej mody,\
 Odsyłać koni gości Żydom do gospody.\
 Słudzy nie wyszli witać; ale nie myśl wcale,\
