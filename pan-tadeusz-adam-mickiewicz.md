@@ -1,3 +1,4 @@
+Myśliłem zakopać go razem z ręką w grobie,\
 Lecz znalazłem dziedzica — Niechaj służy tobie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jenerał wpół śmiejąc się, a na wpół wzruszony:\
