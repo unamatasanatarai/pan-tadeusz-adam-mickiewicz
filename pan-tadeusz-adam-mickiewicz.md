@@ -1,3 +1,4 @@
+Odbył sam Hrabia, młody i niedoświadczony;\
 Poszedł więc z nim dla rady tudzież dla obrony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś miejsce Gerwazego, najdalsze od progu,\
