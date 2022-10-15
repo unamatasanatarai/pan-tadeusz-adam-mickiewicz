@@ -1,3 +1,4 @@
+Czas i ziemianinowi ustępować z pola».\
 Tak zwykł mawiać pan Sędzia, a Sędziego wola\
 Była Ekonomowi poczciwemu świętą;\
 Bo nawet wozy, w które już składać zaczęto\
