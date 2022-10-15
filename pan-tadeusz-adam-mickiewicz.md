@@ -1,3 +1,4 @@
+«To waść tak szczery? takeś mi serce otwierał?\
 Naprzód ów pojedynek, potem znowu miłość\
 I ten wyjazd; oj, jest tu w tym jakaś zawiłość.\
 Już mnie gadano, jużem kroki waści badał!\
