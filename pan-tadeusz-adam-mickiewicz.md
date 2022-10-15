@@ -1,3 +1,4 @@
+Po którym zemsta spływa na dziedziców w spadku:\
 W Polsce pierwszy raz słyszę o takim wypadku.\
 Czuję, że we mnie mężnych krew Horeszków płynie!\
 Wiem, co winienem sławie i mojej rodzinie.\
