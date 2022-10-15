@@ -1,3 +1,4 @@
+Rozbójnicy porwali w górach jego zięcia,\
 I okupu od krewnych żądali zuchwale;\
 My, zebrawszy naprędce sługi i wasale,\
 Wpadliśmy; ja dwóch zbójców ręką mą zabiłem,\
