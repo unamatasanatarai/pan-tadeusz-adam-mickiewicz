@@ -1,3 +1,4 @@
+Teraz oto w habicie jestem Bożym sługą,\
 Na łożu, we krwi... o niej mówiłem tak długo! —\
 W tej chwili, o tych rzeczach mówić? Bóg wybaczy!\
 Musicie wiedzieć, w jakim żalu i rozpaczy\
