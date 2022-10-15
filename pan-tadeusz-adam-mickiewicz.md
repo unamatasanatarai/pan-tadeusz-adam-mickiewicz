@@ -1,3 +1,4 @@
+Młodzież także przebrana, oprócz Telimeny\
 I kilku po francusku chodzących.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tej sceny\
