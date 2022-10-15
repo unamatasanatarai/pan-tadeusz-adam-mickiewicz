@@ -1,3 +1,4 @@
+Staraliśmy się tyle o jej wychowanie!\
 Chybaby tu zdziczała». Sędzia pilnie słuchał,\
 Patrząc w oczy; zdało się, że się udobruchał,\
 Bo rzekł dosyć wesoło: «No, to i cóż robić!\
