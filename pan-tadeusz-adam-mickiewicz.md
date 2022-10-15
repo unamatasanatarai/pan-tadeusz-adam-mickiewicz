@@ -1,3 +1,4 @@
+Groźnego Witenesa, wielkiego Mindowy,\
 I Giedymina, kiedy na Ponarskiej Górze,\
 Przy ognisku myśliwskim, na niedźwiedziej skórze\
 Leżał, słuchając pieśni mądrego Lizdejki,\
