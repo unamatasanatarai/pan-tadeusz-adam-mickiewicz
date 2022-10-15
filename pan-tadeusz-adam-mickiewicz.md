@@ -1,3 +1,4 @@
+Widziano, po konopiach ciemnych jego biała\
 Konfederatka niby gołąb przeleciała.\
 Konewka strzelił w czapkę, ale chybił celu;\
 Wtem zatrzeszczały tyki, już Protazy w chmielu.\
