@@ -1,3 +1,4 @@
+Czemuż? ach mój Gerwazy, czemuś wtenczas chybił?\
 Łaskę byś zrobił!... Widać, za pokutę grzechu\
 Trzeba było...»
 
