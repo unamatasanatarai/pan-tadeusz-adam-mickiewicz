@@ -1,3 +1,4 @@
+Nasz książę Józef i król Westfalski Hieronim.\
 Już zajęli część Litwy od Grodna po Słonim:\
 Gdy król rozkazał wojsku dać trzy dni wytchnienia.\
 Ale polscy żołnierze mimo utrudzenia\
