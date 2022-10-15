@@ -1,3 +1,4 @@
+Nagle stawał i w niebo poglądał żałośnie,\
 Jak kot, gdy ujrzy wróble na wysokiej sośnie;\
 Często bez psa, bez strzelby, błąkał się po gaju\
 Jak rekrut zbiegły; często siadał przy ruczaju\
