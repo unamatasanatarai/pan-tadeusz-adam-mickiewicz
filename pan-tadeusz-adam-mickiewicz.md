@@ -1,3 +1,4 @@
+Tu Ryków przerwał i jadł; wtem, z potrawą czwartą\
 Wszedł służący i raptem boczne drzwi otwarto.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Weszła nowa osoba przystojna i młoda.\
