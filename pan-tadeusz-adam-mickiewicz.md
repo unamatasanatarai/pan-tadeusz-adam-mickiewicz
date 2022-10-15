@@ -1,3 +1,4 @@
+A na czoło włożyła, zwyczajem żniwiarki,\
 Sierp krzywy, świeżym żęciem traw oszlifowany,\
 Jasny jak nów miesięczny nad czołem Dyjany.
 
