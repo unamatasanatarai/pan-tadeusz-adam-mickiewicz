@@ -1,3 +1,4 @@
+Spojrzy, klapnie paszczęką i białych kłów zgrzytem\
 Ledwie pogrozi; psiarnia pierzcha ze skowytem:\
 Tak i Gerwazy z groźną cofał się postawą,\
 Wstrzymując napastników oczyma i ławą,\
