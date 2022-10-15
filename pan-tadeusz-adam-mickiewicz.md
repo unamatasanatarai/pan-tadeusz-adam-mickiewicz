@@ -1,3 +1,4 @@
+Chociaż ku niemu takim słusznym gniewem pała,\
 Przelękła się; w istocie dobre serce miała.\
 Żal jej było, że inną śmiał Tadeusz lubić,\
 Chciała go skarać, ale nie myśliła zgubić.\
