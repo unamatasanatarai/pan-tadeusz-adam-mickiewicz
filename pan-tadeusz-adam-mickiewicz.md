@@ -1,3 +1,4 @@
+Nawet Odwaga załamuje ręce.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Te pokolenia żałobami czarne,\
 Powietrze tylą klątwami ciężarne,\
