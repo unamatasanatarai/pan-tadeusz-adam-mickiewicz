@@ -1,3 +1,4 @@
+W tłumie rozmów: więc szepcąc tak zbliżył się do niéj,\
 Że uczuł twarzą lubą gorącość jej skroni;\
 Wstrzymując oddech, usty chwytał jej westchnienie\
 I okiem łowił wszystkie jej wzroku promienie.
