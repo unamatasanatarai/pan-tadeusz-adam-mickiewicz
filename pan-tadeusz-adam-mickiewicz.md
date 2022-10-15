@@ -1,3 +1,4 @@
+Posłowi Rejtanowi i Księciu Denassów.\
 Przypadek był takowy:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Jenerał Podolskich\
