@@ -1,3 +1,4 @@
+Przyjaciela mojego córę Hreczeszankę.\
 Pozostała mi tylko pamiątka jej cnoty,\
 Jej wdzięków, i ten oto ślubny pierścień złoty.\
 Ilekroć nań spojrzałem, zawsze ma nieboga\
