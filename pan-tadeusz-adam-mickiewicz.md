@@ -1,3 +1,4 @@
+Zakończyła się nagłym wybuchem hałasu.\
 Jak strzelcy, gdy na lisa zaciągną do lasu,\
 Słychać gdzieniegdzie trzask drzew, strzały, psiarni granie,\
 A wtem dojeżdżacz dzika ruszył niespodzianie,\
