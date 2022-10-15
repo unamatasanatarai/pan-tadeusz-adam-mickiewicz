@@ -1,3 +1,4 @@
+«A jeśli ona szczęście znajdzie w tym zamęściu? —\
 Rzekł Sędzia wzrok podnosząc. — Jeśli Tadeuszka\
 Podoba?» — «Czy podoba? to na wierzbie gruszka!\
 Podoba, nie podoba: a to mi rzecz ważna!\
