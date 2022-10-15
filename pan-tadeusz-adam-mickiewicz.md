@@ -1,3 +1,4 @@
+Zażył dwakroć tabaki i przetarł powieki.\
 Chociaż Wojski Sędziemu był krewny daleki,\
 Ale w gościnnym jego domu zamieszkały,\
 O zdrowie przyjaciela był niezmiernie dbały.\
