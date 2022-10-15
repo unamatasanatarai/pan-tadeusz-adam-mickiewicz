@@ -1,3 +1,4 @@
+W pukle, i przeplatane różowymi wstęgi,\
 Pośród nich brylant, niby zakryty od oczu,\
 Świecił się jako gwiazda w komety warkoczu:\
 Słowem, ubiór galowy; szeptali niejedni,\
