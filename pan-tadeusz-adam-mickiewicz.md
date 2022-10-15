@@ -1,3 +1,4 @@
+Przy śniadaniach pan Sędzia, choć nierad, pozwalał\
 Na taki nieporządek, lecz go nie pochwalał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Różne też były dla dam i mężczyzn potrawy:\
