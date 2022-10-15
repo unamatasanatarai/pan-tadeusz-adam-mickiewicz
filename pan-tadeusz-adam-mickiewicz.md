@@ -1,3 +1,4 @@
+O Tadeuszku! jeśli może asan Zosię\
 Zbałamucił i teraz uciekasz, młokosie,\
 To się waści nie uda! Lubisz czy nie lubisz,\
 Zapowiadam asanu, że Zosię poślubisz;\
