@@ -1,3 +1,4 @@
+«Ogórków chcesz Waść — krzyknął — oto masz ogórki!\
 Wara, panie, od szkody; na tutejszej grzędzie\
 Nie dla Waszeci owoc, nic z tego nie będzie».\
 Potem palcem pogroził, kaptura poprawił,\
