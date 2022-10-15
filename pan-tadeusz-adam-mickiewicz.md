@@ -1,3 +1,4 @@
+Tak było w Wielkopolszcze: widzim rejteradę\
 Niemiecką: cóż my robim? wchodzim tajnie w radę,\
 Uzbrajamy i szlachtę, i włościan gromadę;\
 Gotowi, Dąbrowskiego czekamy rozkazu;\
