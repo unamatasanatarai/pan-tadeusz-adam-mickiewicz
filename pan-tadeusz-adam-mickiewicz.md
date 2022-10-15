@@ -1,3 +1,4 @@
+I tam szedł, gdzie ojczyzny dobro upatrywał?\
 Kto wie! To pewna, że go nigdy nie uwiodły\
 Ani chęć osobistej chwały, ni zysk podły,\
 I że nigdy z moskiewską partyją nie trzymał;\
