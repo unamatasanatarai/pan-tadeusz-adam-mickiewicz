@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na obelgę śmiertelną dla uszu szlachcica,\
 I której żaden nigdy nie słyszał Soplica,\
 Zadrżał Tadeusz, twarz mu pobladła jak trupia,\
