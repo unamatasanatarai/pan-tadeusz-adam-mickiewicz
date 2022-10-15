@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Księga ta miała tytuł: Kucharz doskonały.\
 W niej spisane dokładnie wszystkie specyjały\
 Stołów polskich; podług niej hrabia na Tęczynie\
