@@ -1,3 +1,4 @@
+Bo Wojski ma na jutro biesiadę wyprawić,\
 Którą chce dom Sopliców na wiek wieków wsławić:\
 Biesiadę godną miłych sercom polskim gości\
 I odpowiedną wielkiej dnia uroczystości,\
