@@ -1,3 +1,4 @@
+Że po jarzynach albo po życie pochodzą:\
 Na morgach chłopskich bronię robić polowanie».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ekonom z lewej izby rzekł: «Nie dziw, mospanie,\
