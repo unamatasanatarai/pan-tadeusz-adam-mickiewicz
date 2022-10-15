@@ -1,3 +1,4 @@
+Nie można szczęścia drugich tak na traf narażać.\
 Ostrzegam tylko wcześnie: niech brat Tadeusza\
 Nie namawia, kochać się w Zosi nie przymusza;\
 Bo serce nie jest sługa, nie zna co to pany,\
