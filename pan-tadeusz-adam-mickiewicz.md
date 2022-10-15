@@ -1,3 +1,4 @@
+Kto zabił, trudno dociec; strasznie się kłócili\
 I przysięgli strzelać się przez niedźwiedzią skórę:\
 To mi to po szlachecku, prawie rura w rurę.\
 Pojedynek ten wiele narobił hałasu;\
