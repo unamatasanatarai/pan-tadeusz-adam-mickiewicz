@@ -1,3 +1,4 @@
+Zajrzeć straszno, tam siedzą gospodarze lasu,\
 Dziki, niedźwiedzie, wilki; u wrót leżą kości\
 Na pół zgryzione jakichś nieostrożnych gości.\
 Czasem wymkną się w górę przez trawy zielenie,\
