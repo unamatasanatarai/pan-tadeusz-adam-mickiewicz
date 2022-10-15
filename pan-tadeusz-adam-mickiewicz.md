@@ -1,3 +1,4 @@
+Mężczyźni i kobiety, na przemian po parze,\
 Usiadają porządkiem, gdzie Wojski ukaże.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Sędzia, skłoniwszy się, opuścił biesiadę.\
