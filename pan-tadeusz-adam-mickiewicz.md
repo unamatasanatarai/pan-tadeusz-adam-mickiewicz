@@ -1,3 +1,4 @@
+Bo chciałem opowiedzieć wypadek ciekawy,\
 Podobny do zdarzenia wczorajszej wyprawy,\
 Co trafił się najpierwszym strzelcom za mych czasów,\
 Posłowi Rejtanowi i Księciu Denassów.\
