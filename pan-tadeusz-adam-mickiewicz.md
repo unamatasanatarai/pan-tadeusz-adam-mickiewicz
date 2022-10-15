@@ -1,3 +1,4 @@
+«Panno Zofio — rzecze — pani Telimeno!\
 Nigdy się krwią bezbronnych ta szpada nie splami;\
 Soplicowie! jesteście moimi więźniami.\
 Tak zrobiłem we Włoszech, kiedy pod opoką,\
