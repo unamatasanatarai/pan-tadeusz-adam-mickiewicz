@@ -1,3 +1,4 @@
+A młodszej przysunąwszy z talerzem ogórki,\
 Rzekł: «Muszę ja wam służyć, moje panny córki,\
 Choć stary i niezgrabny». Zatem się rzuciło\
 Kilku młodych od stołu i pannom służyło.\
