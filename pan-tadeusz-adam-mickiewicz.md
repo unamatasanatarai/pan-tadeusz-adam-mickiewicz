@@ -1,3 +1,4 @@
+Ma rapier, że Płut pierwszy komendant, ja drugi:\
 Płut został żywy, może on wam zagiąć kruczka\
 Takiego, że zginiecie, bo to chytra sztuczka;\
 Trzeba mu gębę zatkać bankowym papierem.\
