@@ -1,3 +1,4 @@
+Widać, że się uzbrajał: leżały dwururki\
 I sztućce na podłodze, dalej sztenfle, kurki,\
 I narzędzia ślusarskie, którymi rynsztunki\
 Poprawiano; proch, papier: robiono ładunki.\
