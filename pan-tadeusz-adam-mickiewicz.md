@@ -1,3 +1,4 @@
+Teraz nie mógłbym z panną Różą się ożenić,\
 Kiedy kocham tę Zosię; trudno serce zmienić!\
 Nieuczciwie, żeniąc się z jedną, kochać drugą.\
 Czas może mnie uleczy; wyjadę — na długo».
