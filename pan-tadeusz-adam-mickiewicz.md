@@ -1,3 +1,4 @@
+Ową piosenkę, sławną dziś na całym świecie,\
 A którą po raz pierwszy na ziemi Auzonów\
 Wygrały Włochom polskie trąby legijonów.\
 Talent śpiewania bardzo na Litwie popłaca,\
