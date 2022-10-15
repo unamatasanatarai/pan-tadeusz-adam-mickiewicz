@@ -1,3 +1,4 @@
+Która się stała właśnie w tej izbie, nie innej.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nieboszczyk pan mój, Stolnik, pierwszy pan w powiecie,\
 Bogacz i familiant, miał jedyne dziecię,\
