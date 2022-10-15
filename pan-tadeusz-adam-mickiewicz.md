@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gorzej było. Raz w Wilnie jakiś szlachcic pjany\
 Bił się w szable z Domeyką i dostał dwie rany;\
 Potem ów szlachcic, z Wilna wracając do domu,\
 Dziwnym trafem z Doweyką zjechał się u promu.\
