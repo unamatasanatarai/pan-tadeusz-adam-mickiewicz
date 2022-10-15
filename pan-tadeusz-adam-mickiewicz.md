@@ -1,3 +1,4 @@
+Ilekroć z Prus powracam, chcąc zmyć się z niemczyzny,\
 Wpadam do Soplicowa jak w centrum polszczyzny;\
 Tam się człowiek napije, nadysze ojczyzny!\
 Dalbóg Dobrzyńscy! ja wasz brat, ale Sędziego\
