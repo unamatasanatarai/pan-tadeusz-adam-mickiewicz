@@ -1,3 +1,4 @@
+Czy jakoś na obliczu przetarł się z trafunku:\
 Gdzieniegdzie zrzedniał, na wskroś grubszą płeć odsłania...\
 Może to sam Tadeusz, w *Świątyni dumania*,\
 Rozmawiając za blisko, omusknął z bielidła\
