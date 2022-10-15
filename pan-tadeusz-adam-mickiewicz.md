@@ -1,3 +1,4 @@
+Wić się jak wąż u kolan, wołać: »Ojcze drogi,\
 Weź za syna lub zabij!« Wtem Stolnik posępny,\
 Zimny jako słup soli, grzeczny, obojętny,\
 Wszczął dyskurs — o czym? o czym? o córki weselu!...\
