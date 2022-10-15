@@ -1,3 +1,4 @@
+Jedna z tych miłych, jasnych twarzyczek dziecinnych,\
 Które pomnim widziane we śnie lat niewinnych.\
 Twarzyczka schyliła się — ujrzał, drżąc z bojaźni\
 I radości, niestety! ujrzał najwyraźniej,\
