@@ -1,3 +1,4 @@
+Niby rojem owadów czarnych: w każdej plamie\
 Siedzi we środku kula jak trzmiel w ziemnej jamie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;U drzwi domostwa wszystkie klamki, ćwieki, haki\
