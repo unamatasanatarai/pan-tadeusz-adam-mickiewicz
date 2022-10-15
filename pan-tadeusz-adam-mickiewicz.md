@@ -1,3 +1,4 @@
+Drążki, którymi zwykle mistrz we struny dzwoni;\
 Drugą rączką po siwej brodzie starca głaska\
 I dygając: «Jankielu — mówi — jeśli łaska!\
 Wszak to me zaręczyny: zagrajże Jankielu!\
