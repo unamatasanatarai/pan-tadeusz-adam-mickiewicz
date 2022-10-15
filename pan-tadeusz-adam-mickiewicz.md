@@ -1,3 +1,4 @@
+To póki o wskrzeszeniu Polski była rada,\
 O dobru pospolitym, głupi, u was zwada?\
 Nie można było, głupi, ani się rozmówić,\
 Głupi, ani porządku, ani postanowić\
