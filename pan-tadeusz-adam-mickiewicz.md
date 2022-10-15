@@ -1,3 +1,4 @@
+Podsłuchiwać, co Zosia mówiła do Hrabi.\
 Dziewczyna, uprzejmością Hrabiego ujęta,\
 Zrazu rumieniła się, spuściwszy oczęta,\
 Potem śmiać się zaczęli, w końcu rozmawiali\
