@@ -1,3 +1,4 @@
+Poczciwe było dziecko i dziś taki samy;\
 Polskę kocha nad wszystko, polskie obyczaje\
 Chowa, modom moskiewskim przystępu nie daje.\
 Ilekroć z Prus powracam, chcąc zmyć się z niemczyzny,\
