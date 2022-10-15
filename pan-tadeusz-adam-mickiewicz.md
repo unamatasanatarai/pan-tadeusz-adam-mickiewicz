@@ -1,3 +1,4 @@
+Wystawiony na stołków i butelek razy,\
 Już zachwiał się, już czeladź zakasawszy pięście\
 Rzucała się nań zewsząd hurmem: gdy na szczęście\
 Zosia, widząc szturm, skoczy, i litością zdjęta\
