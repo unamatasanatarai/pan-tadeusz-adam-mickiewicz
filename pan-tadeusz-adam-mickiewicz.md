@@ -1,3 +1,4 @@
+Po ramionach i w głowę ugadza kaprala.\
 Reszta zlękła od kłody cofa się z przestrachem:\
 Tak Kropiciel ruchomym nakrył szlachtę dachem.
 
