@@ -1,3 +1,4 @@
+Od której drzewa wkoło tracą liść i korę;\
 Łyse, skarłowaciałe, robaczliwe, chore,\
 Pochyliwszy konary mchem kołtunowate\
 I pnie garbiąc, brzydkimi grzybami brodate,\
