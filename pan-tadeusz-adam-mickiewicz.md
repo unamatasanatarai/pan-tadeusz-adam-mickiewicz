@@ -1,3 +1,4 @@
+Przerwał rozmowę gości; znać, że głos zabiera:\
 Błysnęła przy księżycu wielka tabakiera\
 (Cała z szczerego złota, z brylantów oprawa,\
 We środku, za szkłem, portret króla Stanisława);\
