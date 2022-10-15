@@ -1,3 +1,4 @@
+Aż skradłszy się do okna, wpadł w ogród konopny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wprawdzie już wtenczas w Litwie nie było zwyczajem\
 Opędzać się od pozwów szablą lub nahajem,\
