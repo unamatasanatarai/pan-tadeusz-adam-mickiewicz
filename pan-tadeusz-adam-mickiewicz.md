@@ -1,3 +1,4 @@
+Albo na imieniny pańskie, lub na łowy.\
 Podczas uczty na chorze tym kapela stała,\
 I w organ, i w rozliczne instrumenty grała;\
 A gdy wnoszono zdrowie, trąby jak w dniu sądnym\
