@@ -1,3 +1,4 @@
+Nagotowane z rana, bo od rana wiedział,\
 Że u wieczerzy będzie z mnóstwem gości siedział.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Wojski poznał z dala, ręce rozkrzyżował\
