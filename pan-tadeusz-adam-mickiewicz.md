@@ -1,3 +1,4 @@
+Rozdziawiwszy się ciągną gawędy rozwlokłe;\
 Obrzydłe gospodarzom jako wróżby słoty.\
 Gospodarze już dawno wyszli do roboty.
 
