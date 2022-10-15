@@ -1,3 +1,4 @@
+W końcu, stawiła przed nim trzy z chleba gałeczki.\
 Trzy osoby na wybór; wziął najbliższą sobie;\
 Podkomorzanki na to zmarszczyły się obie,\
 Sąsiadka zaśmiała się, lecz nie powiedziała\
