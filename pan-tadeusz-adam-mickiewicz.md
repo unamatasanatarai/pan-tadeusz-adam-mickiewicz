@@ -1,3 +1,4 @@
+Odgłosy trąb i wrzaski polującej tłuszczy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Koń Tadeusza czekał w stajni osiodłany.\
 Wziął więc flintę, skoczył nań i jak opętany\
