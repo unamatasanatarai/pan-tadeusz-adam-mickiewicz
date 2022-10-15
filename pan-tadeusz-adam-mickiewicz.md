@@ -1,3 +1,4 @@
+Przebóg! czy się to zgadza z pana urodzeniem,\
 Wychowaniem i z pana na świecie znaczeniem?\
 Nie pozwolę skrzywdzić się!» Wtem Sędziego słudzy\
 Biegli, jedni z kijami, ze strzelbami drudzy;\
