@@ -1,3 +1,4 @@
+Mierzejewscy, Brochocki i Bernatowicze,\
 Kupść, Gedymin i inni, których nie policzę:\
 Opuszczali rodziców i ziemię kochaną,\
 I dobra, które na skarb carski zabierano.
