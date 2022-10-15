@@ -1,3 +1,4 @@
+Do zamku; tam na nocleg cały tłum się zbiera,\
 Tam założona główna Hrabiego kwatera.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nakładają sto ognisk, warzą, skwarzą, pieką,\
