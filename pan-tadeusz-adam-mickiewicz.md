@@ -1,3 +1,4 @@
+Zbladł i Asesor; widzą... fatalnie się dzieje:\
 Owa żmija im dalej, tym bardziej dłużeje,\
 Już rwie się wpół, już znikła owa szyja pyłu,\
 Głowa już blisko lasu, ogony, gdzie z tyłu!\
