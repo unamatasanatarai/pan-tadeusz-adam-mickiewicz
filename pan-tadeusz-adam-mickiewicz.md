@@ -1,3 +1,4 @@
+«Toś zuch Bartku — rzekł Chrzciciel — dobrze! kropić, kropić!»\
 «Ależ, najsłodszy Jezu! trzeba pierwej wiedzieć\
 Z kim wojna? o co? trzeba to światu powiedzieć —\
 Wołał Prusak — bo jakże lud ruszy za nami?\
