@@ -1,3 +1,4 @@
+Kto tak prędko sąsiedztwo z zaścianków zgromadził?\
 Asesor li, czy Jankiel? Różnie słychać o tem,\
 Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.
 
