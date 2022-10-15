@@ -1,3 +1,4 @@
+Gdy go ujrzy szlachcicem wielmożnym, herbownym.\
 Sejm potwierdzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    A niech się mąż pani nie trwoży,\
