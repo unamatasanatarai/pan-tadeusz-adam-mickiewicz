@@ -1,3 +1,4 @@
+Choć lubił o nich gadać. Człek podeszły w lata,\
 W podróżach swych dalekich wiele zwiedził świata;\
 Gazet pilny czytelnik, polityki świadom,\
 W niebytność Maćka zwykle przewodził obradom.\
