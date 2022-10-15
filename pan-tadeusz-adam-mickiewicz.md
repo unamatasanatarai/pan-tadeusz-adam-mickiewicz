@@ -1,3 +1,4 @@
+Od wschodu do zachodu kręci się za słońcem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pod płotem wąskie, długie, wypukłe pagórki,\
 Bez drzew, krzewów i kwiatów: ogród na ogórki.\
