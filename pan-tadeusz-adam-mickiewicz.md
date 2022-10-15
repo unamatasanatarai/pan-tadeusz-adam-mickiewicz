@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Któż zbadał puszcz litewskich przepastne krainy,\
 Aż do samego środka, do jądra gęstwiny?\
 Rybak ledwie u brzegów nawiedza dno morza;\
 Myśliwiec krąży koło puszcz litewskich łoża,\
