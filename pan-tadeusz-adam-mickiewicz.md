@@ -1,3 +1,4 @@
+Strzelcy i obławnicy poszli jedną stroną\
 Na przełaj źwierza, między ostępem i puszczą,\
 A niedźwiedź, odstraszony psów i ludzi tłuszczą,\
 Zwrócił się nazad w miejsca mniej pilnie strzeżone\
