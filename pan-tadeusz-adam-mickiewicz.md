@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie ostatnie słowa domówił Gerwazy,\
 Gdy poważnymi kroki przystąpił Protazy.\
 Skłonił się i wydobył z zanadrza kontusza\
