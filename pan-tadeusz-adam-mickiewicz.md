@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wstała młodzież. Tadeusz jeszcze senny leży;\
 Bo też najpóźniej zasnął. Z wczorajszej wieczerzy\
 Wrócił tak niespokojny, że o kurów pianiu\
 Jeszcze oczu nie zmrużył, a na swym posłaniu\
