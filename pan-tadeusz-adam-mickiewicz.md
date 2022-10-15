@@ -1,3 +1,4 @@
+Gdyby nieboszczyk pan mój Stolnik dożył chwili!\
 O Jacku! Jacku!... lecz cóż będziemy kwilili?\
 Skoro dziś znowu Litwa łączy się z Koroną,\
 Toć tym samym już wszystko zgodzono, zgładzono».
