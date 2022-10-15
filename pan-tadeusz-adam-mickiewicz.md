@@ -1,3 +1,4 @@
+Darmo czekały znawców, nikt nie zważał na nie,\
 Tak mocno zajmowało wszystkich grzybobranie.\
 Tadeusz przecież zważał i w bok strzelał okiem,\
 I nie śmiejąc iść prosto, przysuwał się bokiem:\
