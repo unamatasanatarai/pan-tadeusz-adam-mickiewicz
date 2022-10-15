@@ -1,3 +1,4 @@
+Okiem powrócił w ogród, ale już w ogrodzie\
 Nie było jej; mignęła tylko śród okienka\
 Jej różowa wstążeczka i biała sukienka.\
 Widać na grzędach, jaką przeleciała drogą,\
