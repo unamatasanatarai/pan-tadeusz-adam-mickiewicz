@@ -1,3 +1,4 @@
+Jeszcze cywilizacją ludzką nie popsuci,\
 Nie znają praw własności, która świat nasz kłóci,\
 Nie znają pojedynków ni wojennej sztuki.\
 Jak ojce żyły w raju, tak dziś żyją wnuki,\
