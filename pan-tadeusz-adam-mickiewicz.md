@@ -1,3 +1,4 @@
+Rozeznając w niej model swojego obrazu.\
 Miejsca piękność, postawy wdzięk i gust ubrania\
 Zmieniły ją, zaledwo była do poznania.\
 W oczach świeciły jeszcze niezagasłe gniewy;\
