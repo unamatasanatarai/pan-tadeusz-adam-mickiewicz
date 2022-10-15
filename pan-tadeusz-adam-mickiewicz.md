@@ -1,3 +1,4 @@
+Nie wiedział, czy to jawa, czyli mu się marzy\
 Jedna z tych miłych, jasnych twarzyczek dziecinnych,\
 Które pomnim widziane we śnie lat niewinnych.\
 Twarzyczka schyliła się — ujrzał, drżąc z bojaźni\
