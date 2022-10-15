@@ -1,3 +1,4 @@
+Przemawiali śród gwaru i wrzasku czeredy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski jechał pośrodku; staruszek szanowny,\
 Wesoły był nadzwyczaj i bardzo rozmowny.\
