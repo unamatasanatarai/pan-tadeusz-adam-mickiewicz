@@ -1,3 +1,4 @@
+Że od Sopliców byłam za córkę przybrana,\
 W ich domu hodowana i za mąż wydana.\
 Wsi nie lękam się. Jeśli w wielkim mieście żyłam,\
 To dawno, zapomniałam, wieś zawsze lubiłam;\
