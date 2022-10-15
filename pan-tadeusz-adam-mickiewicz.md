@@ -1,3 +1,4 @@
+Siedziała przed zwierciadłem radząc się bóstw wdzięku;\
 Pokojowe zaś, jedne z żelazkami w ręku\
 Odświeżają nadstygłe warkoczów pierścionki,\
 Drugie klęcząc pracują około falbonki.
