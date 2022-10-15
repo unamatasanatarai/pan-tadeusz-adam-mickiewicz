@@ -1,3 +1,4 @@
+Kocha się, to tam u nich nieszczęść co niemiara!\
 To cieszą się, to znowu trapią się i smucą,\
 To znowu, Bóg wie o co, do zębów się kłócą,\
 To stojąc w kątkach jakby mruki, nie gadają\
