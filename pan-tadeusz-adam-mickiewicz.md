@@ -1,3 +1,4 @@
+Jak gdybym Sanktissimum ujrzał!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ileż to razy chciałem serce me otworzyć,\
 I już się nawet przed nim do próśb upokorzyć,\
