@@ -1,3 +1,4 @@
+Biega; jeden drugiego pyta co to znaczy,\
 Starzy składają radę, młódź konie kulbaczy,\
 Kobiety zatrzymują, chłopcy się szamocą,\
 Rwą się biec, bić się, ale nie wiedzą z kim, o co?\
