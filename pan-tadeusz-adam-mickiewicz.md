@@ -1,3 +1,4 @@
+Głowy charakterowe! z kontrastem oblicza!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podchodził, wstrzymywał się, lornetkę przecierał,\
 Oczy chustką obwiewał i coraz spozierał:\
