@@ -1,3 +1,4 @@
+I chrzciny obchodzono, on w każdą niedzielę\
 Kazał do siebie ze wsi przychodzić muzyce,\
 Przy której i basetla była, i kozice.
 
