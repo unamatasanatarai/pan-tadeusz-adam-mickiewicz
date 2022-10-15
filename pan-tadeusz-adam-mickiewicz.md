@@ -1,3 +1,4 @@
+Teraz Sędziego, który już spał od godziny,\
 Przychodzi budzić; pewnie ma jakieś nowiny.
 
 
