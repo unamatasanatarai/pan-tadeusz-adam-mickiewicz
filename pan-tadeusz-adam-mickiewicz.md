@@ -1,3 +1,4 @@
+Niebios zgasły, i niebo środkiem czoła bladnie.\
 Prawą skronią złożone na wezgłowiu cieni\
 Jeszcze smagławe, lewą coraz się rumieni;\
 A dalej okrąg, jakby powieka szeroka\
