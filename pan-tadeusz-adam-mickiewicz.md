@@ -1,3 +1,4 @@
+A dlaczego to robił? że wam był sąsiadem!\
 Dziś Soplica kopcami tyka waszych granic:\
 Cóż kiedy wam dobrego zrobił on?»
 
