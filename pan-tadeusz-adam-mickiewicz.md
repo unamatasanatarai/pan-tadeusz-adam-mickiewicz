@@ -1,3 +1,4 @@
+Pan słaniając się, palcem ukazał na bramę:\
 Poznałem tego łotra Soplicę! poznałem!\
 Po wzroście i po wąsach! Jego to postrzałem\
 Zginął Stolnik, widziałem! Łotr jeszcze do góry\
