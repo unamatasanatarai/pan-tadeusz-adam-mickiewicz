@@ -1,3 +1,4 @@
+A żołnierz rokiem wojny; dotąd lubią starzy\
 O tobie bajać, dotąd pieśń o tobie marzy.\
 Z dawna byłeś niebieskim oznajmiony cudem\
 I poprzedzony głuchą wieścią między ludem;\
