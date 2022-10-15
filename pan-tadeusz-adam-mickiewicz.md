@@ -1,3 +1,4 @@
+I waszeć z nami ruszysz, Sędzio mój sąsiedzie,\
 I pani Telimena, i panny, i panie,\
 Słowem, zrobim na urząd wielkie polowanie;\
 I Wojski towarzystwa nam też nie odmówi».\
