@@ -1,3 +1,4 @@
+Jak para mistrzów w Słucku lity pas wyrabia:\
 Dziewica siedząc w dole krośny ujedwabia\
 I tło ręką wygładza, tymczasem tkacz z góry\
 Zrzuca jej nitki srebra, złota i purpury,\
