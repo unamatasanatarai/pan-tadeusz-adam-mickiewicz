@@ -1,3 +1,4 @@
+I dla mnie! bo ja zawżdy za twą duszę proszę.\
 Jakem bernardyn, bardzo myślę o twej duszy!\
 Śmierć i sztabsoficerów porywa za uszy!\
 Dobrze napisał Baka, że śmierć dżga za katy\
