@@ -1,3 +1,4 @@
+Wojski przez okno kuchni, ponad starców głowy,\
 Wytknąwszy głowę, milczkiem słuchał ich rozmowy,\
 I podał im nareszcie filiżanki spodek\
 Pełen biszkoktów, mówiąc: «Zakąście wasz miodek.\
