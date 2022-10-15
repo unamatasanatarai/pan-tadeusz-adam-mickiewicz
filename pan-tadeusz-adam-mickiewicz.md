@@ -1,3 +1,4 @@
+Miałyżby wojnę wróżyć ci jeźdźcy? te bronie?\
 Ekonom pobiegł wszystko Sędziemu powiedzieć,\
 Spodziewając się i sam czegoś się dowiedzieć.
 
