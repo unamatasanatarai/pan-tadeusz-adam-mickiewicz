@@ -1,3 +1,4 @@
+Ściskają się, grubieją, rosną — nowe dziwy!\
 Dostają krzywych karków, rozpuszczają grzywy,\
 Wysuwają nóg rzędy i po niebios sklepie\
 Przelatują jak tabun rumaków po stepie:\
