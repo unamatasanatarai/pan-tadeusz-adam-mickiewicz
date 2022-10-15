@@ -1,3 +1,4 @@
+Kapitan wziął gitarę i struny przykręcał,\
 Płut znowu Telimenę do tańca zachęcał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Słowo majorskie, panno: nie Rosyjaninem\
