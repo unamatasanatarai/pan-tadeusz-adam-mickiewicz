@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na finał szmerów muszych i ptaszęcej wrzawy\
 Odezwały się chórem podwójnym dwa stawy:\
 Jako zaklęte w górach kaukaskich jeziora\
