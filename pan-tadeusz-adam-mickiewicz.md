@@ -1,3 +1,4 @@
+Nie bądź tchórz, wyjdź na środek, bij się honorowie,\
 Po żołniersku». A na to Tadeusz odpowie:\
 «Majorze! jeśli jesteś tak śmiałym rycerzem,\
 A czegoż ty się chowasz za jegrów kołnierzem?\
