@@ -1,3 +1,4 @@
+Dostrzegła Telimena, iż pierwsze spojrzenie\
 Zosi tak wielkie na nim zrobiło wrażenie;\
 Nie odgadła wszystkiego, przecież pomięszana\
 Bawi gości, a z oczu nie spuszcza młodziana.\
