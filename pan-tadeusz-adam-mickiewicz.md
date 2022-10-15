@@ -1,3 +1,4 @@
+Pies zowie się Sprawnikiem, a suka Strapczyną;\
 Zakneblować im pyski, zawiązać je w miechu,\
 I przystawić je tutaj konno dla pośpiechu».\
 «Wańka! — krzyknął na chłopca Asesor po rusku —\
