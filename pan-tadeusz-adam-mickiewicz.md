@@ -1,3 +1,4 @@
+Tam założona główna Hrabiego kwatera.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nakładają sto ognisk, warzą, skwarzą, pieką,\
 Gną się stoły pod mięsem, trunek płynie rzeką;\
