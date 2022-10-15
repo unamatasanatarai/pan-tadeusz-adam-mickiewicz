@@ -1,3 +1,4 @@
+Które zawsze miał z sobą, i na pień wygięty,\
 Rozpiąwszy kartkę, widać, że obraz malował,\
 Mówiąc sam z sobą: «Jakbyś umyślnie grupował:\
 Ten na głazie, ta w trawie; grupa malownicza!\
