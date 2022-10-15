@@ -1,3 +1,4 @@
+Na polu łatwo można napotkać się z kotem;\
 Bez smyczy szły przy koniach; gdy kota spostrzegły,\
 Wprzód nim strzelcy poszczuli, już za nim pobiegły.\
 Rejent też i Asesor chcieli końmi natrzeć;\
