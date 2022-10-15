@@ -1,3 +1,4 @@
+Sędziemu, to bardzo źle. Możecie się pobić,\
 Zabić — a asesory? a sprawnik? a turma?\
 Bo w wiosce u Soplicy jest żołnierzy hurma,\
 Wszystko jegry! Asesor w domu: tylko świśnie,\
