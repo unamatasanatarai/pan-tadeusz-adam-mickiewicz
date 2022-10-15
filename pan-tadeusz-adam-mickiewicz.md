@@ -1,3 +1,4 @@
+I nie mógł w niebie dojrzeć nic przez okulary,\
 Lecz na pamięć znał imię i kształt każdej gwiazdy:\
 Wskazywał palcem miejsca i drogę ich jazdy.
 
