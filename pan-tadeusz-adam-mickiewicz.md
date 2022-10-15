@@ -1,3 +1,4 @@
+I proszę, takiś dotąd czerstwy, taki żwawy!\
 Ileż to lat minęło! Patrz, jam się podstarzał;\
 Patrz, i Kniaziewiczowi już się włos poszarzał:\
 A ty jeszcze z młodymi mógłbyś pójść w zapasy,\
