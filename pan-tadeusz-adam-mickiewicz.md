@@ -1,3 +1,4 @@
+Jeszcze raz przed uszami myśliwców rozwinął;\
 Napełnił wnet, ożywił knieje i dąbrowy,\
 Jakby psiarnię w nie wpuścił i rozpoczął łowy.\
 Bo w graniu była łowów historyja krótka:\
