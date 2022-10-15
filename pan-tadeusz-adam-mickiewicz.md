@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Po tej protestacyi, która się ozwała\
 Jak na zdobytych wałach ostatni strzał działa,\
 Ustał już wszelki opór w Soplicowskim dworze.\
