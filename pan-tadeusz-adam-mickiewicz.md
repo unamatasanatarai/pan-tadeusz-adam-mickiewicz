@@ -1,3 +1,4 @@
+A kiedy na łęk wskoczysz, na tym miękkim puszku\
 Między kulami siedzisz wygodnie jak w łóżku;\
 A gdy w galop puścisz się (tu Rejent Bolesta,\
 Który, jako wiadomo, bardzo lubił gesta,\
