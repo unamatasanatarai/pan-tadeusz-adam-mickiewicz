@@ -1,3 +1,4 @@
+I wstęgi rozplecione, ozdoby warkoczy,\
 Śród głów męskich jak w zbożu bławat i kąkole.\
 Klęczący różnobarwny tłum okrywa pole,\
 A na głos dzwonka, niby na wiatru powianie,\
