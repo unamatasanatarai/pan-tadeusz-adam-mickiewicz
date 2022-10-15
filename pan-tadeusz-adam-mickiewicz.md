@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż, zaledwie kogut, co odprawia warty,\
 Stanie i nieruchomie dzierżąc dziób zadarty,\
 I głowę grzebieniastą pochyliwszy bokiem,\
