@@ -1,3 +1,4 @@
+Pani udzieli jednym wioskom Półkozica,\
 Drugim niech swą Leliwę nada pan Soplica.\
 Natenczas i Rębajło uzna chłopa równym,\
 Gdy go ujrzy szlachcicem wielmożnym, herbownym.\
