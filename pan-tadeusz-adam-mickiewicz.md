@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wtem jenerał Kniaziewicz wziął ją za ramiona,\
 I złożywszy ojcowski całus na jej czole,\
 Podniósł w górę dziewczynę, postawił na stole,\
 A wszyscy klaszcząc w dłonie zawołali: «Brawo!»\
