@@ -1,3 +1,4 @@
+Wkrótce jako zwycięskich swych zbawców zobaczy.\
 Sędzia wszystko, co trzeba, zgotuje na drogę\
 I ja pieniędzmi, ile zdołam, dopomogę».
 
