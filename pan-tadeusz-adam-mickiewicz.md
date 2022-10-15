@@ -1,3 +1,4 @@
+Koza« — a co, Dobrzyński? widzisz: będzie łoza!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Potem Sędziemu szepnął, schyliwszy się w ucho:\
 «Jeśli chcesz Sędzio, żeby to uszło na sucho,\
