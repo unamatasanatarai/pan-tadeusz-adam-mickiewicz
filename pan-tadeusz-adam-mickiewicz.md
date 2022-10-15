@@ -1,3 +1,4 @@
+Toć tym samym już wszystko zgodzono, zgładzono».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«I to dziw — rzekł Protazy — że o tej to Zosi,\
 O której rękę teraz nasz Tadeusz prosi,\
