@@ -1,3 +1,4 @@
+Wdział szlafmycę, a ręce do łokciów zakasał;\
 W ręku ma plackę muszą, owad lada jaki\
 Opędza, wpadający chciwie na przysmaki;\
 Drugą ręką przetarte okulary włożył,\
