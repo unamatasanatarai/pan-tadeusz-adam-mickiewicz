@@ -1,3 +1,4 @@
+A od tylu lat siedzi jak mnich na swym dworze,\
 Nikt go na polowanie uprosić nie może,\
 Białopiotrowiczowi samemu odmówił!\
 Bo cóż by on na waszych polowaniach łowił?\
