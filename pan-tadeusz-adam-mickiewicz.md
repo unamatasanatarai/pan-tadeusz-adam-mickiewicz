@@ -1,3 +1,4 @@
+Brakło cymbałów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Było cymbalistów wielu,\
 Ale żaden z nich nie śmiał zagrać przy Jankielu\
