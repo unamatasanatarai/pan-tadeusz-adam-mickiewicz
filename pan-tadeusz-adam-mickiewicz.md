@@ -1,3 +1,4 @@
+Bo wszyscy zdają mi się mieć równe zasługi,\
 Wszyscy równi zręcznością, biegłością i męstwem.\
 Przecież dwóch dziś odznaczył los niebezpieczeństwem.\
 Dwaj byli niedźwiedziego najbliżsi pazura:\
