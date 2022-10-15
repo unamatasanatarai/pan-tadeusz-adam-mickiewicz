@@ -1,3 +1,4 @@
+Ale jechać dziś, skądżeś waszeć tak się zaciął?\
 Przed pojedynkiem zwyczaj jest posłać przyjaciół,\
 Układać się. Wszak Hrabia może nas przeprosić,\
 Deprekować; czekaj waść, czasu jeszcze dosyć.\
