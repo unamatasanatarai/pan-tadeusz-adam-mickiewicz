@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem pan Tadeusz stryja obejmował\
 Ze łzami i Robaka w rękę pocałował.\
 Robak, ku piersiom chłopca przycisnąwszy skronie\
