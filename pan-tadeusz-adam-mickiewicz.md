@@ -1,3 +1,4 @@
+Zapewne wybierano oręż z tego braku,\
 I poruszono nawet stare broni składy.\
 Robak obejrzał pilnie rusznice i szpady,\
 A potem do folwarku wybrał się na zwiady,\
