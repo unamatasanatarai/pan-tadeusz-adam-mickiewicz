@@ -1,3 +1,4 @@
+Podobny do szmermelu albo do rakiety.\
 Chodziły za nim prosząc i płacząc kobiety.\
 «Majorze — mówił Sędzia — choć pozwiesz do prawa;\
 Cóż wygrasz? Tu nie zaszła żadna bitwa krwawa,\
