@@ -1,3 +1,4 @@
+Skórą tą rozrządzimy wedle naszej woli:\
 Pierwszy wieniec i sławę już wziął sługa boży;\
 Skórę jaśnie wielmożny pan nasz Podkomorzy\
 Temu da, kto na drugą nagrodę zasłużył».
