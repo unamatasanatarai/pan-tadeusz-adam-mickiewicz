@@ -1,3 +1,4 @@
+Pójdę za tobą wszędzie; każdy świata kątek\
 Będzie mnie z tobą miły! Z najdzikszej pustyni\
 Miłość, wierzaj mi, ogród rozkoszy uczyni».
 
