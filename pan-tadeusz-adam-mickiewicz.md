@@ -1,3 +1,4 @@
+Czyś był konfederatem? pięknie, doskonale!\
 To sztych Puławskich! tak się Dzierżanowski składał.\
 To sztych Sawy! Któż panu tak rękę układał?\
 Chyba Maciej Dobrzyński! A to? Jenerale,\
