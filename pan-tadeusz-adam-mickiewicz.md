@@ -1,3 +1,4 @@
+Raz tylko! Panie daj mu wieczny odpoczynek!\
 Bezbronnego człowieka, niestety, sprzątniono...\
 A i to, Bóg mi świadkiem, pro publico bono».
 
