@@ -1,3 +1,4 @@
+Nazwane *kosarzami*, na muchy wpółsenne:\
 Zaledwie która bzyknie, już długimi nogi\
 Obejmuje ją wkoło i dusi mistrz srogi.\
 Sen szlachecki był jeszcze twardszy niż sen muszy:\
