@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Po tej z sobą odbytej, stanowczej naradzie,\
 Woła przez okno Zosię, bawiącą się w sadzie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia w porannym stroju i z głową odkrytą\
