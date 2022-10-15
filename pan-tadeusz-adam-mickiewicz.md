@@ -1,3 +1,4 @@
+Szatan radził — Już byłem możny i bogaty;\
 Gdybym został Moskalem, najpierwsze magnaty\
 Szukałyby mych względów; nawet szlachta braty,\
 Nawet gmin, który swoim tak łacnie uwłacza,\
