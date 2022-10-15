@@ -1,3 +1,4 @@
+Lękając się, żebym go nie zaczął spowiadać;\
 Ale to rzecz nie moja, wiele o tym gadać!\
 On tu nie przyjdzie; próżno wzywać bernardyna.\
 Jeśli od niego wyszła ta cała nowina,\
