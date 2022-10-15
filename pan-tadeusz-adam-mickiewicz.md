@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wszyscy na północ: rzekłbyś, że w on czas z wyraju\
 Za ptastwem i lud ruszył do naszego kraju,\
 Pędzony niepojętą, instynktową mocą.
 
