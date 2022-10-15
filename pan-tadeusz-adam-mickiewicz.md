@@ -1,3 +1,4 @@
+Przy każdej garnuszeczek mały do śmietanki.\
 Takiej kawy, jak w Polszcze, nie ma w żadnym kraju:\
 W Polszcze, w domu porządnym, z dawnego zwyczaju,\
 Jest do robienia kawy osobna niewiasta,\
