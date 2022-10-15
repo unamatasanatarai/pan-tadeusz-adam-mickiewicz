@@ -1,3 +1,4 @@
+Z rozkoszą ciągnął piersią, i otworzył usta\
 Ku nim. Bo samobójstwo jak każda rozpusta\
 Jest wymyślną; on w głowy szalonym zawrocie\
 Czuł niewymowny pociąg utopić się w błocie.
