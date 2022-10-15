@@ -1,3 +1,4 @@
+Dawał owe biesiady we włoskiej krainie,\
 Którym się Ojciec Święty Urban Ósmy dziwił;\
 Podług niej później Karol-Kochanku-Radziwiłł,\
 Gdy przyjmował w Nieświeżu króla Stanisława,\
