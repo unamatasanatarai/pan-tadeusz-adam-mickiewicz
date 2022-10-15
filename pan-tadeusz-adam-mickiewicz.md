@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Na to rzekł Wojski, głowę pochyliwszy smutnie:\
 «Kometa czasem wojny, czasem wróży kłótnie!\
 Niedobrze, iż się zjawił tuż nad Soplicowem,\
 Może nam grozi jakiem nieszczęściem domowem.\
