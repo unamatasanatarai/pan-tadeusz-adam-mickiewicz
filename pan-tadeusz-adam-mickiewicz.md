@@ -1,3 +1,4 @@
+W jednej chwili, a życiem nie naprawi długim!\
 Jedno słowo Stolnika: jakże byśmy byli\
 Szczęśliwi! Kto wie, może dotąd byśmy żyli,\
 Może i on przy swoim kochanym dziecięciu,\
