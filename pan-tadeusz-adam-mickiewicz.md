@@ -1,3 +1,4 @@
+Kapelusz miał okrągły z piórem, w ręku szpadę.\
 Okręcił się i szpadą powitał gromadę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wiwat Hrabia! — krzyknęli — z nim żyć i umierać!»\
