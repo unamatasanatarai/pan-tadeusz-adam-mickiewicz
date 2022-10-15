@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zaledwie usłyszeli nowinę poddani,\
 Skoczyli do panicza, padli do nóg pani,\
 «Zdrowie państwu naszemu»! ze łzami krzyknęli;\
