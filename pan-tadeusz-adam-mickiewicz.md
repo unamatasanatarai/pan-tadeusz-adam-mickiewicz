@@ -1,3 +1,4 @@
+A was lubię, że z wami sobie zjem, popiję,\
 Pohulam, pogawędzę, i tak sobie żyję.\
 Otoż ja was obronię, i jak będzie śledztwo,\
 Słowo uczciwe, że dam za wami świadectwo.\
