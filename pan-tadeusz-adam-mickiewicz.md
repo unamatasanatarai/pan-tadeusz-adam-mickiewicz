@@ -1,3 +1,4 @@
+W Dobrzynie! Bracie! wielkie, wielkie zamieszanie!\
 Francuz jeszcze daleko, nim przeminie zima\
 Trzeba czekać, a szlachta pono nie dotrzyma.\
 Możem zanadto czynnie z powstaniem się krzątał!\
