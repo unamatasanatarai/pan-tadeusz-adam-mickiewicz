@@ -1,3 +1,4 @@
+Hrabia z jazdą ma czekać sposobniejszej pory.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Plany Robaka pojął i wykonał cudnie\
 Tadeusz. Stał ukryty za drewnianą studnię;\
