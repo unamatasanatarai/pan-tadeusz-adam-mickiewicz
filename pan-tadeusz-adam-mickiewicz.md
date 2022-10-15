@@ -1,3 +1,4 @@
+Ale w gościnnym jego domu zamieszkały,\
 O zdrowie przyjaciela był niezmiernie dbały.\
 Przypatrywał się zatem z ciekawością walce;\
 Wyciągnął z lekka na stół rękę, dłoń i palce,\
