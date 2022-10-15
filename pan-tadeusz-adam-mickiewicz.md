@@ -1,3 +1,4 @@
+Telimena, całując i głaszcząc pod brodę,\
 Z radością zważa dziecka żywość i urodę\
 (Bo prawdziwie kochała swą wychowanicę).\
 Ale znowu poważnie nastroiła lice,\
