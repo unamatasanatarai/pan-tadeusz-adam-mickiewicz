@@ -1,3 +1,4 @@
+Więc Tadeusz odjechał i z gośćmi się złączył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie wtenczas myśliwi smycze zatrzymali,\
 I wszyscy nieruchomi w miejscach swoich stali;\
