@@ -1,3 +1,4 @@
+Zbyt bliskim pokrewieństwem; i nawet niepewno,\
 Czy ciocia Telimena jest synowca krewną,\
 Choć ją stryj zowie siostrą, bo wspólni rodzice\
 Tak ich kiedyś nazwali mimo lat różnicę;\
