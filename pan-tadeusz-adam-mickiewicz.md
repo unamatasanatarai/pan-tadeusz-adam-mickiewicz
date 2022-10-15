@@ -1,3 +1,4 @@
+Odwołać swe rozkazy i niech mi wybaczy,\
 Że nie mogę na takie jechać polowanie,\
 I nigdy na nim noga moja nie postanie!\
 Nazywam się Hreczecha, a od króla Lecha,\
