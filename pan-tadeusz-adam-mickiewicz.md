@@ -1,3 +1,4 @@
+Wystrzeliliśmy jedną, podawano drugą.\
 Ksiądz proboszcz zatrudniał się czynnie tą usługą,\
 I pani, i panienka, i nadworne panny:\
 Trzech było strzelców, a szedł ogień nieustanny.\
