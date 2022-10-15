@@ -1,3 +1,4 @@
+Podobno Stolnikównie wpadł Soplica w oko,\
 Ale przed rodzicami taiła głęboko.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Było to za Kościuszki czasów; pan popierał\
