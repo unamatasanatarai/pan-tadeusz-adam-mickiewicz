@@ -1,3 +1,4 @@
+Bernardyn zmówił krótki pacierz po łacinie;\
 Mężczyznom dano wódkę; wtenczas wszyscy siedli,\
 I chołodziec litewski milcząc żwawo jedli.
 
