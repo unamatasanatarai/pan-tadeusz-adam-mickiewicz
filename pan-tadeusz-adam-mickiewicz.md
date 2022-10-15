@@ -1,3 +1,4 @@
+Przyszedł, i kiedy bliżej poznał panów dworu,\
 Gazetę im pokazał, wyprutą z szkaplerza.\
 Tam stała wypisana i liczba żołnierza,\
 I nazwisko każdego wodza legijonu,\
