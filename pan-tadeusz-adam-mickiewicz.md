@@ -1,3 +1,4 @@
+Stolnik, widząc strwożone swe nieprzyjaciele,\
 Myślił zrobić wycieczkę, porwał karabelę\
 I z ganku krzycząc sługom wydawał rozkazy;\
 Obróciwszy się do mnie, rzekł: »Za mną Gerwazy!«\
