@@ -1,3 +1,4 @@
+Jak Kniaziewicz rozkazy daje z Kapitolu\
 I zwycięzca, wydartych potomkom cezarów\
 Rzucił w oczy Francuzów sto krwawych sztandarów,\
 Jak Jabłonowski zabiegł, aż kędy pieprz rośnie,\
