@@ -1,3 +1,4 @@
+I na tym szańcu słabym utwierdziwszy nogę,\
 «Wara! — zawołał — Sędzio! nie wolno nikomu\
 Krzywdzić sługę mojego w moim własnym domu:\
 Kto ma na starca skargę, niech mi ją przełoży».
