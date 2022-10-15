@@ -1,3 +1,4 @@
+W Niemczech każdy dwór grafów był teatrem mordów.\
 W każdej dawnej, szlachetnej, potężnej rodzinie\
 Jest wieść o jakimś krwawym lub zdradzieckim czynie,\
 Po którym zemsta spływa na dziedziców w spadku:\
