@@ -1,3 +1,4 @@
+Wyjął goździe, wnet z szumem trysnęły trzy strugi,\
 Jeden biały jak srebro, krwawnikowy drugi,\
 Trzeci żółty; troistą grają w górze tęczą,\
 A spadając w sto kubków, we sto szklanek brzęczą.\
