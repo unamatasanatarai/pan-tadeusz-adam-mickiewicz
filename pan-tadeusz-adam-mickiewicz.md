@@ -1,3 +1,4 @@
+Niewielka, co ty mówisz? po księdza plebana?\
 Może źle opatrzono — zaraz po doktora,\
 W apteczce jest...» Ksiądz przerwał: «Bracie, już nie pora!\
 Miałem tam strzał dawniejszy, dostałem pod Jena,\
