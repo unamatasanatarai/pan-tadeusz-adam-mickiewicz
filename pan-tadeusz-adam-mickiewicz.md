@@ -1,3 +1,4 @@
+Prawie dziecko! raz pierwszy kochać się zaczyna!\
 Pilnowany, niełacno zerwie pierwsze związki;\
 Przy tym dla Telimeny ma już obowiązki...\
 Mężczyźni, póki młodzi, chociaż w myślach zmienni,\
