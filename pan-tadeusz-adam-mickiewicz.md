@@ -1,3 +1,4 @@
+Czy Robak nie powiadał, że wprzód nim przyjmiecie\
 W dom wasz Napoleona, trzeba wymieść śmiecie?\
 Słyszeliście to wszyscy: a czy rozumiecie?\
 Któż jest śmieciem powiatu? Kto zdradziecko zabił\
