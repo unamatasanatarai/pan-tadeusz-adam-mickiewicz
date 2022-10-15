@@ -1,3 +1,4 @@
+Rzekł półgłosem: «Przepraszam, musieliśmy siadać,\
 Nie podobna wieczerzy na później odkładać:\
 Goście głodni, chodzili daleko na pole;\
 Myśliłem, że dziś z nami nie będziesz przy stole».\
