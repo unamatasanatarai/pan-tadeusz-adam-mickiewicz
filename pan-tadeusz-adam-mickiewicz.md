@@ -1,3 +1,4 @@
+Tak Napoleon daje wodzom swoim księstwa\
 Od miejsc, na których wielkie odnieśli zwycięstwa».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena, znudzona zbyt długimi swary,\
