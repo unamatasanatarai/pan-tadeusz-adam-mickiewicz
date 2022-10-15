@@ -1,3 +1,4 @@
+Tyle tylko, że pana innego dostaną?\
 Prawda, że byli dotąd rządzeni łaskawie:\
 Lecz po mej śmierci, Bóg wie, komu ich zostawię.\
 Jestem żołnierz, jesteśmy śmiertelni oboje,\
