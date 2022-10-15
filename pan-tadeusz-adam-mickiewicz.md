@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Natenczas Wojski chwycił na taśmie przypięty\
 Swój róg bawoli, długi, cętkowany, kręty\
 Jak wąż boa, oburącz do ust go przycisnął,\
 Wzdął policzki jak banię, w oczach krwią zabłysnął,\
