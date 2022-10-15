@@ -1,3 +1,4 @@
+Wszędzie gadano tylko o tych zaręczynach;\
 Powiadano, że Ewa, gdy brała obrączkę\
 Z rąk Wojewody, mdlała, że wpadła w gorączkę,\
 Że ma początki suchot, że ustawnie szlocha;\
