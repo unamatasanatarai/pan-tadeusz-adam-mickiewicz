@@ -1,3 +1,4 @@
+Mam serce ani ciebie unikam przez wzgardę;\
 Ale uważ no sama, wszak nas widzą, śledzą,\
 Czyż można tak otwarcie? cóż ludzie powiedzą?\
 Wszak to nieprzyzwoicie, to dalbóg jest grzechem».\
