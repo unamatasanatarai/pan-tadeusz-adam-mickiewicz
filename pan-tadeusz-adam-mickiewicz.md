@@ -1,3 +1,4 @@
+Nie dla natarcia, ale tylko dla obrony.\
 Tak było po staremu. A więc mnie zawierzcie,\
 I waszej rejterady do serca nie bierzcie,\
 Kochany Tadeuszku i wielmożny grafie;\
