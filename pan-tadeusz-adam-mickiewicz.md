@@ -1,3 +1,4 @@
+Ostatni król, co nosił kołpak Witoldowy,\
 Ostatni z Jagiellonów wojownik szczęśliwy,\
 I ostatni na Litwie monarcha myśliwy.\
 Drzewa moje ojczyste! jeśli Niebo zdarzy,\
