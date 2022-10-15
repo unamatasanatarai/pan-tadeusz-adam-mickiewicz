@@ -1,3 +1,4 @@
+Wyżyny i kawijary weneckie, tureckie,\
 Szczuki główne i szczuki podgłówne, łokietne,\
 Flądry i karpie ćwiki, i karpie szlachetne;\
 W końcu sekret kucharski: ryba niekrojona\
