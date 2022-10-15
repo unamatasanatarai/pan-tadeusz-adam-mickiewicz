@@ -1,3 +1,4 @@
+Układać zmowy — znają i Galicyjanie\
 Ten kaptur mnisi — znają i Wielkopolanie!\
 Pracowałem przy taczkach rok w pruskiej fortecy;\
 Trzy razy Moskwa kijmi zraniła me plecy,\
