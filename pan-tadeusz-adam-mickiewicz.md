@@ -1,3 +1,4 @@
+Drżą jeszcze u nóg jego strachem opętane.\
 Te puszcz stołeczne, ludziom nieznane tajniki,\
 W języku swoim strzelcy zowią: *mateczniki*.
 
