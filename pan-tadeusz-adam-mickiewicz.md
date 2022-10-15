@@ -1,3 +1,4 @@
+Biedna! oto na ręku pokojowej mdleje;\
 Biedna! jaśnie wielmożnej tytuł przybrać miała,\
 A znów tylko wielmożną na lat trzy została!»
 
