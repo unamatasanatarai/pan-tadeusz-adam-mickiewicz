@@ -1,3 +1,4 @@
+Z krwawą na piersi plamą. Gerwazy się wzdrygnął,\
 Poznał Stolnika; zaczął wkoło siebie żegnać,\
 I ażeby tym pewniej straszne sny rozegnać,\
 Odmawiał litaniją o czyscowych duszach.\
