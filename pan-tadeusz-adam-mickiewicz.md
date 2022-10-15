@@ -1,3 +1,4 @@
+Nim go wydał kalendarz, pod tytułem: Sposób\
 Na jastrzębie i kanie, albo nowy środek\
 Wychowywania drobiu — był to ów ogrodek.
 
