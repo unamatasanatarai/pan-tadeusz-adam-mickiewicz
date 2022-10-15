@@ -1,3 +1,4 @@
+Równa ich była rączość, równa była praca;\
 Godzien jest pałac Paca, godzien Pac pałaca,\
 Godni są szczwacze chartów, godne szczwaczów charty.\
 Otóż skończony spór wasz długi i zażarty;\
