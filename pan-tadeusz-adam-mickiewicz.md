@@ -1,3 +1,4 @@
+Jak szczupak, gdy mu oścień skróś piersi przekole,\
 Pluska się i nurtuje, myśląc że uciecze,\
 Ale wszędzie żelazo i sznur z sobą wlecze:\
 Tak i Tadeusz ciągnął za sobą zgryzoty,\
