@@ -1,3 +1,4 @@
+Rękę mu ścisnął; chwilę trwało to milczenie,\
 Przerwał je starzec, trzęsąc wzniesioną prawicą:\
 «Nie masz zgody, mopanku, pomiędzy Soplicą\
 I krwią Horeszków; w panu krew Horeszków płynie,\
