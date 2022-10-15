@@ -1,3 +1,4 @@
+Ściągnęły wzrok sąsiadki, uważnej kobiety.\
 Zmierzyła jego postać kształtną i wysoką,\
 Jego ramiona silne, jego pierś szeroką,\
 I w twarz spojrzała, z której wytryskał rumieniec,\
