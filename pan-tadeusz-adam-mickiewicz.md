@@ -1,3 +1,4 @@
+Sławnym na każdym sejmie, targu i sejmiku).\
 Przysiągłem wyszczerbić go na Sopliców karkach,\
 Ścigałem ich na sejmach, zajazdach, jarmarkach.\
 Dwóch zarąbałem w kłótni, dwóch na pojedynku;\
