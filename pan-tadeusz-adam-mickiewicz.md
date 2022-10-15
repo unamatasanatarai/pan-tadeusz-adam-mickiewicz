@@ -1,3 +1,4 @@
+Wytknęły pyski na wiatr i drżą niecierpliwie,\
 Jak dwie strzały złożone na jednej cięciwie.\
 Wtem Wojski krzyknął: «Wyczha!» Zając smyk zza płotu\
 Na łąkę; charty za nim; i wnet bez obrotu\
