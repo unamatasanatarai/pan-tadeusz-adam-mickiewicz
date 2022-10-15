@@ -1,3 +1,4 @@
+Owe ryby: łososie suche, dunajeckie,\
 Wyżyny i kawijary weneckie, tureckie,\
 Szczuki główne i szczuki podgłówne, łokietne,\
 Flądry i karpie ćwiki, i karpie szlachetne;\
