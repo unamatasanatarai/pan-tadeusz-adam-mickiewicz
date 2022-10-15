@@ -1,3 +1,4 @@
+Przez wszystko co jest świętym, na klęczkach błagamy!\
 Hrabio, śmieszże odmówić? proszą ciebie damy;\
 Okrutniku, nas pierwej musisz zamordować!»\
 Padła zemdlona. Hrabia skoczył ją ratować,\
