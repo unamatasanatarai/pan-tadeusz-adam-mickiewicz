@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;A na to Sędzia: «Mniejsza o ludzkie gadanie;\
 Nigdy nie dbałem bardzo o pochwały świata:\
 Bóg świadkiem, żem niewinien grzechów mego brata;\
