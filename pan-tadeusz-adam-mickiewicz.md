@@ -1,3 +1,4 @@
+Kołomyjek z Halicza, mazurów z Warszawy;\
 Wieść, nie wiem czyli pewna, w całej okolicy\
 Głosiła, że on pierwszy przywiózł z zagranicy\
 I upowszechnił wówczas, w tamecznym powiecie,\
