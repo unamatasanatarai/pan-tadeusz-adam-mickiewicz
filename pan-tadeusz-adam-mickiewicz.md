@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Słońce już gasło, wieczór był ciepły i cichy,\
 Okrąg niebios gdzieniegdzie chmurkami zasłany,\
 U góry błękitnawy, na zachód różany;\
 Chmurki wróżą pogodę: lekkie i świecące,\
