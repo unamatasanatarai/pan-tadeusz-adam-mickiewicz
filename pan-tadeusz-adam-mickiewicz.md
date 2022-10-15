@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;On pierwszy zgodził kłótnie, często nawet krwawe,\
 Między dwiema karczmami: obie wziął w dzierżawę;\
 Szanowali go równie i starzy stronnicy\
 Horeszkowscy, i słudzy Sędziego Soplicy.\
