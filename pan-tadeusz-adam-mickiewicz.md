@@ -1,3 +1,4 @@
+W każdym sąsiedzie znajdowali wroga;\
 Aż nas objęto w ciasny krąg łańcucha,\
 I każą oddać co najprędzej ducha.
 
