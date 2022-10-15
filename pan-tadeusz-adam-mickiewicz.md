@@ -1,3 +1,4 @@
+Próżno gęsi szyjami wywijając, chrypią,\
 Próżno gęsiory sycząc, napastnika szczypią;\
 On bieży osypany iskrzącym się puchem,\
 Unoszony jak kółmi gęstych skrzydeł ruchem,\
