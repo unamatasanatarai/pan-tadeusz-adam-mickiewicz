@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Przed burzą bywa chwila cicha i ponura,\
 Kiedy, nad głowy ludzi przyleciawszy, chmura\
 Stanie i grożąc twarzą, dech wiatrów zatrzyma,\
