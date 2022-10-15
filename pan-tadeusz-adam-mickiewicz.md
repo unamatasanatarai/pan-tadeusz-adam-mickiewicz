@@ -1,3 +1,4 @@
+Serce mu kształcić, mieć w nim przyjaciela, brata,\
 Nareszcie — użyć świata póki służą lata!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak myśląc, po alkowie śmiało i wesoło\
