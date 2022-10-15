@@ -1,3 +1,4 @@
+Było dość majętniejszych: a z całego rodu\
 Maciek prostak ubogi był najwięcej czczony,\
 Nie tylko jako rębacz *Rózeczką* wsławiony,\
 Lecz jako człek mądrego i pewnego zdania,\
