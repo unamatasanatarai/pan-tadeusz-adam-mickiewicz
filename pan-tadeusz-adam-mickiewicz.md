@@ -1,3 +1,4 @@
+Potem w dół chyląc ostrze na znak powitania\
 Przed Maćkiem, rzekł: «Rózeczce Scyzoryk się kłania.\
 Bracia szlachta, Dobrzyńscy! Ja nie będę radził\
 Nic a nic; powiem tylko, po com was zgromadził:\
