@@ -1,3 +1,4 @@
+Na plecach szlachty. Major ku większej ich męce\
 Kazał pierwej pozdzierać z głów konfederatki,\
 Z pleców płaszcze, kontusze, nawet taratatki,\
 Nawet żupany. I tak szlachta skuta w kłodzie\
