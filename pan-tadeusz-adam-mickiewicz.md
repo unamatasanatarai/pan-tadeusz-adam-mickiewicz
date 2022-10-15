@@ -1,3 +1,4 @@
+Wyniósł traw, liścia; usiadł przed domem i świsnął:\
 Na ten świst rój królików spod ziemi wytrysnął.\
 Jako narcyzy nagle wykwitłe nad trawę,\
 Bielą się długie słuchy; pod nimi jaskrawe\
