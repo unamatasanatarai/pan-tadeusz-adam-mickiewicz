@@ -1,3 +1,4 @@
+Chce Hrabiego osadzić na nowym dziedzictwie\
 Legalnie i formalnie: więc za Woźnym biega,\
 Aż go po długich śledztwach za piecem dostrzega,\
 Wnet porywa za kołnierz, na dziedziniec wlecze\
