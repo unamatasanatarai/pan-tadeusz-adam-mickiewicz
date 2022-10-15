@@ -1,3 +1,4 @@
+W każdej dawnej, szlachetnej, potężnej rodzinie\
 Jest wieść o jakimś krwawym lub zdradzieckim czynie,\
 Po którym zemsta spływa na dziedziców w spadku:\
 W Polsce pierwszy raz słyszę o takim wypadku.\
