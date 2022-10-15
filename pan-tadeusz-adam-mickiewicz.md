@@ -1,3 +1,4 @@
+Zapewne do którego weszli legionu».\
 «W istocie — odpowiedział młody Szef szwadronu —\
 Mam w drugiej kompaniji wąsate straszydło,\
 Wachmistrza Dobrzyńskiego, co się zwie Kropidło,\
