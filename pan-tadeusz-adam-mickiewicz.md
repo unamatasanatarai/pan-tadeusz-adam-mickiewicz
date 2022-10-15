@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Już naprzeciw księżyca gwiazda jedna, druga\
 Błysnęła; już ich tysiąc, już milijon mruga.\
 Kastor z bratem Polluksem jaśnieli na czele,\
