@@ -1,3 +1,4 @@
+Natęża, takty zmienia: coś innego głosi.\
 I znowu spójrzał z góry, okiem struny zmierzył,\
 Złączył ręce, oburącz w dwa drążki uderzył:\
 Uderzenie tak sztuczne, tak było potężne,\
