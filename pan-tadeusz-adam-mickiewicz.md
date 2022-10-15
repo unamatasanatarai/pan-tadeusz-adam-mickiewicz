@@ -1,3 +1,4 @@
+I ażeby tym pewniej straszne sny rozegnać,\
 Odmawiał litaniją o czyscowych duszach.\
 Znowu wzrok mu skleił się, zadzwoniło w uszach —\
 Widzi tłum szlachty konnej, błyszczą karabele:\
