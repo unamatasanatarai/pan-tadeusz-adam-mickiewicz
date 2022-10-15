@@ -1,3 +1,4 @@
+Choć Sędzia z dokumentów przekonywał o tem,\
 Że architekt był majstrem z Wilna, nie zaś Gotem.\
 Dość, że Hrabia chciał zamku. Właśnie i Sędziemu\
 Przyszła nagle taż chętka, nie wiadomo czemu.\
