@@ -1,3 +1,4 @@
+Wszystko do zwyczajnego wracało spoczynku.\
 Mrok zgęstniał; reszty pańskiej wspaniałej biesiady\
 Leżą, podobne uczcie nocnej, gdzie na Dziady\
 Zgromadzać się zaklęte mają nieboszczyki.\
