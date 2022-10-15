@@ -1,3 +1,4 @@
+Lecz po mej śmierci, Bóg wie, komu ich zostawię.\
 Jestem żołnierz, jesteśmy śmiertelni oboje,\
 Jestem człowiek, sam własnych kaprysów się boję:\
 Bezpieczniej zrobię, kiedy władzy się wyrzekę,\
