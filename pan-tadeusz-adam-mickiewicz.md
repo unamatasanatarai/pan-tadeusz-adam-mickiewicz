@@ -1,3 +1,4 @@
+Nie pamiętano takiej posępnej wieczerzy;\
 Tylko pukanie korków i brzęki talerzy,\
 Odbijała zamkowa sień wielka i pusta:\
 Rzekłbyś, iż zły duch gościom zasznurował usta.
