@@ -1,3 +1,4 @@
+Na dziedzińcu, spomiędzy piołunu i chwastu,\
 Wznoszą się stare szczęty krzyżów kilkunastu\
 Na ziemi nieświęconej: znać, że tu chowano\
 Poległych śmiercią nagłą i niespodziewaną.\
