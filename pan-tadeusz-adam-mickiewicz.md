@@ -1,3 +1,4 @@
+Teraz sam będę radzić. Pono z Podkomorzym\
 Zagaimy swatowstwo i resztę ułożym».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przez ten czas Telimena ostygła z zapału:\
