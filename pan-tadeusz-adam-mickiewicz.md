@@ -1,3 +1,4 @@
+Podkomorzanki na to zmarszczyły się obie,\
 Sąsiadka zaśmiała się, lecz nie powiedziała\
 Kogo owa szczęśliwsza gałka oznaczała.
 
