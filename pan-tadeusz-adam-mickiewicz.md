@@ -1,3 +1,4 @@
+Poczciwy, dobry Polak: potrzebny nam taki.\
 W rewolucyjach bardzo potrzebne dziwaki:\
 Wiem z doświadczenia; nawet głupi się przydadzą,\
 Byle tylko poczciwi i pod mądrych władzą.\
