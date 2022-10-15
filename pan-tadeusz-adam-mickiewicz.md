@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Bernardyn wstąpił do pokoju.\
 Zaledwie go poznano, choć nie zmienił stroju:\
 Tak przybrał inną postać. Zwyczajnie ponury,\
