@@ -1,3 +1,4 @@
+Pokazał malowaną armiję maleńką\
 Jak rój much; w środku jeden człowiek na rumaku,\
 Wielki jako chrząszcz, siedział, pewnie wódz orszaku;\
 Spinał konia, jak gdyby chciał skakać w niebiosa,\
