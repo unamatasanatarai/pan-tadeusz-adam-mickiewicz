@@ -1,3 +1,4 @@
+Dwie rzeczy, których hojny pan do uczty szuka,\
 Łączą się w Soplicowie: dostatek i sztuka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już wschodził uroczysty dzień *Najświętszej Panny*\
