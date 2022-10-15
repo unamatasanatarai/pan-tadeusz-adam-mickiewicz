@@ -1,3 +1,4 @@
+Jaki taki gadał mi: »Ej, panie Soplica,\
 Daremnie konkurujesz: dygnitarskie progi\
 Za wysokie na Jacka podczaszyca nogi.«\
 Ja śmiałem się, udając że drwiłem z magnatów\
