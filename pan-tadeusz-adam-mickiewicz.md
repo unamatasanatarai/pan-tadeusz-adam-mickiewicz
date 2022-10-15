@@ -1,3 +1,4 @@
+Sporu, który miał bitwą zakończyć się krwawą,\
 Gdy polujący w głębi nalibockich lasów,\
 Rejtan wypłatał sztukę książęciu Denassów.\
 Tej sztuki omal własnym nie przypłacił zdrowiem:\
