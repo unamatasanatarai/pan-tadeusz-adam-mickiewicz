@@ -1,3 +1,4 @@
+I pierś surdutem, jakby płaszczem udrapował.\
 Gerwazy chodził kroki wielkimi po sali;\
 Obadwa zamyśleni, do siebie gadali:\
 «Pistolety — rzekł Hrabia — lub gdy chcą pałasze».\
