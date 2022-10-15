@@ -1,3 +1,4 @@
+Pisarzom, ochmistrzyni, strzelcom i stajennym\
 I musiał wszystkie dzienne rachunki przezierać.\
 Nareszcie rzekł Woźnemu, że się chce rozbierać.\
 Woźny pas mu odwiązał, pas słucki, pas lity,\
