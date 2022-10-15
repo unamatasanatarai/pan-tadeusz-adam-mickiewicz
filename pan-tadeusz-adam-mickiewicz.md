@@ -1,3 +1,4 @@
+I w jasne oczki, które biorą za dwie świéce.\
 Na powietrzu owadów wielki krąg się zbiera,\
 Kręci się, grając jako harmoniki sfera;\
 Ucho Zosi rozróżnia wśród tysiąca gwarów\
