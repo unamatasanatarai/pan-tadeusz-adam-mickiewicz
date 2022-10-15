@@ -1,3 +1,4 @@
+I przeciąwszy mu drogę, do źródła pośpieszał.\
 Z wiatrem igrały białe poły sarafana\
 I wielka chustka w pasie końcem uwiązana;\
 Słomiany, podwiązany kapelusz od ruchu\
