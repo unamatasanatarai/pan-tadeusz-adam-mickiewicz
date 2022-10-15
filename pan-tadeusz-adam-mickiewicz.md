@@ -1,3 +1,4 @@
+Na me szlify majorskie: gdy człek zjadł śniadanie,\
 Najlepszą jest po zrazach zakąską gadanie\
 Z paniami tak pięknymi jak wy, piękne panie!\
 Wiecie co? grajmy w karty? w welba-cwelba? w wista?\
