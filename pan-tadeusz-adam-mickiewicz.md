@@ -1,3 +1,4 @@
+Które też umiał, bo był ze szkoły kadetów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy śmiejąc się fechtował, Rębajło już klęczał,\
 Objął go za kolana i ze łzami jęczał;\
