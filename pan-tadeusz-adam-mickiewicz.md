@@ -1,3 +1,4 @@
+Prawy złocistym piaskiem połyskał się wkoło,\
 Jak gdyby włosem jasnym; a lewego czoło\
 Najeżone łozami, wierzbami czubate;\
 Oba stawy ubrane w zieloności szatę.
