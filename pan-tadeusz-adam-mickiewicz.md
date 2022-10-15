@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Takim kwestarzem tajnym był Robak podobno:\
 Często on z panem Sędzią rozmawiał osobno;\
 Po tych rozmowach zawsze jakowaś nowina\
 Rozeszła się w sąsiedztwie. Postać bernardyna\
