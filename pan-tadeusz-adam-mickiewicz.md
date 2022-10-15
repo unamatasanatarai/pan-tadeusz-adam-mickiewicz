@@ -1,3 +1,4 @@
+Mam także spory worek mych własnych talarów,\
 Uzbieranych z wysługi, tudzież z pańskich darów.\
 Myśliłem, gdy nam zamek wróconym zostanie,\
 Obrócić grosz na murów wyreperowanie;\
