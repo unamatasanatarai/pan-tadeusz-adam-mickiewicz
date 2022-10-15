@@ -1,3 +1,4 @@
+Ale jeśli miecz tylko bezpieczeństwa strzeże,\
 Żeby w tych krajach była wolność — nie uwierzę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem dzwoniąc w tabakierę, rzekł pan Podkomorzy:\
