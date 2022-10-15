@@ -1,3 +1,4 @@
+Wylania się serc czułych: gdy spiż z dala ryknie,\
 Wszystko miesza się, zrywa, mąci się i niknie!»\
 Tu, obróciwszy czuły wzrok ku Telimenie,\
 «Cóż zostaje?» A ona mu rzekła: «Wspomnienie!»\
