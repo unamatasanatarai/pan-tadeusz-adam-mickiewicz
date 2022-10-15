@@ -1,3 +1,4 @@
+Sam zbrojny, za nim zbrojnych dziesięciu dżokejów.\
 Hrabia siedział na dzielnym koniu, w czarnym stroju;\
 Na sukni orzechowy płaszcz włoskiego kroju,\
 Szeroki, bez rękawów, jak wielka opona,\
