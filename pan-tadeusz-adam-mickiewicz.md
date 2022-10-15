@@ -1,3 +1,4 @@
+Gdy blisko mieszka mały czynownik i psiarnie!\
 Ilekroć z książką wyszłam sobie do ogrodu,\
 Użyć księżyca blasku, wieczornego chłodu\
 Zaraz i pies przyleciał, i kręcił ogonem,\
