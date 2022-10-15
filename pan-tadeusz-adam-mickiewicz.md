@@ -1,3 +1,4 @@
+I przychodziło coraz do żywszego sporu:\
 Gdy nowy gość zajechał na dziedziniec dworu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wjazd tłumny, dziwny. Przodem, niby laufer, bieży\
