@@ -1,3 +1,4 @@
+Podniósł róg i tryumfu hymn uderzył w chmury.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu przerwał, lecz róg trzymał; wszystkim się zdawało,\
 Że Wojski wciąż gra jeszcze, a to echo grało.\
