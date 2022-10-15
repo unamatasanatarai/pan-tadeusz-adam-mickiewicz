@@ -1,3 +1,4 @@
+Przed pojedynkiem zwyczaj jest posłać przyjaciół,\
 Układać się. Wszak Hrabia może nas przeprosić,\
 Deprekować; czekaj waść, czasu jeszcze dosyć.\
 Chyba inny giez jaki waści stąd wygania,\
