@@ -1,3 +1,4 @@
+Drugie klęcząc pracują około falbonki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy się tak Rejent bawi ze swą narzeczoną,\
 Kuchcik stuknął doń w okno: kota spostrzeżono!\
