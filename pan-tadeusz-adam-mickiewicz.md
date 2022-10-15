@@ -1,3 +1,4 @@
+Forytując, jeździłem nawet do Warszawy.\
 Człek niemało skorzystał! Chciałbym i synowca\
 Wysłać pomiędzy ludzi, prosto jak wędrowca,\
 Jak czeladnika, który terminuje lata,\
