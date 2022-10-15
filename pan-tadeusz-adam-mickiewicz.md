@@ -1,3 +1,4 @@
+Nieszczęściem, krótkość czasu była na zawadzie,\
 Że się nie stało zadość Buchmanowej radzie.\
 Szlachta żegna się śpiesznie i już w drogę rusza.
 
