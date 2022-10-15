@@ -1,3 +1,4 @@
+Z różnym skutkiem, jak widać z miny szlachty bratów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wprawdzie tam, w drugiej kupie, szlachta pilnie słucha.\
 Ten ręce za pas zatknął i przyłożył ucha,\
