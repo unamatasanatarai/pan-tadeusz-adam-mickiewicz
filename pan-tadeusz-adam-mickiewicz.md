@@ -1,3 +1,4 @@
+Mnie tu naprzód wyzwano. Protazy, pałasza!\
 Puszczę go w taniec jako niedźwiadka na kiju».\
 Lecz Tadeusz Sędziego wstrzymał: «Panie stryju,\
 Wielmożny Podkomorzy, czyż się państwu godzi\
