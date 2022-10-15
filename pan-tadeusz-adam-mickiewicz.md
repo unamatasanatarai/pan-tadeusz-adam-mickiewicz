@@ -1,3 +1,4 @@
+Ale coraz spadała. Wiatr rozwinął dłonie\
 I mgłę muskał, wygładzał, rozścielał na błonie;\
 Tymczasem słonko z góry tysiącem promieni\
 Tło przetyka, pośrebrza, wyzłaca, rumieni.\
