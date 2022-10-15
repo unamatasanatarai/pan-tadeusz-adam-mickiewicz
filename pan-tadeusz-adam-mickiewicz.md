@@ -1,3 +1,4 @@
+Na tym kawałku ziemi stanęła Kartago!\
 Więc ja to sobie w nocy rozbieram z uwagą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie dniało, już z jednej strony taradejką\
