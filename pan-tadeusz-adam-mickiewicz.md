@@ -1,3 +1,4 @@
+Odtąd więc wszystkie stany porównał i zgodził;\
 Niech i tak będzie, kiedy inaczej nie można!\
 Zwłaszcza, że jako słyszę, i jaśnie wielmożna\
 Pani moja Zofija na wszystko się zgadza;\
