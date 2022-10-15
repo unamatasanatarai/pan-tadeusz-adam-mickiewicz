@@ -1,3 +1,4 @@
+Sędzia księdza za szyję płacząc obejmował.\
 Wreszcie po ćwierćgodzinnym przerwaniu rozmowy\
 Robak po cichu tymi odezwał się słowy:
 
