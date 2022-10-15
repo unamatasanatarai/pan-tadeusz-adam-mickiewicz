@@ -1,3 +1,4 @@
+Często on z panem Sędzią rozmawiał osobno;\
 Po tych rozmowach zawsze jakowaś nowina\
 Rozeszła się w sąsiedztwie. Postać bernardyna\
 Wydawała, że mnich ten nie zawsze w kapturze\
