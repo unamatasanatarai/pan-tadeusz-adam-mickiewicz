@@ -1,3 +1,4 @@
+Ani uważał, co tam szepczą po kryjomu;\
 Rad bardzo, że mógł damy i młodzież rozśmieszyć,\
 Zwrócił się ku myśliwcom, chcąc i tych pocieszyć;\
 I zaczął, nalewając sobie kielich wina:
