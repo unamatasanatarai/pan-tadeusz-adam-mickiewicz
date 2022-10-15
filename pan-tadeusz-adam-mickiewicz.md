@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«W skok — krzyknął Podkomorzy — okulbaczyć siwą,\
 Dobiec w cwał do mojego dworu; wziąć co żywo\
 Dwie pjawki, które w całej okolicy słyną,\
 Pies zowie się Sprawnikiem, a suka Strapczyną;\
