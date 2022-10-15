@@ -1,3 +1,4 @@
+Bo taka grzeczność modna, zda mi się kupiecka,\
 Ale nie staropolska, ani też szlachecka.\
 Grzeczność wszystkim należy, lecz każdemu inna;\
 Bo nie jest bez grzeczności i miłość dziecinna,\
