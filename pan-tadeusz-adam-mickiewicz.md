@@ -1,3 +1,4 @@
+Zbudził się, sam nie wiedząc, na kogo się gniewał:\
 Niestety, mało znalazł! nadto się spodziewał!\
 Bo gdy zagonem pełzał ku owej pasterce,\
 Paliło mu się w głowie, skakało w nim serce;\
