@@ -1,3 +1,4 @@
+Kiedy do nalibockich zaciągnęli lasów\
 Tadeusz Rejtan poseł i książę Denassów.\
 Nie zazdrościli sławie szlachcica panowie;\
 Owszem, u stołu pierwsi wnieśli jego zdrowie,\
