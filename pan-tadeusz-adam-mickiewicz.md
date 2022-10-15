@@ -1,3 +1,4 @@
+I usługiwał damie, swojej narzeczonéj,\
 Biegając i podając sygnety, łańcuszki,\
 Słoiki i flaszeczki, i proszki, i muszki;\
 Wesoł, na pannę młodą patrzył tryumfalnie.\
