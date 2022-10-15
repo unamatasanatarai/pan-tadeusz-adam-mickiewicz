@@ -1,3 +1,4 @@
+Bogacz, dobry dla chłopów, ludzki dla sąsiadów,\
 Nawet dla Żydów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Hrabski koń, zwrócony z drogi,\
