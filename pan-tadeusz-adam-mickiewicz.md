@@ -1,3 +1,4 @@
+I krzątała się służba około śniadania.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jakoż po wszystkich izbach panował ruch wielki:\
 Roznoszono potrawy, sztućce i butelki.\
