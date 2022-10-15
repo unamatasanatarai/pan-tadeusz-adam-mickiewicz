@@ -1,3 +1,4 @@
+«Ale tamta z frędzlami, ta jest całkiem gładką» —\
 Krzyknął Mickiewicz. Zatem wszczynały się swary\
 O różnych taratatki kształtach i czamary.
 
