@@ -1,3 +1,4 @@
+Wszystkim waszmościom, moi mościwi panowie!\
 Co się tabaki tyczy, hem, ona pochodzi\
 Z dalszej strony, niż myśli Skołuba dobrodziéj:\
 Pochodzi z Jasnej Góry. Księża paulinowie\
