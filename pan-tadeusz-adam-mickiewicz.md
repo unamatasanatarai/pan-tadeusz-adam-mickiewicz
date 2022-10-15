@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tu ksiądz łzy otarł, habit zapiął, kaptur włożył\
 I okienicę tylną po cichu otworzył,\
 Widać było, że oknem do ogrodu skakał;\
 Sędzia, zostawszy jeden, siadł w krześle i płakał.
