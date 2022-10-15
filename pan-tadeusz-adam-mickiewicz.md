@@ -1,3 +1,4 @@
+Wił się przede mną, jako plama w chorym oku.\
 Przecież nie byłem zdrajcą kraju.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Moskwa mnie uważała gwałtem za stronnika.\
