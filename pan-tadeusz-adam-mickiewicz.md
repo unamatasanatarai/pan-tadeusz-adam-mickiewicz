@@ -1,3 +1,4 @@
+Porozpędzanych jegrów ściga, rąbie, kole.\
 Ryków sam został; krzyczy, że broni nie złoży,\
 Bije się; gdy ku niemu podszedł Podkomorzy,\
 I wznosząc karabelę, rzekł poważnym tonem:\
