@@ -1,3 +1,4 @@
+Czekajno, niech no ja mu z Konewki naleję».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Filut — zawołał Chrzciciel — oj, i ja go kropnę\
 Za swoje. Mój syn, było to dziecko roztropne,\
