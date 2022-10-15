@@ -1,3 +1,4 @@
+I wszyscy takim starym ucztują zwyczajem?\
 Powiedz mi, bo ja życie strawiłem za krajem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski rzekł kłaniając się: «Nie, jaśnie wielmożny\
