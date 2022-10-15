@@ -1,3 +1,4 @@
+Powiedziałbyś, że mówcę pochwyci na rogi;\
 Ci biorą się do szabel, tamci poszli w nogi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jeden między kupkami szlachcic cichy stoi.\
