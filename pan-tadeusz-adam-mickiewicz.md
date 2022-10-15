@@ -1,3 +1,4 @@
+Jak skromną ucztę, którą dzielim z przyjacielem.\
 Tylko stary pjanica, gdy już spali trzewa,\
 Brzydzi się trunkiem, którym nazbyt się zalewa.\
 Wszystko to Telimena dokładnie wiedziała,\
