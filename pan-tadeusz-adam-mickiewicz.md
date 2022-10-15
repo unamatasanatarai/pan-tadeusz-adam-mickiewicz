@@ -1,3 +1,4 @@
+Położył nóż na dłoni, trzonkiem do paznokcia\
 Indeksu, a żelazem zwrócony do łokcia;\
 Potem rękę w tył nieco wychyloną kiwał,\
 Niby bawiąc się: lecz się w Hrabiego wpatrywał.
