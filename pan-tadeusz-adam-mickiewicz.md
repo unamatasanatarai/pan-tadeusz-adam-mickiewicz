@@ -1,3 +1,4 @@
+Za pierwszym zaraz strzałem ubił feldfebera,\
 Potem z dwóch rur raz po raz dwóch sierżantów sprząta,\
 Mierzy to po galonach, to w środek trójkąta,\
 Gdzie stał sztab; za czym Ryków gniewa się i dąsa,\
