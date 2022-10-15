@@ -1,3 +1,4 @@
+Domowemu to ptactwu taki ochmistrzyni\
 Wymyśliła ogródek: sławna gospodyni,\
 Zwała się Kokosznicka, z domu Jendykowi-\
 czówna. Jej wynalazek epokę stanowi\
