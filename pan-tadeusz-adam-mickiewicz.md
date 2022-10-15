@@ -1,3 +1,4 @@
+Takie były Hrabiego dziwne obyczaje.\
 Wszyscy mówili, że mu czegoś nie dostaje;\
 Szanowano go przecież, bo pan z prapradziadów,\
 Bogacz, dobry dla chłopów, ludzki dla sąsiadów,\
