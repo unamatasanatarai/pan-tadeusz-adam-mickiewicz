@@ -1,3 +1,4 @@
+I poprzedzony głuchą wieścią między ludem;\
 Ogarnęło Litwinów serca z wiosny słońcem\
 Jakieś dziwne przeczucie, jak przed świata końcem,\
 Jakieś oczekiwanie tęskne i radosne.
