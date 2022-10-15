@@ -1,3 +1,4 @@
+Który dotąd ode mnie pamiątki nie dostał:\
 Rodzoniutki braciszek owego wąsala!\
 Żyje dotąd i z swoich bogactw się przechwala,\
 Zamku Horeszków tyka swych kopców krawędzią,\
