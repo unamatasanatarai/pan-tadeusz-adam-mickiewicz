@@ -1,3 +1,4 @@
+Brzęczało ciągle jako naprzykrzona mucha.\
 Pragnąłby u Woźnego lepiej się wypytać\
 O pani Telimenie, lecz go nie mógł schwytać;\
 Wojskiego też nie widział, bo zaraz z wieczerzy\
