@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zaczął ją puszczyk, jęcząc na poddaszu dworu;\
 Szepnęły wiotkim skrzydłem nietoperze, lecą\
 Pod dom, gdzie szyby okien, twarze ludzi świecą;\
