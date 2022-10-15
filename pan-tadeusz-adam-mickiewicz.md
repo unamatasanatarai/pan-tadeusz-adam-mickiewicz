@@ -1,3 +1,4 @@
+Wisiała jak baldachim jasna mgła motylów,\
 Zwanych babkami, których poczwórne skrzydełka\
 Lekkie jak pajęczyna, przejrzyste jak szkiełka,\
 Gdy w powietrzu zawisną, zaledwo widome,\
