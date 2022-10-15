@@ -1,3 +1,4 @@
+Bo do Sędziego nagle ktoś przysłał człowieka,\
 Donosząc, że z niezwłocznym interesem czeka.\
 Sędzia, dając dobranoc, żegnał całe grono.\
 Natychmiast się po różnych stronach rozpierzchniono:\
