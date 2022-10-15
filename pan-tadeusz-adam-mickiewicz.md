@@ -1,3 +1,4 @@
+Co Klucznik to nie puszczyk; kto w cudze poddasze\
 Nocą włazi, ten puszczyk, i ja go wystraszę».\
 «Za drzwi z nim!» Podkomorzy krzyknął.
 
