@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wtem szmer powstał za drzwiami; razem głosów wiele\
 Zawołało: «Niech żyje Kurek na kościele!»\
 Ciżba tłoczy się w salę, a Maciej na czele.\
 Sędzia gościa za rękę do stołu prowadził\
