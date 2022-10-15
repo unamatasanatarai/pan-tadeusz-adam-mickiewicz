@@ -1,3 +1,4 @@
+Szczęściem, schylił się Woźny i wydarł się śmierci.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Porwali się z miejsc wszyscy; chwilę była głucha\
 Cichość, aż Sędzia krzyknął: «W dyby tego zucha!\
