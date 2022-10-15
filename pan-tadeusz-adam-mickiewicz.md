@@ -1,3 +1,4 @@
+Gdy ich nie można zgodzić na obiór marszałka;\
 Co mi tam głosy, gałki! U mnie insza gałka.\
 — Tu wydobył z kieszeni garść kul, dzwonił nimi —\
 Ot gałki! — krzyknął — w Sędzię gałkami wszystkimi!»\
