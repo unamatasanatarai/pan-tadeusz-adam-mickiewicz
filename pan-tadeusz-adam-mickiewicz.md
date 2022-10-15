@@ -1,3 +1,4 @@
+Krótko trwał, lecz zrobili wiele w jedną chwilę;\
 Bo razem wyrzucili słów i obelg tyle,\
 Że wyczerpnęli sporu zwyczajne trzy części,\
 Przycinki, gniew, wyzwanie — i szło już do pięści.
