@@ -1,3 +1,4 @@
+Wszyscy śpieszą, ku różnym kierują się stronom.\
 Co to ma znaczyć? Powstał ze snopa Ekonom,\
 Chciał przypatrzyć się, spytać; długo stał nad drogą,\
 Daremnie wołał, nie mógł zatrzymać nikogo\
