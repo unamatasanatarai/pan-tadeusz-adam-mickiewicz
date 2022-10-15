@@ -1,3 +1,4 @@
+Szlachtę biedną rząd mógłby odrzeć i przechłostać,\
 Ale ty Hrabio pewien jesteś cały zostać;\
 Wiesz, w jakim rządzie żyjesz, jesteś dość bogaty,\
 Wykupisz się od więzień połową intraty».
