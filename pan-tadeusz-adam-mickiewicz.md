@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Telimena z dzikiej młodzieńca postawy\
 Zgadując rozpacz, widząc że pobiegł nad stawy,\
 Chociaż ku niemu takim słusznym gniewem pała,\
