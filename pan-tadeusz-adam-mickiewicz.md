@@ -1,3 +1,4 @@
+Patrzy w Zosię, rysuje. Ledwie Sędzia zoczył\
 Papiery i ołówki, poznał rysownika;\
 Choć go bardzo odmienił mundur pułkownika,\
 Bogate szlify, mina prawdziwie ułańska\
