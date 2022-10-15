@@ -1,3 +1,4 @@
+U wieczerzy, zaledwo kto przysiadł do stoła;\
 Nawet strona Kusego z partyją Sokoła,\
 Przestała dawnym wielkim zatrudniać się sporem:\
 Pobrawszy się pod ręce, Rejent z Asesorem\
