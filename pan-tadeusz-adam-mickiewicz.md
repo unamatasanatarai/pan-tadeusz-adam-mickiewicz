@@ -1,3 +1,4 @@
+W owe lata szczęśliwe, gdy senat i posły,\
 Po dniu Trzeciego Maja, w ratuszowej sali,\
 Zgodzonego z narodem króla fetowali,\
 Gdy przy tańcu śpiewano: *Wiwat król kochany!*\
