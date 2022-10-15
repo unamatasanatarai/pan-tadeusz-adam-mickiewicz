@@ -1,3 +1,4 @@
+Po wzroście i po włosach światłych, i po głosie;\
 Tę kibić i tę główkę widział na parkanie,\
 Ten wdzięczny głos zbudził go dziś na polowanie.
 
