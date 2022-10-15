@@ -1,3 +1,4 @@
+Na nich Bóg w dniu stworzenia (starzy powiadają)\
 Ważył z kolei wszystkie planety i ziemię,\
 Nim w przepaściach powietrza osadził ich brzemię;\
 Potem wagi złociste zawiesił na niebie:\
