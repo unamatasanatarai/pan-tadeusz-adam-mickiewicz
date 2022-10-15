@@ -1,3 +1,4 @@
+Złożyła książkę, wstała nieco i usiadła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jak mamę kocham — rzekła — czy to, panie bracie,\
 Jest w tym sens jaki, czy wy Boga w sercu macie?\
