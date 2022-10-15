@@ -1,3 +1,4 @@
+Ale razem niemałą chętkę do swawoli.\
 Z góry już robił projekt, że sobie pozwoli\
 Używać na wsi długo wzbronionej swobody;\
 Wiedział, że był przystojny, czuł się rześki, młody,\
