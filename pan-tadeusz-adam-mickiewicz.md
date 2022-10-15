@@ -1,3 +1,4 @@
+A jako chirurg naprzód miękką rękę składa\
 Na ciele chorującym, nim ostrzem raz zada:\
 Tak Robak wyraz bystrych oczu swych złagodził,\
 Długo nimi po oczach Gerwazego wodził,\
