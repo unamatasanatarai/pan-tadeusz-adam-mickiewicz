@@ -1,3 +1,4 @@
+I zbudził Hrabię.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Hrabia widząc, że tak blisko\
 Tadeusz naszedł jego zbrojne stanowisko,\
