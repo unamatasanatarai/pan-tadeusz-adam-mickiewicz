@@ -1,3 +1,4 @@
+Fant postawiony w zakład wracać się nie może.\
 Pierścień niechaj pan Wojski na pamiątkę przymie,\
 I każe na nim wyryć albo swoje imię,\
 Lub gdy zechce, herbowne Hreczechów ozdoby;\
