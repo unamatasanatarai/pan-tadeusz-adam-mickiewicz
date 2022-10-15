@@ -1,3 +1,4 @@
+Zrazu z uśmiechem głupim, jak na pożar dziecko,\
 Patrzyłem; potem radość uczułem zbójecką,\
 Czekając rychło zacznie palić się i walić;\
 Czasem myśl przychodziła skoczyć, ją ocalić,\
