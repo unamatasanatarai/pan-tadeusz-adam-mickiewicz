@@ -1,3 +1,4 @@
+Był dobry patryjota i pełen nauki,\
 Z ksiąg obcych wyuczył się gospodarstwa sztuki,\
 I dóbr administracją prowadził porządnie;\
 O polityce także wnioskował rozsądnie,\
