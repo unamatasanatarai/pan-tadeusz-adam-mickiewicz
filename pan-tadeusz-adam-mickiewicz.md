@@ -1,3 +1,4 @@
+Szykuje, lecz szyk zmienia: z jednego szeregu\
 Robi trójkąt, klin ostry wystawując z przodu,\
 A dwa boki opiera o parkan ogrodu.\
 Dobrze zrobił, bo jazda nań od zamku wali.
