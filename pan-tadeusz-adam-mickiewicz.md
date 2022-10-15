@@ -1,3 +1,4 @@
+Lecz bijcie się szlacheckim trybem, nie rzeźniczym.\
 Dosyć już mety zbliżać, widzę, żeście zuchy;\
 Chcecie strzelać się, rury oparłszy na brzuchy?\
 Ja nie pozwolę. Zgoda, że na pistolety;\
