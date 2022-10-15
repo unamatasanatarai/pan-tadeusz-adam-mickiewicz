@@ -1,3 +1,4 @@
+Zręcznie wierzgnąć, z uśmiechem witać lada kogo;\
 Bo taka grzeczność modna, zda mi się kupiecka,\
 Ale nie staropolska, ani też szlachecka.\
 Grzeczność wszystkim należy, lecz każdemu inna;\
