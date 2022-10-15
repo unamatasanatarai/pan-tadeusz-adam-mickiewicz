@@ -1,3 +1,4 @@
+Aby zrzucił budowę wiekiem nadwątloną;\
 Ale Sędzia powiadał, że woli poprawiać\
 Aniżeli rozrzucać, albo też przestawiać:\
 Odkładał budowanie do sposobnej pory,\
