@@ -1,3 +1,4 @@
+Tak wraz przymaszerują, stoją jak umyślnie.\
 A co będzie? A jeśli czekacie Francuza,\
 To Francuz jest daleko jeszcze, droga duża.\
 Ja Żyd, o wojnach nie wiem, a byłem w Bielicy,\
