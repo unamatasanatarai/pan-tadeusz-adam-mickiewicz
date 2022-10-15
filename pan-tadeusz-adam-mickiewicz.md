@@ -1,3 +1,4 @@
+Wkoło pary małżonków. Stoi pośród grona\
 Para, nad całą leśną gromadą wzniesiona\
 Wysmukłością kibici i barwy powabem:\
 Brzoza biała, kochanka, z małżonkiem swym grabem.\
