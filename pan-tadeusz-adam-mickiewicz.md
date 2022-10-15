@@ -1,3 +1,4 @@
+Pełne grzybów; a panny w jednym ręku niosły,\
 Jako wachlarz zwiniony, *borowik* rozrosły,\
 W drugim związane razem jakby polne kwiatki,\
 *Opieńki* i rozlicznej barwy *surojadki*.\
