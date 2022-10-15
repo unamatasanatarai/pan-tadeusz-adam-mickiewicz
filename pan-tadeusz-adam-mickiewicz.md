@@ -1,3 +1,4 @@
+Lub córki pięknej, której ubóstwiałbym wdzięki!\
 Kochając i nie mogąc otrzymać jej ręki,\
 Nowa by się w powieści zrobiła zawiłość:\
 Tu serce, tam powinność — tu zemsta, tam miłość!»
