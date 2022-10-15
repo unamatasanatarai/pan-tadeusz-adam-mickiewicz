@@ -1,3 +1,4 @@
+Przez żart, bo nienawidził okropnie Prusaków,\
 Choć lubił o nich gadać. Człek podeszły w lata,\
 W podróżach swych dalekich wiele zwiedził świata;\
 Gazet pilny czytelnik, polityki świadom,\
