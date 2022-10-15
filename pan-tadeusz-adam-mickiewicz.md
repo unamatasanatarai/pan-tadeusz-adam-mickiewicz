@@ -1,3 +1,4 @@
+Zwłaszcza, że z Dobrzyńskimi byli z dawna w zwadzie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kto z wiosek batalijon Moskalów sprowadził?\
 Kto tak prędko sąsiedztwo z zaścianków zgromadził?\
