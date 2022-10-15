@@ -1,3 +1,4 @@
+Odpędzając jak owad nieprzyjemne słowa\
 Na powrót w usta mówcy —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «A! a! to rzecz nowa!\
