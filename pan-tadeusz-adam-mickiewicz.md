@@ -1,3 +1,4 @@
+Lub na płaszczach i siodłach śpią próżni kłopotu,\
 A wodze śród cichego dumają namiotu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przerwał się obiad, dzień zszedł na kowaniu koni,\
