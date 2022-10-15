@@ -1,3 +1,4 @@
+Zaganiać ptastwo szła w wieczornej porze:\
 Gdyby też wzięły wieśniaczki do ręki\
 Te księgi proste jako ich piosenki!...
 
