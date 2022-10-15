@@ -1,3 +1,4 @@
+Zdaje się być chochlikiem, skrzydlatym złym duchem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale rzeź najstraszniejsza, chociaż najmniej krzyku,\
 Między kurami. Młody Sak wpadł do kurniku\
