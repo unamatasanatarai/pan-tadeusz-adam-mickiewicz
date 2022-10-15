@@ -1,3 +1,4 @@
+Raz go tylko widziałem: ledwiem okiem rzucił,\
 Poznałem co za ptaszek; ksiądz oczy odwrócił,\
 Lękając się, żebym go nie zaczął spowiadać;\
 Ale to rzecz nie moja, wiele o tym gadać!\
