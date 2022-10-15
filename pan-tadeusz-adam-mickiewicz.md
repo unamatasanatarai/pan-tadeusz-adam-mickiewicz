@@ -1,3 +1,4 @@
+«Bóg widzi — rzecze Klucznik — szczerze trafić chciałem!\
 Ileż ty krwi wylałeś twoim jednym strzałem,\
 Ileż klęsk spadło na nas i na twą rodzinę,\
 A wszystko to przez waszą, panie Jacku, winę!\
