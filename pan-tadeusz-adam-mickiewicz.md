@@ -1,3 +1,4 @@
+Łamiąc promienie wschodu w tęczach rozmaitych;\
 Niższe piętra oblała tumanu powłoka,\
 Rozpadliny i szczerby zakryła od oka;\
 Krzyk dalekich myśliwców wiatrami przygnany,\
