@@ -1,3 +1,4 @@
+Tyś wątek spisku tyle lat snowany splątał!\
 Cel wielki, który całe życie me zaprzątał,\
 Ostatnie moje ziemskie uczucie na świecie,\
 Którem tulił, hodował jak najmilsze dziecię,\
