@@ -1,3 +1,4 @@
+Wysuwają się szyje i w ruchach łagodnych\
 Chwieją się ciągle na kształt tulipanów wodnych;\
 Tysiące oczu jak gwiazd błyskają ku Zosi.
 
