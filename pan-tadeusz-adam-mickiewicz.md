@@ -1,3 +1,4 @@
+Ale co dzień postrzegam, jak młodź cierpi na tem,\
 Że nie ma szkół uczących żyć z ludźmi i światem.\
 Dawniej na dwory pańskie jachał szlachcic młody;\
 Ja sam lat dziesięć byłem dworskim Wojewody,\
