@@ -1,3 +1,4 @@
+Zwano go kaznodzieją, że zbyt lubił gesta).\
 Teraz ręce przy boku miał, w tył wygiął łokcie,\
 Spod ramion wytknął palce i długie paznokcie,\
 Przedstawiając dwa smycze chartów tym obrazem:\
