@@ -1,3 +1,4 @@
+A przy tym zawiść, którą czuł dla Tadeusza,\
 Tym mocniej Hrabię przeciw Soplicom porusza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Rzekł więc z gorzkim uśmiechem: «Mój domek zbyt mały,\
