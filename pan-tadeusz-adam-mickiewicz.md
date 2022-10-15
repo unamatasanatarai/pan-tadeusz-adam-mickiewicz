@@ -1,3 +1,4 @@
+Gdzie żołnierz dłużej żałuje oręża\
 Niż tu syn ojca; po psie płaczą szczerze\
 I dłużej niż tu lud po bohaterze.
 
