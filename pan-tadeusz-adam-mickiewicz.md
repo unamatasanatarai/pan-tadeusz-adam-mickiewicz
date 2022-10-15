@@ -1,3 +1,4 @@
+On kocha, a mam słowo ciotki i dziewczyny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Tadeusz podbiega i z żywością mówi:\
 «Czymże zdołam odwdzięczyć dobremu stryjowi,\
