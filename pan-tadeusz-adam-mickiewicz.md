@@ -1,3 +1,4 @@
+I kłaniają się grzecznie (zwyczaj honorowy,\
 Nim przyjdzie do zabójstwa, naprzód się przywitać).\
 Już spotkały się szpady i zaczęły zgrzytać;\
 Rycerze wznosząc nogi, prawymi kolany\
