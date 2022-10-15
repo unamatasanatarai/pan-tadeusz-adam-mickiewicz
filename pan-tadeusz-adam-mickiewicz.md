@@ -1,3 +1,4 @@
+Na wsi nietrudno o nią: bo kawiarka z rana,\
 Przystawiwszy imbryki, odwiedza mleczarnie\
 I sama lekko świeży nabiału kwiat garnie\
 Do każdej filiżanki w osobny garnuszek,\
