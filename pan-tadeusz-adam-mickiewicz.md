@@ -1,3 +1,4 @@
+Niepodkopany nadziei złudzeniem,\
 Ani zmieniony wypadków strumieniem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Te kraje rad bym myślami powitał,\
