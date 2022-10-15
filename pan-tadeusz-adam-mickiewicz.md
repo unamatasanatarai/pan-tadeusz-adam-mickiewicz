@@ -1,3 +1,4 @@
+Bardzo to Ekonoma i cieszy, i straszy.\
 Bo choć na Litwie było naonczas spokojnie,\
 Dawno już wieści głuche biegały o wojnie,\
 O Francuzach, Dąbrowskim, o Napoleonie.\
