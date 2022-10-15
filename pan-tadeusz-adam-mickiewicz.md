@@ -1,3 +1,4 @@
+Odsyłać koni gości Żydom do gospody.\
 Słudzy nie wyszli witać; ale nie myśl wcale,\
 Aby w domu Sędziego służono niedbale:\
 Słudzy czekają, nim się pan Wojski ubierze,\
