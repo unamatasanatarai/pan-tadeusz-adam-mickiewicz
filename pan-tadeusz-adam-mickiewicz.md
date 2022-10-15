@@ -1,3 +1,4 @@
+O, to był rwetes! Wszystkie wielkopolskie drogi\
 Pełne uciekających. Niemczyska jak mrowie\
 Pełzną, ciągną pojazdy, które lud tam zowie\
 Wageny i fornalki; mężczyźni, kobiety,\
