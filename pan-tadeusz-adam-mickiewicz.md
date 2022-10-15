@@ -1,3 +1,4 @@
+Jeśli dziś ślubem pary nie możem uwieńczyć,\
 Toć by ich, panie bracie, przynajmniej zaręczyć\
 Przed odjazdem; bo serce młode i podróżne,\
 Wiesz dobrze, jako miewa tentacyje różne;\
