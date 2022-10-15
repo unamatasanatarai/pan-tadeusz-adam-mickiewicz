@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ryków kapitan milczkiem kielichy wychylał,\
 Lecz Major pił i razem damom się przymilał.\
 A wzmagał się w nim coraz tańcowania zapał.\
 Rzucił fajkę i rękę Telimeny złapał:\
