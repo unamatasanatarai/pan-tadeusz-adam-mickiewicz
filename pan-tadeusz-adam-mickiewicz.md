@@ -1,3 +1,4 @@
+Szczęściem, że nauczyciel ładny i niesrogi;\
 Odgadnęła sąsiadka powód jego trwogi,\
 Wszczęła rzecz o mniej trudnych i mądrych przedmiotach,\
 O wiejskiego pożycia nudach i kłopotach,\
