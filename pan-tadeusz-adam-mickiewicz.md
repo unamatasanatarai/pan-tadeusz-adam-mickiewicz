@@ -1,3 +1,4 @@
+Zdrowie Napoleona i Polski nadzieje!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ha! — rzekł Maciej — słyszałem, widzę co się dzieje!\
 Ale panie, dwóch orłów razem się nie gnieździ!\
