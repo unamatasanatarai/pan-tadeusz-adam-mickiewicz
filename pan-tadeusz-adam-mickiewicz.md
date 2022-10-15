@@ -1,3 +1,4 @@
+Choć dojść nie mogła wątku w jego tajemnicach:\
 Dlaczego ją pokochał? dlaczego porzuca?\
 Gdzie odjeżdża? przecież ją ten odjazd zasmuca.\
 Pierwszy raz posłyszała w życiu z ust młodziana\
