@@ -1,3 +1,4 @@
+Miłość, wierzaj mi, ogród rozkoszy uczyni».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, wydarłszy się z objęcia przemocą:\
 «Jak to? — rzekł — czyś z rozumu obrana? gdzie? po co?\
