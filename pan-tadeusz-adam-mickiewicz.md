@@ -1,3 +1,4 @@
+Zająć się gospodarstwem albo interesem:\
 Wszystko na próżno! Zemsty opętany biesem,\
 Zły, opryskliwy, znaleźć nie mogłem pociechy\
 W niczym na świecie — i tak z grzechów w nowe grzechy,\
