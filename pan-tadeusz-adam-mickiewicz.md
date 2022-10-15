@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Łapaj!» krzykniono znowu. Tryumf był nie długi:\
 Bo nad głowami tłumu Klucznik niespodzianie\
 Ukazał się na chórze, przy starym organie,\
