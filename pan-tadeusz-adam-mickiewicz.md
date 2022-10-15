@@ -1,3 +1,4 @@
+A gdy w galop puścisz się (tu Rejent Bolesta,\
 Który, jako wiadomo, bardzo lubił gesta,\
 Rozstawił nogi jakby na konia wskakiwał,\
 Potem galop udając, powoli się kiwał)\
