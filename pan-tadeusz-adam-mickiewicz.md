@@ -1,3 +1,4 @@
+Chcecie strzelać się, rury oparłszy na brzuchy?\
 Ja nie pozwolę. Zgoda, że na pistolety;\
 Lecz strzelać się nie z dalszej ani z bliższej mety,\
 Jak przez skórę niedźwiedzią. Ja rękami memi\
