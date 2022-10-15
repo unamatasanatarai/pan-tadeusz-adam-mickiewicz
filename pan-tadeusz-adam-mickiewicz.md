@@ -1,3 +1,4 @@
+Obmyślmy, gdzie zawiązać i pod laską czyją?\
 Tak było w Wielkopolszcze: widzim rejteradę\
 Niemiecką: cóż my robim? wchodzim tajnie w radę,\
 Uzbrajamy i szlachtę, i włościan gromadę;\
