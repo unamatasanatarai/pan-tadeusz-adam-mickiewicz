@@ -1,3 +1,4 @@
+Hrabia pan, ma u szlachty wielkie zachowanie,\
 Cały powiat ruszy się, jeśli on powstanie;\
 Znając jego majątek, każdy szlachcic powie:\
 Musi to być rzecz pewna, gdy z nią są panowie.\
