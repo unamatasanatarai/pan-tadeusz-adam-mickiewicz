@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gdy okiem wkoło rzuca, postrzega: to ona!\
 Telimena, samotna, w myślach pogrążona,\
 Od wczorajszej postacią i strojem odmienna,\
 W bieliźnie, na kamieniu, sama jak kamienna;\
