@@ -1,3 +1,4 @@
+Odkłonili się oba, co znaczy: prosiemy.\
 Wojski zagaił.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Śmiałbym upraszać młodzieży,\
