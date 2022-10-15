@@ -1,3 +1,4 @@
+Mieszkałam w pałacyku, tuż nad Newą rzeką,\
 Niezbyt blisko od miasta i niezbyt daleko,\
 Na niewielkim, umyślnie sypanym pagórku:\
 Ach, co to był za domek! Plan mam dotąd w biurku.\
