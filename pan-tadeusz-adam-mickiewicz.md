@@ -1,3 +1,4 @@
+Czy wiciny wyprawiać, czy zboże zażynać,\
 Czy procesować, czyli zawierać układy:\
 Nie działo się w Dobrzynie nic bez Maćka rady.\
 Wpływu takiego starzec bynajmniej nie szukał;\
