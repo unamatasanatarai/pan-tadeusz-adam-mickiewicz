@@ -1,3 +1,4 @@
+Ten już miał ręce wolne, gotowe ku walce;\
 Wstał, podniósł dłoń i zwinął w kłębek długie palce,\
 I z góry tak uderzył w grzbiet Rosyjanina,\
 Że twarz jego i skroń wbił w zamek karabina;\
