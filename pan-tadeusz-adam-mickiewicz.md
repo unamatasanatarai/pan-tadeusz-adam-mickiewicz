@@ -1,3 +1,4 @@
+Widziałem, że i ona miała kwaśną minkę.\
 Znam ja te wszystkie głupstwa; kiedy dzieci para\
 Kocha się, to tam u nich nieszczęść co niemiara!\
 To cieszą się, to znowu trapią się i smucą,\
