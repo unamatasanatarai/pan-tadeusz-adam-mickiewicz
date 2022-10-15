@@ -1,3 +1,4 @@
+Nalał węgrzyna i rzekł: «Dziś, nowym zwyczajem,\
 My na naukę młodzież do stolicy dajem;\
 I nie przeczym, że nasi synowie i wnuki\
 Mają od starych więcej książkowej nauki;\
