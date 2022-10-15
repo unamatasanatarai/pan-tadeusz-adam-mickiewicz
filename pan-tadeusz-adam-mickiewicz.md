@@ -1,3 +1,4 @@
+Krótka a węzłowata: strasz, sam się nie strachaj;\
 Bij, nie daj się; postępuj często, gęsto machaj:\
 Szach, mach!» «To — pisnął Brzytwa — to mi regulament!\
 Po co tu pisać akta, po co psuć atrament?\
