@@ -1,3 +1,4 @@
+I patrząc w las ojczysty, rzekł pełen natchnienia:\
 «Widziałem w botanicznym wileńskim ogrodzie,\
 Owe sławione drzewa rosnące na wschodzie\
 I na południu, w owej pięknej włoskiej ziemi;\
