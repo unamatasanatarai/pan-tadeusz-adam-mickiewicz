@@ -1,3 +1,4 @@
+Czas jest to wiatr, on tylko małą świecę zdmuchnie,\
 Wielki pożar od wiatru tym mocniej wybuchnie.\
 I moje serce zdolne mocniej kochać z dala.\
 Panie Soplico! miałem ciebie za rywala;\
