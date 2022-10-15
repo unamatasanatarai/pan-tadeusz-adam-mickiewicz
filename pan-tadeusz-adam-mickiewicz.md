@@ -1,3 +1,4 @@
+Nastąpił rozejm kłótni, kwestarz ją uśmierzył:\
 Człowiek stary, lecz krępy i bardzo pleczysty.\
 Właśnie kiedy Asesor podbiegł do jurysty,\
 Gdy już sobie gestami grozili szermierze,\
