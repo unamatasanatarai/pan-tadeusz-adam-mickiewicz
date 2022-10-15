@@ -1,3 +1,4 @@
+Aż oboje, skrywszy się pod zasłonę ciemną\
 Jak kochankowie, wszczęli rozmowę tajemną,\
 Tłumacząc swe uczucia w westchnieniach tłumionych,\
 Szeptach, szmerach i słowach na wpół wymówionych,\
