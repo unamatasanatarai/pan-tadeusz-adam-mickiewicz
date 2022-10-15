@@ -1,3 +1,4 @@
+I polując na źwierza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Było dość w Dobrzynie\
 Starych ludzi roztropnych, którzy po łacinie\
