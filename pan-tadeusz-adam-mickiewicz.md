@@ -1,3 +1,4 @@
+Twarz miał pociągłą, blade lecz świeże jagody,\
 Oczy modre, łagodne, włos długi, białawy;\
 Na włosach listki ziela i kosmyki trawy,\
 Które Hrabia oberwał pełznąc przez zagony,\
