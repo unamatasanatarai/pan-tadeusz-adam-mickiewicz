@@ -1,3 +1,4 @@
+I bernardyn, ksiądz Robak, wszedł z węzlastym paskiem,\
 «Surge puer!» wołając i ponad barkami\
 Rubasznie wywijając pasek z ogórkami.
 
