@@ -1,3 +1,4 @@
+Naprzód zacząć od władzy: skoro pojmiem władzę,\
 Z niej powstania istotę, duch, cel, wyprowadzę.\
 Co do władzy więc — kiedy oczyma przebiegam\
 Dzieje całej ludzkości, i cóż w nich spostrzegam?\
