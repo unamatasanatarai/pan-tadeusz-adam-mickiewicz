@@ -1,3 +1,4 @@
+Ten wdzięczny głos zbudził go dziś na polowanie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Aż Wojski Tadeusza wyrwał z zamięszania;\
 Widząc, że bladnie i że na nogach się słania,\
