@@ -1,3 +1,4 @@
+A spłatał ją nazajutrz, jak to wnet opowiem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Wojski umilknąwszy prawą rękę wznosił\
 I u Podkomorzego tabakiery prosił;\
