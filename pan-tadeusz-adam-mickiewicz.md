@@ -1,3 +1,4 @@
+Hrabio, śmieszże odmówić? proszą ciebie damy;\
 Okrutniku, nas pierwej musisz zamordować!»\
 Padła zemdlona. Hrabia skoczył ją ratować,\
 Zadziwiony i nieco zmieszany tą sceną:\
