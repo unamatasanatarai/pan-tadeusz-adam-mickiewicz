@@ -1,3 +1,4 @@
+Używają go; wówczas służył i piechocie).\
 Proporszczyk, człowiek młody, zręcznie się uwijał;\
 Ilekroć mu przeciwnik broń na bok odbijał,\
 On cofał się: młodego nie mógł Maciek zgonić,\
