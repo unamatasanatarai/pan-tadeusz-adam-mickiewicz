@@ -1,3 +1,4 @@
+Zniknął, uleciał; tylko w czeluściach saganów\
 Wre para jak w kraterze zagasłych wulkanów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy się już do woli napili, najedli,\
