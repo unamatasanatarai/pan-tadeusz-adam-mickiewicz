@@ -1,3 +1,4 @@
+I zrywała się lecieć jak kraska spłoszona,\
 I już lekkie jej stopy wionęły nad liściem,\
 Kiedy dzieci, przelękłe podróżnego wniściem\
 I ucieczką dziewczyny, wrzasnęły okropnie.\
