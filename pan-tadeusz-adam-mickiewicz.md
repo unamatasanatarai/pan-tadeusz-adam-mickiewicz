@@ -1,3 +1,4 @@
+Tadeusz nieruchomy, na łokciu oparty,\
 Nic nie gadając marszczył brwi i usta krzywił:\
 Tym bardziej Telimenę pomięszał i zdziwił.\
 Zmieniła więc natychmiast twarz i ton rozmowy,\
