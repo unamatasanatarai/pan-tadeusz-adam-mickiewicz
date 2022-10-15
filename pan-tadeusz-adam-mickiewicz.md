@@ -1,3 +1,4 @@
+Lecz kładło się na rolę i, schyliwszy głowy,\
 Ryczało albo żuło swój pokarm zimowy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I wieśniacy, ciągnący na jarzynę pługi,\
