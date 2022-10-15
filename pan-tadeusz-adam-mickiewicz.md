@@ -1,3 +1,4 @@
+Nie odgadła wszystkiego, przecież pomięszana\
 Bawi gości, a z oczu nie spuszcza młodziana.\
 Wreszcie czas upatrzywszy ku niemu podbiega:\
 Czy zdrów? dlaczego smutny? pyta się, nalega,\
