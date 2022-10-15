@@ -1,3 +1,4 @@
+«Brawo!» krzyknęła młodzież, powstał szmer i śmiechy;\
 Powtarzano z kolei przestrogę Hreczechy,\
 Mianowicie ostatnie słowo; ci *źwierzyny*,\
 A drudzy, w głos śmiejąc się, krzyczeli: *dziewczyny*.\
