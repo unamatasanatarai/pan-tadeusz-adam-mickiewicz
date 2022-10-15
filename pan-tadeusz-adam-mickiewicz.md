@@ -1,3 +1,4 @@
+Rejtan zabił ze sztućca ogromną maciorę,\
 Z wielkim niebezpieczeństwem, bo z bliska wypalił.\
 Każdy z nas trafność strzału wydziwiał i chwalił,\
 Tylko Niemiec Denassów obojętnie słuchał\
