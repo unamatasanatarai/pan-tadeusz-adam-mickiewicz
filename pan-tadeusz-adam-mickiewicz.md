@@ -1,3 +1,4 @@
+Szedł przy płocie, a głowę odwracał od sadu.\
 Jak złodziej od spichlerza, aby nie dać śladu,\
 Że go myśli nawiedzić albo już nawiedził:\
 Tak Hrabia był ostrożny, choć go nikt nie śledził;\
