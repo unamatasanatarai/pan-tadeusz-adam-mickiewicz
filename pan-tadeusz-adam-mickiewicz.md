@@ -1,3 +1,4 @@
+Lub udające sosnę gałązki wawrzynu,\
 Odziane zamiast kolców ziarenkami kminu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście pijący wino zaczęli gałązki\
