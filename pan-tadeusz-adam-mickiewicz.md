@@ -1,3 +1,4 @@
+Tadeusz lewą dłonią dotykając głowy,\
 Pozdrowił swych dowódców przez ukłon wojskowy;\
 Zofija z opuszczonym ku ziemi wejrzeniem,\
 Zapłoniwszy się, gości witała dygnieniem\
