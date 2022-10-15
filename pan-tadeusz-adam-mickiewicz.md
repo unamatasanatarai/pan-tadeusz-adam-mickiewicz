@@ -1,3 +1,4 @@
+Wprawdzie oficer rotny, pan Nikita Ryków,\
 Moskal, lecz dobry człowiek, dał się udobruchać:\
 Cóż, kiedy sam majora Płuta musiał słuchać.
 
