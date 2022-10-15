@@ -1,3 +1,4 @@
+«Mości Kluczniku — krzyknął — lub raczej puszczyku,\
 Jeśli dziób twój szanujesz, dość mi tego krzyku».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Gerwazy groźbą wcale się nie strwożył;\
