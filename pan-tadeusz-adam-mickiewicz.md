@@ -1,3 +1,4 @@
+Nie kochałem jej. Biedna matka Tadeusza\
 Najprzywiązańsza do mnie, najpoczciwsza dusza —\
 Ale jam dawną miłość i złość w sercu dusił.\
 Byłem jako szalony, darmom siebie musił\
