@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;W pół godziny tak było głucho w całym dworze\
 jako po zadzwonieniu na pacierz w klasztorze;\
 Ciszę przerywał tylko głos nocnego stróża.\
 Usnęli wszyscy. Sędzia sam oczu nie zmruża;\
