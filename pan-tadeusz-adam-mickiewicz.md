@@ -1,3 +1,4 @@
+O wielkich rzeczach myśleć należy wielkiemu:\
 Jest na to cesarz, będzie król, senat, posłowie.\
 Takie rzeczy, mopanku, robią się w Krakowie\
 Lub w Warszawie, nie u nas, w zaścianku, w Dobrzynie;\
