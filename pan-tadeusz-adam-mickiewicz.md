@@ -1,3 +1,4 @@
+Gniazdami os, szerszeniów, kłębami wężowisk.\
 Gdybyś i te zapory zmógł nadludzkim męstwem,\
 Dalej spotkać się z większym masz niebezpieczeństwem:\
 Dalej co krok czyhają, niby wilcze doły,\
