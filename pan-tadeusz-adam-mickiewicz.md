@@ -1,3 +1,4 @@
+Dane dla Zosi, gdy Sak był jej zalotnikiem);\
 Na kołnierzyku wiszą dwa sznurki bursztynu,\
 Na skroniach zielonego wianek rozmarynu;\
 Wstążki warkoczów Zosia rzuciła na barki,\
