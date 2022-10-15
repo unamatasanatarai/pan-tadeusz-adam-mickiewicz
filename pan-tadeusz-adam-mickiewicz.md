@@ -1,3 +1,4 @@
+Wszak Hrabia wygrał, zyskał dekretów niemało:\
 Tylko je egzekwować! Tak dawniej bywało:\
 Trybunał pisał dekret; szlachta wypełniała,\
 A szczególniej Dobrzyńscy, i stąd wasza chwała\
