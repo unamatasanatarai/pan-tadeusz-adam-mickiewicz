@@ -1,3 +1,4 @@
+Szczęśliwi! Kto wie, może dotąd byśmy żyli,\
 Może i on przy swoim kochanym dziecięciu,\
 Przy swojej pięknej Ewie, przy swym wdzięcznym zięciu,\
 Zestarzałby spokojny, może wnuki swoje\
