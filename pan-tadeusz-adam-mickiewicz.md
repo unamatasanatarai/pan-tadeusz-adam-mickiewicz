@@ -1,3 +1,4 @@
+Sędzia, dając dobranoc, żegnał całe grono.\
 Natychmiast się po różnych stronach rozpierzchniono:\
 Ci spać do domu, tamci w stodole na sianie;\
 Sędzia szedł podróżnemu dawać posłuchanie.
