@@ -1,3 +1,4 @@
+Postawiłem Doweykę na źwierza ogonie\
 Z jednej strony, Domeykę zaś po drugiej stronie:\
 »Pukajcie teraz — rzekłem — choć przez całe życie,\
 Lecz póty was nie spuszczę, aż się pogodzicie«.\
