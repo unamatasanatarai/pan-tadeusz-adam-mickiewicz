@@ -1,3 +1,4 @@
+A Robak kazał wezwać szlachtę wojowników,\
 Do których Podkomorzy z powagą tak mówi:\
 «Bracia! Bóg dziś naszemu szczęścił orężowi,\
 Ale muszę Wać Państwu wyznać bez ogródki,\
