@@ -1,3 +1,4 @@
+Ostrzyły dzioby, jakby czekając na trupy;\
 Zbyt często postrzegano, że psy ziemię ryły\
 I jak gdyby śmierć wietrząc, przeraźliwie wyły:\
 Co wróży głód lub wojnę; a strażnicy boru\
