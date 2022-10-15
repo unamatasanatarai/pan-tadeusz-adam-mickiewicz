@@ -1,3 +1,4 @@
+On komendant, on za to przed carem odpowie,\
 A wy te grosze sobie zabierzcie, panowie;\
 U mnie jest kapitański mój żołd lada jaki,\
 A dosyć mnie na ponczyk i lulkę tabaki.\
