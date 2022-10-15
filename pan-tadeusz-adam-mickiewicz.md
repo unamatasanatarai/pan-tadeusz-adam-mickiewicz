@@ -1,3 +1,4 @@
+Buchnął dźwięk, jakby cała janczarska kapela\
 Ozwała się z dzwonkami, z zelami, z bębenki:\
 Brzmi Polonez Trzeciego Maja! — Skoczne dźwięki\
 Radością oddychają, radością słuch poją;\
