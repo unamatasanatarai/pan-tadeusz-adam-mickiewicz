@@ -1,3 +1,4 @@
+Partyję upatrzyłem. Nikt z obywateli\
 Nie wyrówna z imienia ani z parenteli\
 Podkomorzemu; jego starsza córka Anna\
 Jest na wydaniu, piękna i posażna panna;\
