@@ -1,3 +1,4 @@
+I mnóstwo sznurów chłopskiej niezżętej jarzyny:\
 Stąd i Hrabia nie przybył mimo zaprosiny.\
 Hrabia na polowaniu bardzo dobrze zna się,\
 Nieraz gadał o łowów i miejscu, i czasie;\
