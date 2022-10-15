@@ -1,3 +1,4 @@
+Sak puszcza drugi tuzin. Jegry się zmieszali.\
 Przerażony zasadzką szereg w kłąb się zwija,\
 Cofa się, rzuca rannych; Chrzciciel ich dobija.
 
