@@ -1,3 +1,4 @@
+Romansów, jest młodziuchną, prześliczną dziewczyną.\
 Zbyt często wielka dusza, myśl wielka ukryta\
 W samotności, jak róża śród lasów rozkwita;\
 Dosyć ją wynieść na świat, postawić przed słońcem,\
