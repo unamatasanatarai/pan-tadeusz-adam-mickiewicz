@@ -1,3 +1,4 @@
+Młodzież Tadeuszowi prowadzić kazano,\
 W zastępstwie gospodarza, w stodołę na siano.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W pół godziny tak było głucho w całym dworze\
