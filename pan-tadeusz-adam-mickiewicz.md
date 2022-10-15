@@ -1,3 +1,4 @@
+Rzekł Sędzia — nieźle chłopcu trochę się przewietrzyć,\
 Obejrzeć się na świecie, między ludźmi przetrzéć;\
 Ja za młodu niemało świata objechałem:\
 Byłem w Piotrkowie, w Dubnie, to za trybunałem\
