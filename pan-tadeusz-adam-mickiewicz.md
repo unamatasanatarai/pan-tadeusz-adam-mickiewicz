@@ -1,3 +1,4 @@
+To państwa niebo włoskie, jak o nim słyszałem,\
 Błękitne, czyste: wszak to jak zamarzła woda;\
 Czyż nie piękniejsze stokroć wiatr i niepogoda?\
 U nas dość głowę podnieść: ileż to widoków!\
