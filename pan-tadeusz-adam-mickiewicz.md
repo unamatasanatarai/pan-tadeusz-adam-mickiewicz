@@ -1,3 +1,4 @@
+Hrabia pyszałek, głupiec, był przyczyną waśni,\
 I Gerwazy łotr. Lecz to do sądu należy.\
 Szkoda, żeś nie był, księże, w zamku na wieczerzy,\
 Poświadczyłbyś, jak Hrabia srodze mnie obraził».\
