@@ -1,3 +1,4 @@
+Zawsze instynktem, co jej do twarzy przypadnie):\
 Dosyć, że Zosia pierwszy raz w życiu dziś z rana\
 Była od Telimeny za upór łajana,\
 Nie chcąc modnego stroju, aż wymogła płaczem\
