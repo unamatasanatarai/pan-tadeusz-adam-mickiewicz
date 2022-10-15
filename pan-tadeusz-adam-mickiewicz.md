@@ -1,3 +1,4 @@
+Zahaczał, chybił, podbiegł, wspiął się znów do góry\
 I czarną łapą sięgał Hrabiego włos płowy.\
 Zdarłby mu czaszkę z mozgów jak kapelusz z głowy,\
 Gdy Asesor z Rejentem wyskoczyli z boków,\
