@@ -1,3 +1,4 @@
+Gdy ich co chwila nowina przeraża,\
 Bijąca z Polski jako dzwon smętarza,\
 Gdy im prędkiego zgonu życzą straże,\
 Wrogi ich wabią z dala jak grabarze,\
