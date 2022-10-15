@@ -1,3 +1,4 @@
+Zdumieli się słuchacze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Razem ze strun wiela\
 Buchnął dźwięk, jakby cała janczarska kapela\
