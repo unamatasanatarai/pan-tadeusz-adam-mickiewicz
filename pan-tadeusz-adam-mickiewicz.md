@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Biedna, słysząc o moim odjeździe, pobladła,\
 Bez przytomności, ledwie że trupem nie padła,\
 Nie mogła nic przemówić: aż się jej rzuciły\
