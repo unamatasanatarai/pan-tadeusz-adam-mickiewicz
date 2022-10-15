@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Zaiste, okolica była malownicza!\
 Dwa stawy pochyliły ku sobie oblicza\
 Jako para kochanków: prawy staw miał wody\
 Gładkie i czyste jako dziewicze jagody;\
