@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Tadeuszku — stryj przerwał — to mi dziwny sposób\
 Kochania się: uciekać od kochanych osób!\
 Dobrze, żeś szczery; widzisz, głupstwo byś wypłatał,\
 Odjeżdżając: a co waść powiesz, gdybym swatał\
