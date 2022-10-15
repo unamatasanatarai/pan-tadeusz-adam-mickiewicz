@@ -1,3 +1,4 @@
+I z trzaskiem jął wyrywać ołowiane rury.\
 Wielką by klęskę zadał, uderzając z góry:\
 Ale już goście tłumnie wychodzili z sieni;\
 Nie śmieli kroku dostać słudzy potrwożeni\
