@@ -1,3 +1,4 @@
+Gdy wpełźnie na zielony liść klonu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Niestety!\
 Wszystkie tego obrazu wdzięki i zalety\
