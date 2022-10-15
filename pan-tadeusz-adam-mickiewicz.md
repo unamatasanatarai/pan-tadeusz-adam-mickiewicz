@@ -1,3 +1,4 @@
+I, sam nieszczęśnik, wszystkich mam zaburzać szczęście?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wpadł w rozpacz i nie widział innego sposobu,\
 Chyba ucieczkę prędką; gdzie? chyba do grobu!
