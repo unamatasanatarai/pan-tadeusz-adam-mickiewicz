@@ -1,3 +1,4 @@
+Ale pejzażysty: bo są dwaj Brejgele)\
 I oprócz Ruisdala, na całej północy\
 Gdzież był pejzażysta który pierwszej mocy?\
 Niebios, niebios potrzeba». — «Nasz malarz Orłowski,\
