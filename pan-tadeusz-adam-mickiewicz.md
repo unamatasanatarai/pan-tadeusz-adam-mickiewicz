@@ -1,3 +1,4 @@
+Ażeby szczwaczów zgodzić zbyt łatwą zdobyczą.\
 Staruszek tak swą sztukę zrobił tajemniczo,\
 Że oszukał zupełnie całe Soplicowo.\
 Kuchcik w lat kilka później szepnął o tym słowo,\
