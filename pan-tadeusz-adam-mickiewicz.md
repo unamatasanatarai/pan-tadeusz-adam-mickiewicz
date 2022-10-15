@@ -1,3 +1,4 @@
+Potem wdział mundur, lecz i w wojsku beletrysta,\
 Wiersze rabiał. Już Woźny przeczytał ich trzysta,\
 Aż gdy przyszedł do miejsca: *O ty, której wdzięki*\
 *Budzą bolesną radość i rozkoszne męki!*\
