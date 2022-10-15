@@ -1,3 +1,4 @@
+Kłaniam, kłaniam! Cha, cha, cha, wyśmienicie, przednie!\
 Panowie oficery, kto poluje we dnie,\
 Wy w nocy! Dobry połów: widziałem zwierzynę;\
 Oj skubać, skubać szlachtę, oj drzeć z nich łupinę!\
