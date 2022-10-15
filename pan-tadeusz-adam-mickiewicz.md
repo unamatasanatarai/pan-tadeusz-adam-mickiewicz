@@ -1,3 +1,4 @@
+Nie mógł nosić, w furgonie schowały go sługi.\
 Co się z nim stało, różnie powiadają o tem,\
 Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.
 
