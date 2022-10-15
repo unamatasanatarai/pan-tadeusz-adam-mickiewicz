@@ -1,3 +1,4 @@
+I przysłał mi tu właśnie na kark bernardyna\
 Robaka, który przybył z tamtej strony Wisły,\
 Przyjaciel brata, wszystkie wie jego zamysły;\
 A więc o Tadeusza już wyrzekli losie,\
