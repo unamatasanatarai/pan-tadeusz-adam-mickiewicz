@@ -1,3 +1,4 @@
+Tylko niech ksiądz dobrodziej jaśniej się wysłowi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ksiądz poglądał za okno, przerwawszy rozmowę;\
 Ujrzał coś ciekawego, z okna wytknął głowę,\
