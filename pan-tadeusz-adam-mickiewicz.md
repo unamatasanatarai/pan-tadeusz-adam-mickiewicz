@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Czasem do Litwy kwestarz z obcego klasztoru\
 Przyszedł, i kiedy bliżej poznał panów dworu,\
 Gazetę im pokazał, wyprutą z szkaplerza.\
 Tam stała wypisana i liczba żołnierza,\
