@@ -1,3 +1,4 @@
+Rzucała się nań zewsząd hurmem: gdy na szczęście\
 Zosia, widząc szturm, skoczy, i litością zdjęta\
 Zasłania starca, na krzyż rozpiąwszy rączęta.\
 Wstrzymali się; Gerwazy z wolna ustępował,\
