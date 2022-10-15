@@ -1,3 +1,4 @@
+Bo bijatykę lubił niezmiernie za młodu\
 I był nieprzyjacielem moskiewskiego rodu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie staruszek chodził po samotnym dworze,\
