@@ -1,3 +1,4 @@
+W polskich strojach: jakoby aktory na scenie,\
 Zdawały się przedstawiać jakoweś zdarzenie;\
 Gest ich sztucznie wydany, farby osobliwe,\
 Tylko głosu im braknie, zresztą gdyby żywe.
