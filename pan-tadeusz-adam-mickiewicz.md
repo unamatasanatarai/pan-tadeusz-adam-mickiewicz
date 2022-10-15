@@ -1,3 +1,4 @@
+Trzeci raz machnął, tylko co okna nie wybił;\
 Aż mucha, odurzona od tyla łoskotu,\
 Widząc dwóch ludzi w progu broniących odwrotu,\
 Rzuciła się z rozpaczą pomiędzy ich lica;\
