@@ -1,3 +1,4 @@
+Stojąc na jednej nodze, z czujnymi oczyma,\
 I by nie zasnąć, kamień w drugiej nodze trzyma.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zbudził Hrabiego szelest na plecach i skroni;\
