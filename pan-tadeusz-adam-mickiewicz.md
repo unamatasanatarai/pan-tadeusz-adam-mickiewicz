@@ -1,3 +1,4 @@
+Pobladnął, pochylił się, i ciała połową\
 Wygięty naprzód, stanął, zwisł na jednej nodze,\
 Jak głaz lecący z góry zatrzymany w drodze.\
 Oczy roztwierał, usta szeroko rozszerzał,\
