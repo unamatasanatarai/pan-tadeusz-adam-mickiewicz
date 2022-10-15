@@ -1,3 +1,4 @@
+Lecz Major pił i razem damom się przymilał.\
 A wzmagał się w nim coraz tańcowania zapał.\
 Rzucił fajkę i rękę Telimeny złapał:\
 Chciał tańczyć, lecz uciekła; więc podszedł do Zosi,\
