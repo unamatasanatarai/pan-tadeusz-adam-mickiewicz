@@ -1,3 +1,4 @@
+Kiedy dzieci, przelękłe podróżnego wniściem\
 I ucieczką dziewczyny, wrzasnęły okropnie.\
 Posłyszała, uczuła, że jest nieroztropnie\
 Dziatwę małą, przelękłą i samą porzucić:\
