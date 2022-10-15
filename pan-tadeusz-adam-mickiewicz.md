@@ -1,3 +1,4 @@
+Nawet Stolnika...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Broniliście się, ty wiesz, dzielnie i przytomnie.\
 Zdziwiłem się. Moskale padali wkoło mnie.\
