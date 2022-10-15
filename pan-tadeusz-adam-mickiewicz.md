@@ -1,3 +1,4 @@
+Lecz młodzież o piękności metrykę nie pyta,\
 Bo młodzieńcowi młodą jest każda kobiéta,\
 Chłopcowi każda piękność zda się rówiennicą,\
 A niewinnemu każda kochanka dziewicą.
