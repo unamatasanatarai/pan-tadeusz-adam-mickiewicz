@@ -1,3 +1,4 @@
+Ale on, chytrze dumny, wpadł na koncept nowy:\
 Udawał, że mu nawet nie przyszło do głowy,\
 Żeby ja mógł się starać o związek takowy!\
 A byłem mu potrzebnym: miałem zachowanie\
