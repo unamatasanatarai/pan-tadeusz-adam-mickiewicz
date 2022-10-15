@@ -1,3 +1,4 @@
+Tylko bez gniewu. Jeśli aśćka się nie zgodzi,\
 Aśćka ma prawo; smutno: gniewać się nie godzi.\
 Radziłem, bo brat kazał; nikt tu nie przymusza.\
 Gdy aśćka rekuzuje pana Tadeusza,\
