@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Wojna! wojna! Nie było w Litwie kąta ziemi,\
 Gdzie by jej huk nie doszedł. Pomiędzy ciemnemi\
 Puszczami, chłop, którego dziady i rodzice\
 Pomarli, nie wyjrzawszy za lasu granice,\
