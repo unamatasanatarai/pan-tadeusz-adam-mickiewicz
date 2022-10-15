@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tu Wojskiemu przerwał krzyk: «Wyczha!» Tuż spod koni\
 Smyknął szarak; już Kusy, już go Sokół goni.\
 Psy wzięto na obławę wiedząc, że z powrotem\
 Na polu łatwo można napotkać się z kotem;\
