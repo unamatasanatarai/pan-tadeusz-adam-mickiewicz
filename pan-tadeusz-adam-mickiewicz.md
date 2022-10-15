@@ -1,3 +1,4 @@
+I moje by tam stare pogryzł niedźwiedź kości;\
 Pójdź, księże, wypijemy zdrowie jegomości».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Próżno szukano księdza; wiedzą tylko tyle,\
