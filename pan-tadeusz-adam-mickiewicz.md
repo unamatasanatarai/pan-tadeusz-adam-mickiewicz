@@ -1,3 +1,4 @@
+Czyli ją kochał, czy nie, więc żywo powiedział:\
 «Telimeno, bogdaj mnie jasny piorun ubił,\
 Jeśli nie prawda, żem cię, dalbóg, bardzo lubił,\
 Czy kochał. Krótkie z sobą spędziliśmy chwile,\
