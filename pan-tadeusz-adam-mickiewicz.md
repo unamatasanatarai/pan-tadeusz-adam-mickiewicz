@@ -1,3 +1,4 @@
+Trzeba się długo uczyć, ażeby nie zbłądzić\
 I każdemu powinną uczciwość wyrządzić.\
 I starzy się uczyli; u panów rozmowa,\
 Była to historyja żyjąca krajowa,\
