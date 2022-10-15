@@ -1,3 +1,4 @@
+I rad byłem z wymysłu i — jam się ożenił;\
 Z pierwszą, którąm napotkał, dziewczyną ubogą!\
 Źlem zrobił — jakże byłem ukarany srogo!\
 Nie kochałem jej. Biedna matka Tadeusza\
