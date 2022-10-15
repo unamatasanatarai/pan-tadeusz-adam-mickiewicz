@@ -1,3 +1,4 @@
+Brzegiem tępym, jak gdyby odartym z promieni,\
 Na wpół widne, na poły w czerni chmur się chowa,\
 Jak rozżarzona w węglach kowalskich podkowa.\
 Wiatr wzmagał się i pędził obłoki ze wschodu,\
