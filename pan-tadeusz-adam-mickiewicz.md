@@ -1,3 +1,4 @@
+Do salonu, do gości — gości mamy siła;\
 Patrzajżeż, ażebyś mnie wstydu nie zrobiła».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zosia skoczyła z miejsca i klasnęła w dłonie,\
