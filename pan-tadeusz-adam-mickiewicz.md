@@ -1,3 +1,4 @@
+Nie chcąc, aby tak ważną i trudną wyprawę\
 Odbył sam Hrabia, młody i niedoświadczony;\
 Poszedł więc z nim dla rady tudzież dla obrony.
 
