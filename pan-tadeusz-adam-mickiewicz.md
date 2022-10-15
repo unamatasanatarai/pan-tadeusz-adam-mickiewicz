@@ -1,3 +1,4 @@
+Aż powoli pożółkniał, zbladnął i poszarzał.\
 Słońce spuściło głowę, obłok zasunęło,\
 I raz ciepłym powietrzem westchnąwszy — usnęło.
 
