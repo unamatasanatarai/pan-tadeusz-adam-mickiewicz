@@ -1,3 +1,4 @@
+Soplico? pod kapturem? żyłeś po żebracku!\
 Ty, którego pamiętam, gdy zdrowy, rumiany,\
 Piękny szlachcic, gdy tobie pochlebiały pany,\
 Gdy za tobą, kobiety szalały! Wąsalu!\
