@@ -1,3 +1,4 @@
+Mają też i swój cmentarz, kędy bliscy śmierci,\
 Ptaki składają pióra, czworonogi sierci:\
 Niedźwiedź, gdy zjadłszy zęby, strawy nie przeżuwa,\
 Jeleń zgrzybiały, gdy już ledwie nogi suwa,\
