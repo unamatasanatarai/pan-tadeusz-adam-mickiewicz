@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;A gdy na żale ten świat nie ma ucha,\
 Gdy ich co chwila nowina przeraża,\
 Bijąca z Polski jako dzwon smętarza,\
 Gdy im prędkiego zgonu życzą straże,\
