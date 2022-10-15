@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Aż Wojski Tadeusza wyrwał z zamięszania;\
 Widząc, że bladnie i że na nogach się słania,\
 Radził mu odejść do swej izby dla spoczynku.\
 Tadeusz stanął w kącie, wsparł się na kominku,\
