@@ -1,3 +1,4 @@
+Ogromny czarny baran, a łeb mu się jeży\
 Czterema rogami, z których dwa jako kabłąki\
 Kręcą się koło uszu, ubrane we dzwonki,\
 A dwa od czoła na bok wysuwając końce,\
