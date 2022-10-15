@@ -1,3 +1,4 @@
+I w sam środek paszczęki! tak mu zęby wybić!\
 Panowie! długo żyję: jednego widziałem\
 Człowieka, co mógł takim popisać się strzałem.\
 Ów głośny niegdyś u nas z tylu pojedynków,\
