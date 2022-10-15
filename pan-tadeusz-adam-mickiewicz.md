@@ -1,3 +1,4 @@
+Postawiwszy szeregi, odwrót ci zamyka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz się dowiedział, że niemało czasu\
 Już przeszło, jak ogary wpadły w otchłań lasu.
