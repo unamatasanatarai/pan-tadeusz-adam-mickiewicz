@@ -1,3 +1,4 @@
+We dworze pusto: bo drzwi od ganku zamknięto\
 Zaszczepkami i kołkiem zaszczepki przetknięto.\
 Podróżny do folwarku nie biegł sług zapytać,\
 Odemknął, wbiegł do domu, pragnął go powitać.\
