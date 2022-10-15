@@ -1,3 +1,4 @@
+Milczenia, długo w miejscu nieruchomy czeka:\
 Tylko muzyka puszczy gra do nich z daleka.\
 Psy nurtują po puszczy, jak pod morzem nurki,\
 A strzelcy, obróciwszy do lasu dwururki,\
