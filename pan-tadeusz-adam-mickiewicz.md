@@ -1,3 +1,4 @@
+Jej różowa wstążeczka i biała sukienka.\
 Widać na grzędach, jaką przeleciała drogą,\
 Bo liść zielony, w biegu potrącony nogą,\
 Podnosił się, drżał chwilę, aż się uspokoił,\
