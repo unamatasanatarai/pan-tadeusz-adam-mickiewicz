@@ -1,3 +1,4 @@
+Konia teraz ułani pod jazdę zabrali,\
 Rzęd został przy mnie; każdy znawca ten rzęd chwali\
 Iż jest wygodny, trwały, a piękny jak cacko:\
 Kulbaczka wąska modą z turecka kozacką,\
