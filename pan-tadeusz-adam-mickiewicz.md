@@ -1,3 +1,4 @@
+Zastrzeżono tysiącznym dwóchsetnym ukazem,\
 Że jak zło...» Wtem go Hrabia w twarz uderzył płazem.\
 Padł zgłuszony Asesor i skrył się w pokrzywy;\
 Wszyscy myśleli, że był ranny lub nieżywy.
