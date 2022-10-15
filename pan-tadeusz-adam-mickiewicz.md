@@ -1,3 +1,4 @@
+A w Soplicowie obóz czterdziestu tysięcy,\
 I ze sztabami swymi jenerał Dąbrowski,\
 Kniaziewicz, Małachowski, Giedrojć i Grabowski.
 
