@@ -1,3 +1,4 @@
+Któż był w lasach litewskich Rejtanowi równym?\
 Czy obławę zaciągnąć, czy spotkać się z zwierzem,\
 Kto z Białopiotrowiczem porówna się Jerzym?\
 Gdzie jest dziś taki strzelec jak szlachcic Żegota,\
