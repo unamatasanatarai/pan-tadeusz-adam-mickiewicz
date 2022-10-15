@@ -1,3 +1,4 @@
+A intercyza cały zakończyła kłopot:\
 Tak z Borzdobohatymi pogodził się Łopot,\
 Krepsztulowie z Kupściami, Putrament z Pikturną,\
 Z Odyńcami Mackiewicz, z Kwileckimi Turno.\
