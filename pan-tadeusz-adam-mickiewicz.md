@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W izbie Sędziego ważne toczą się narady.\
 Bernardyn leżał w łóżku; zmordowany, blady\
 I skrwawiony, lecz całkiem zdrowy na umyśle,\
