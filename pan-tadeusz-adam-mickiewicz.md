@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Stary Maciek, do ręcznych zapasów niezdolny,\
 Rejterował się, czyniąc przed sobą plac wolny\
 Na prawo i na lewo. Tu, końcem szablicy\
