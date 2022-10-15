@@ -1,3 +1,4 @@
+To Tadeuszu będziesz sercu memu droższy.\
 O moim rodzie mało wiem i nie dbam o to;\
 Tyle pomnę, że byłam ubogą sierotą,\
 Że od Sopliców byłam za córkę przybrana,\
