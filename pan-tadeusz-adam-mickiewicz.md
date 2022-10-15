@@ -1,3 +1,4 @@
+Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już też i słońce wschodzi, krwawo się czerwieni;\
 Brzegiem tępym, jak gdyby odartym z promieni,\
