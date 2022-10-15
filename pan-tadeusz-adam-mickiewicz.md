@@ -1,3 +1,4 @@
+Ptastwo piękne, karmione perłowymi krupy.\
 Niebaczny Saku, jakiż zapał cię unosi!\
 Nigdy już odtąd gniewnej nie przebłagasz Zosi.
 
