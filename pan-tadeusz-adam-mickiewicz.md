@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Był gaj z rzadka zarosły, wysłany murawą.\
 Po jej kobiercach, na wskroś białych pniów brzozowych,\
 Pod namiotem obwisłych gałęzi majowych,\
 Snuło się mnóstwo kształtów, których dziwne ruchy,\
