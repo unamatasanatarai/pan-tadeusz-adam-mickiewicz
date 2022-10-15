@@ -1,3 +1,4 @@
+I ludziom. Nieraz zając zdybany w kapuście\
 Skacze skryć się w konopiach bezpieczniej niż w chruście:\
 Bo go dla gęstwi ziela ani chart nie zgoni,\
 Ani ogar wywietrzy dla zbyt tęgiej woni.\
