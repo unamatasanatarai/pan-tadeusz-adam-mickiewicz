@@ -1,3 +1,4 @@
+Ująwszy rapier lekko, jakby szpadę dźwignął\
 I nad głowami gości błyskawicą mignął,\
 Przypominając polskie fechtarskie wykręty:\
 *Krzyżową sztukę, młyńca, cios krzywy, raz cięty,*\
