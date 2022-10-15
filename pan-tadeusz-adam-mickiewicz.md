@@ -1,3 +1,4 @@
+Z Dobrzyńskiej ziemi ród swój starożytny wiedli,\
 A choć od lat czterystu na Litwie osiedli,\
 Zachowali mazurską mowę i zwyczaje.\
 Jeśli który z nich dziecku imię na chrzcie daje,\
