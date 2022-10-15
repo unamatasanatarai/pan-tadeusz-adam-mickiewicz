@@ -1,3 +1,4 @@
+Ja Żyd, o wojnach nie wiem, a byłem w Bielicy,\
 I widziałem tam Żydków od samej granicy;\
 Słychać, że Francuz stoi nad rzeką Łososną,\
 A wojna jeśli będzie, to chyba aż wiosną.\
