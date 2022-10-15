@@ -1,3 +1,4 @@
+Więc po coście tu przyszli? i czego wy chcecie?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wojny!» krzyknęli. — «Jakiej?» spytał. — Zawołali:\
 «Wojny z Moskalem! Bić się! Hejże na Moskali!»
