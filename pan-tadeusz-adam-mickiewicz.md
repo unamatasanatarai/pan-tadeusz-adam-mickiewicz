@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Chwilę czekał Tadeusz, nim w klamkę zadzwonił;\
 Otworzono mu, cicho wszedł, nisko się skłonił:\
 «Stryjaszku dobrodzieju — rzekł — ledwie dni kilka\
