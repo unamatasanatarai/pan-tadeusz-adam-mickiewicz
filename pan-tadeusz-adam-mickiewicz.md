@@ -1,3 +1,4 @@
+Jako dziewczę, gdy rybki w kąpieli ugania\
 Bawiące się z jej nóżką, tak ona co chwila\
 Z rękami i koszykiem po owoc się schyla,\
 Który stopą nadtrąci lub dostrzeże okiem.
