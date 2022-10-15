@@ -1,3 +1,4 @@
+Że, kiedy zwróci wzrok ku jego męce,\
 Nawet Odwaga załamuje ręce.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Te pokolenia żałobami czarne,\
