@@ -1,3 +1,4 @@
+Wkoło siebie i ręką ciepły ich puch gładzić;\
 A drugą ręką z czapki proso w trawę miota\
 Dla wróblów: spada z dachów krzykliwa hołota.
 
