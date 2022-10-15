@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski obiedwie ręce odjąwszy od rogu\
 Rozkrzyżował; róg opadł, na pasie rzemiennym\
 Chwiał się. Wojski z obliczem nabrzmiałym, promiennym,\
