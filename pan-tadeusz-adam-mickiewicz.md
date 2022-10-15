@@ -1,3 +1,4 @@
+Westchnął głęboko, w oczach łzy się zakręciły...\
 Wreszcie porwał za szyję księdza z całej siły,\
 «Mój Robaku! — wołając — czy to tylko prawda?\
 Mój Robaku! — powtarzał — czy to tylko prawda?\
