@@ -1,3 +1,4 @@
+Gdy w powietrzu zawisną, zaledwo widome,\
 I chociaż brzęczą, myślisz, że są nieruchome.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziewczyna powiewała podniesioną w ręku\
