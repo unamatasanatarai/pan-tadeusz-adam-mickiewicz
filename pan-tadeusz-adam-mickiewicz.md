@@ -1,3 +1,4 @@
+Tak to nauka sama z latami przychodzi».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, na którego niespodzianie spadał\
 Grom taki, wstał zmieszany, chwilę nic nie gadał,\
