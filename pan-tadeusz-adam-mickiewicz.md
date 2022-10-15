@@ -1,3 +1,4 @@
+Warto, żeby na wielkim przetarło się świecie.\
 Dobrze brat zrobi, gdy go do stolicy wyśle,\
 Na przykład do Warszawy? Lub wie brat, co myślę...\
 Żeby do Peterburka? Ja pewnie tej zimy\
