@@ -1,3 +1,4 @@
+To jest w pałacach wiejskich (dacza wioskę znaczy).\
 Mieszkałam w pałacyku, tuż nad Newą rzeką,\
 Niezbyt blisko od miasta i niezbyt daleko,\
 Na niewielkim, umyślnie sypanym pagórku:\
