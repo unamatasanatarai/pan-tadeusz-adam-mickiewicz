@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;I była chwila ciszy; i powietrze stało\
 Głuche, milczące, jakby z trwogi oniemiało.\
 I łany zbóż, co wprzódy kładąc się na ziemi\
 I znowu w górę trzęsąc kłosami złotemi\
