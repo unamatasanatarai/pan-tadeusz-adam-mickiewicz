@@ -1,3 +1,4 @@
+Twarzy nie było widać; zwrócona na pole\
 Szukała kogoś okiem, daleko, na dole;\
 Ujrzała, zaśmiała się i klasnęła w dłonie,\
 Jak biały ptak zleciała z parkanu na błonie,\
