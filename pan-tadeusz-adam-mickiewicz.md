@@ -1,3 +1,4 @@
+Czy już byłeś u Płuta? czyś się z nim naradził?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazy obejrzał się, łysinę pogładził,\
 Kiwnął niedbale ręką, jak gdyby znać dawał,\
