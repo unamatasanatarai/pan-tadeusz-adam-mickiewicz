@@ -1,3 +1,4 @@
+Ale zważaj no, aśćka, moje utrapienie!\
 Wiesz, że pan Jacek, brat mój, Tadeusza ociec,\
 Dziwny człowiek, zamiarów jego trudno dociec,\
 Nie chce wracać do kraju, Bóg wie gdzie się kryje,\
