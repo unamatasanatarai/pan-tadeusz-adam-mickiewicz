@@ -1,3 +1,4 @@
+Aż je przerwał kapitan Ryków tymi słowy,\
 Rzucając na stół kiesę ciężką dukatami:\
 «Państwo Lachy, już jest ta gadka między wami,\
 Że każdy Moskal złodziej: powiedźcież, kto spyta,\
