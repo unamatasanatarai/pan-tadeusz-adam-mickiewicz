@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Podróżny długo w oknie stał patrząc, dumając,\
 Wonnymi powiewami kwiatów oddychając.\
 Oblicze aż na krzaki fijołkowe skłonił,\
 Oczyma ciekawymi po drożynach gonił\
