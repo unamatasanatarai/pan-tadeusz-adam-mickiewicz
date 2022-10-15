@@ -1,3 +1,4 @@
+Męża panny Zofiji, mej wielmożnej pani!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu skończyli rozmowę, piją zadumani;\
 Słychać tylko niekiedy te krótkie wyrazy:\
