@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Próżno szukano księdza; wiedzą tylko tyle,\
 Że po zabiciu źwierza zjawił się na chwilę,\
 Podskoczył ku Hrabiemu i Tadeuszowi,\
