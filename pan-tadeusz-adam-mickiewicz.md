@@ -1,3 +1,4 @@
+Na pana Tadeusza wsparła się ramieniu.\
 Przeprosiwszy go grzecznie, na miejscu swym siadła\
 Pomiędzy nim i stryjem, ale nic nie jadła;\
 Tylko się wachlowała, to wachlarza trzonek\
