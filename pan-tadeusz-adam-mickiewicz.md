@@ -1,3 +1,4 @@
+Nie zmylił się mistrz taki! On umyślnie trąca\
 Wciąż tę zdradziecką strunę, melodyję zmąca,\
 Coraz głośniej targając akord rozdąsany,\
 Przeciwko zgodzie tonów skonfederowany:\
