@@ -1,3 +1,4 @@
+Tonem grzecznej, lecz sztukę znającej osoby;\
 Skąpa w pochwały, lecz nie szczędziła zachętu:\
 «Brawo — rzekła — winszuję, niemało talentu.\
 Tylko pan nie zaniedbuj; szczególniej potrzeba\
