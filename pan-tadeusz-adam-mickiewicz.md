@@ -1,3 +1,4 @@
+Ale nie staropolska, ani też szlachecka.\
 Grzeczność wszystkim należy, lecz każdemu inna;\
 Bo nie jest bez grzeczności i miłość dziecinna,\
 I wzgląd męża dla żony przy ludziach, i pana\
