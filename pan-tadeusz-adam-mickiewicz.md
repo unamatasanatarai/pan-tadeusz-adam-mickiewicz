@@ -1,3 +1,4 @@
+Bernardyn leżał w łóżku; zmordowany, blady\
 I skrwawiony, lecz całkiem zdrowy na umyśle,\
 Daje rozkazy, Sędzia wypełnia je ściśle.\
 Prosi Podkomorzego, przyzywa Klucznika,\
