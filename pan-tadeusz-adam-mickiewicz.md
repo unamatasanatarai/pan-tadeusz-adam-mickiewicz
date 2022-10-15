@@ -1,3 +1,4 @@
+Jako młodszy i jako gospodarza krewny;\
 Więc spolia opima weźmiesz, mości Hrabia:\
 Niech ten łup twą strzelecką komnatę ozdabia,\
 Niechaj pamiątką będzie dzisiejszej zabawy,\
