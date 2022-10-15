@@ -1,3 +1,4 @@
+Zgodnie konfederackim marszałkiem obrany.\
 Miał mundur województwa: żupan złotem szyty,\
 Kontusz grodeturowy z frędzlą i pas lity,\
 Przy którym karabela z głownią jaszczurową;\
