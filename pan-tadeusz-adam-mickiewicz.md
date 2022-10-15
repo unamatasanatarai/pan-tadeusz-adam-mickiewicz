@@ -1,3 +1,4 @@
+Sędziowscy towarzysze? Z hucznego śniadania\
 Wyszli na uroczysty obrzęd grzybobrania.\
 Jako ludzie rozsądni, umieją miarkować\
 Mowy i ruchy swoje, aby je stosować\
