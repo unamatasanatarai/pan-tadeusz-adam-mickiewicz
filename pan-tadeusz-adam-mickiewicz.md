@@ -1,3 +1,4 @@
+Zabłysnęła mu nagle myśl o pojedynku:\
 «Zamordować Hrabiego! łotra! krzyknął w gniewie,\
 Zginąć albo zemścić się!» A za co? sam nie wie;\
 I ten gniew wielki, jak się zajął w mgnieniu oka,\
