@@ -1,3 +1,4 @@
+Bezbronnego człowieka, niestety, sprzątniono...\
 A i to, Bóg mi świadkiem, pro publico bono».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Pokaż no — rzekł śmiejąc się jenerał Dąbrowski —\
