@@ -1,3 +1,4 @@
+Zwrócił się ku myśliwcom, chcąc i tych pocieszyć;\
 I zaczął, nalewając sobie kielich wina:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Nadaremnie oczyma szukam bernardyna;\
