@@ -1,3 +1,4 @@
+Rzekł : «To gdy Napoleon wolność Litwie niesie,\
 Gdy świat drży cały, to ty myślisz o procesie?\
 I jeszczeż po tym wszystkim, com tobie powiedział,\
 Będziesz spokojnie, ręce założywszy, siedział,\
