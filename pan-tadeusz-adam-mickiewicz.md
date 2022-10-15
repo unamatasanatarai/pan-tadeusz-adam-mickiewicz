@@ -1,3 +1,4 @@
+Wszystkich do Soplicowa wzywa na biesiadę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale na przyźbie domu usiedli dwaj starce,\
 Mając u kolan pełne miodu dwa półgarce.\
