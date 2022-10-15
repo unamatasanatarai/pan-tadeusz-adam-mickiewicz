@@ -1,3 +1,4 @@
+Sam na czele z żelazem nad głowę wzniesionem.\
 Wtem Ryków krzyknął: «Ognia pół batalijonem!»\
 Przeleciała po zamkach wzdłuż nitka ognista,\
 I z czarnych rur wytkniętych świsnęło kul trzysta.\
