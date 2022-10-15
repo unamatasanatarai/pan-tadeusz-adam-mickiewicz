@@ -1,3 +1,4 @@
+A choć od lat czterystu na Litwie osiedli,\
 Zachowali mazurską mowę i zwyczaje.\
 Jeśli który z nich dziecku imię na chrzcie daje,\
 Zawsze zwykł za patrona brać koronijasza;\
