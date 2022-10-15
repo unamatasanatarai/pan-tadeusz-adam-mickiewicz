@@ -1,3 +1,4 @@
+Wokoło była ciemność; gałęzie u góry\
 Wisiały jak zielone, gęste, niskie chmury;\
 Wicher kędyś nad sklepem szalał nieruchomym,\
 Jękiem, szumami, wyciem, łoskotami, gromem:\
