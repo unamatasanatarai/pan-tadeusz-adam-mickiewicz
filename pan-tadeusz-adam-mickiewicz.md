@@ -1,3 +1,4 @@
+I raz ciepłym powietrzem westchnąwszy — usnęło.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A szlachta ciągle pije i wiwaty wznosi:\
 Napoleona, wodzów, Tadeusza, Zosi,\
