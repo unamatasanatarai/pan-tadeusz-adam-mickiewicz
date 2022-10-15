@@ -1,3 +1,4 @@
+Miejsca piękność, postawy wdzięk i gust ubrania\
 Zmieniły ją, zaledwo była do poznania.\
 W oczach świeciły jeszcze niezagasłe gniewy;\
 Twarz, ożywiona wiatru świeżymi powiewy,\
