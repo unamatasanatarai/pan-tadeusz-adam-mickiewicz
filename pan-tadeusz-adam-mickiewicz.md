@@ -1,3 +1,4 @@
+Bernardyn odpowiedzieć ni spojrzeć nie raczył;\
 Kaptur tylko nasunął i pacierz swój kończył,\
 Więc Tadeusz odjechał i z gośćmi się złączył.
 
