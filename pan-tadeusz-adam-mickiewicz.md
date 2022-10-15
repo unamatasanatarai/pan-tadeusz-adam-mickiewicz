@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Już ostatnie perły gwiazd zamierzchły i na dnie\
 Niebios zgasły, i niebo środkiem czoła bladnie.\
 Prawą skronią złożone na wezgłowiu cieni\
 Jeszcze smagławe, lewą coraz się rumieni;\
