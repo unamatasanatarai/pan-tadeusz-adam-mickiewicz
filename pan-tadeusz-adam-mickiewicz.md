@@ -1,3 +1,4 @@
+«Jeśli chcesz Sędzio, żeby to uszło na sucho,\
 Za każdą głowę tysiąc rubelków gotówką:\
 Tysiąc rubelków Sędzio, to ostatnie słówko».
 
