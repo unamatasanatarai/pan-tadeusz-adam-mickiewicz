@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Moskwa mnie uważała gwałtem za stronnika.\
 Dano Soplicom znaczną część dóbr nieboszczyka;\
 Targowiczanie potem chcieli mnie zaszczycić\
 Urzędem. — Gdybym wtenczas chciał się przemoskwicić!\
