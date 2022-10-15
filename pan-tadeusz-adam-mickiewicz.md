@@ -1,3 +1,4 @@
+Po układach, na szpady zgodzili się oba.\
 Tadeusz broni nie miał: gdy szukano szpady,\
 Wyskoczył Hrabia zbrojny i zerwał układy.
 
