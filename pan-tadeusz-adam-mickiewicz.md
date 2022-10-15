@@ -1,3 +1,4 @@
+Wszczął dyskurs — o czym? o czym? o córki weselu!...\
 W tej chwili! O Gerwazy! uważ, przyjacielu,\
 Masz ludzkie serce!
 
