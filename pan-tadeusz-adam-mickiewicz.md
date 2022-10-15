@@ -1,3 +1,4 @@
+Cóż kiedy wam dobrego zrobił on?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Nic a nic! —\
 Przerwał Konewka — bo to wyrosło z szlachciury,\
