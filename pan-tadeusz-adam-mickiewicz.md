@@ -1,3 +1,4 @@
+Pomieszaniem, żałością i widocznym wstrętem;\
 Jakby lękał się reszty mowy, głowę skłonił,\
 I ręką potakując, mocno się zapłonił.)
 
