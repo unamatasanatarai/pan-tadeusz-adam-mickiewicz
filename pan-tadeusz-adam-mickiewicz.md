@@ -1,3 +1,4 @@
+Biegła więc, gdzie stał mały domowy ołtarzyk,\
 Wyjęła zeń obrazek i relikwijarzyk;\
 Na obrazku tym była święta Genowefa,\
 A w relikwiji suknia świętego Józefa,\
