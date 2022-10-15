@@ -1,3 +1,4 @@
+Fajerwerk dawał Kaszyc, który mieszka w Jatrze,\
 Pan Tyzenhauz tancerzy przysłał, a kapele\
 Ogiński i pan Sołtan, co mieszka w Zdzieńciele.\
 Słowem, dawano huczne nad podziw zabawy\
