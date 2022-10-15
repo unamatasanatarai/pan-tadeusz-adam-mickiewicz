@@ -1,3 +1,4 @@
+Często mnie na biesiady, zdrowie moje wnaszał,\
 Krzyczał nieraz, do góry podniósłszy szklanicę,\
 Że nie miał przyjaciela nad Jacka Soplicę,\
 Jak on mnie ściskał! Wszyscy, którzy to widzieli,\
