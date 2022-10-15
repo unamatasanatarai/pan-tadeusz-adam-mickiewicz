@@ -1,3 +1,4 @@
+Postrzegłem wtenczas kulę, wpadła w piersi same.\
 Pan słaniając się, palcem ukazał na bramę:\
 Poznałem tego łotra Soplicę! poznałem!\
 Po wzroście i po wąsach! Jego to postrzałem\
