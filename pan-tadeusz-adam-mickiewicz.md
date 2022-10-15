@@ -1,3 +1,4 @@
+Tuż nad sobą, a każda ma wąsów po parze,\
 Dyszą nad nim, ust jego tykają wąsami,\
 I czworgiem rąk wokoło wiją jak skrzydłami.\
 Zląkł się, chciał przeżegnać się: darmo rękę chwyta,\
