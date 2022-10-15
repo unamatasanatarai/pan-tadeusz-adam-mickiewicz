@@ -1,3 +1,4 @@
+Dwudziestu trzech na ziemi wala się zabitych,\
 Trzydziestu kilku jęczy ranami okrytych,\
 Wielu pierzchło, skryło się w sad, w chmiele, nad rzekę,\
 Kilku wpadło do domu pod kobiet opiekę.
