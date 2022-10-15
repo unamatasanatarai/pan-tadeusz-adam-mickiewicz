@@ -1,3 +1,4 @@
+Kładą mu na kolanach. On patrzy z rozkoszą\
 I z dumą: jak weteran w służbę powołany,\
 Gdy wnuki ciężki jego miecz ciągną ze ściany,\
 Dziad śmieje się, choć miecza dawno nie miał w dłoni,\
