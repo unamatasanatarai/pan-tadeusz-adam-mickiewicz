@@ -1,3 +1,4 @@
+Wyzwać w dłuższą rozmowę, w lepszy humor wprawić;\
 Bo Hrabia dziwnie kwaśny powrócił z przechadzki\
 A raczej, jako myślił Tadeusz, z zasadzki.\
 Słuchając Telimeny, czoło podniósł hardo,\
