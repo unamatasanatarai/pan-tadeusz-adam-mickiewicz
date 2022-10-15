@@ -1,3 +1,4 @@
+Przed rokiem tu siedziała w święto czeladź nasza\
 Pijąc miód; alić patrzym: pęc, pada z poddasza\
 Dwóch wróblów bijących się; oba samcy stare,\
 Jeden młodszy cokolwiek miał podgarle szare,\
