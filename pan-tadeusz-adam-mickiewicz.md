@@ -1,3 +1,4 @@
+Potrzeba będzie oddać pod Scyzoryk szyję.\
 Nic Klucznika nie wstrzyma! Mniejsza o mą głowę,\
 Lecz tym odkryciem, spisku zerwałbym osnowę.\
 Przecież dziś tam być muszę! Widzieć, co się dzieje,\
