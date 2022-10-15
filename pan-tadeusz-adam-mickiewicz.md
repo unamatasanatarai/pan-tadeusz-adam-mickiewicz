@@ -1,3 +1,4 @@
+Lecz mało ją uważał: zadziwił się zrazu,\
 Rozeznając w niej model swojego obrazu.\
 Miejsca piękność, postawy wdzięk i gust ubrania\
 Zmieniły ją, zaledwo była do poznania.\
