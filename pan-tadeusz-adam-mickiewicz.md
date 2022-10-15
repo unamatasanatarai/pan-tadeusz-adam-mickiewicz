@@ -1,3 +1,4 @@
+Aby Moskalom naszych zamiarów nie zdradzić».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«He! czekać? szczekać? zwlekać?» przerwał Maciej drugi\
 Ochrzczony Kropicielem, od wielkiej maczugi,\
