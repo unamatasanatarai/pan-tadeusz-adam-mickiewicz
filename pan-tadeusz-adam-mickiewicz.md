@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Pan Wojski poznał z dala, ręce rozkrzyżował\
 I z krzykiem podróżnego ściskał i całował.\
 Zaczęła się ta prędka, zmieszana rozmowa,\
 W której lat kilku dzieje chciano zamknąć w słowa\
