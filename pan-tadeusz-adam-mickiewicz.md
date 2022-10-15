@@ -1,3 +1,4 @@
+Przed Jankielem tłumili dawne swe urazy\
 Gerwazy, groźny ręką, językiem Protazy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gerwazego nie było; ruszył na obławę,\
