@@ -1,3 +1,4 @@
+I ażeby ukarać niewierną kochankę,\
 Za przedmiot stałych ogniów wziął Podkomorzankę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski pragnął młodzieńców poróżnionych zgodzić\
