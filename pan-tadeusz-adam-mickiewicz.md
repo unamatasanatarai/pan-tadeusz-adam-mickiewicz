@@ -1,3 +1,4 @@
+Wydawała, że mnich ten nie zawsze w kapturze\
 Chodził i nie w klasztornym zestarzał się murze.\
 Miał on nad prawym uchem, nieco wyżej skroni,\
 Bliznę, wyciętej skóry na szerokość dłoni,\
