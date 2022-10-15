@@ -1,3 +1,4 @@
+I wąsa pokręcając, podał rękę Zosi\
 I skłoniwszy się grzecznie w pierwszą parę prosi.\
 Za Podkomorzym szereg w pary się gromadzi,\
 Dano hasło, zaczęto taniec: on prowadzi.
