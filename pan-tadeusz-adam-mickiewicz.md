@@ -1,3 +1,4 @@
+Ale wszędzie żelazo i sznur z sobą wlecze:\
 Tak i Tadeusz ciągnął za sobą zgryzoty,\
 Suwając się przez rowy i skacząc przez płoty,\
 Bez celu i bez drogi; aż niemało czasu\
