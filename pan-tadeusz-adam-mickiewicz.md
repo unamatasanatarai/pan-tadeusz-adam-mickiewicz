@@ -1,3 +1,4 @@
+A zwierzę niemające kłów, rogów, pazurów,\
 Zostawiano dla płatnych sług i dworskich ciurów;\
 Żaden pan nigdy przyjąć nie chciałby do ręki\
 Strzelby, którą zhańbiono sypiąc w nią śrut cienki!\
