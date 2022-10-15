@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nad murawą czerwone połyskają buty,\
 Bije blask z karabeli, świeci się pas suty,\
 A on stąpa powoli, niby od niechcenia:\
