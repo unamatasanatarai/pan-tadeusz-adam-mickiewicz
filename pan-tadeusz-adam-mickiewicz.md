@@ -1,3 +1,4 @@
+Gdy pozwą, muszą wygrać; nieraz w ich imieniu\
 Trwał proces, aż wygrali w szóstym pokoleniu.\
 Dosyć zrobiłem głupstwa z porady waszeci,\
 Zwołując podkomorskie sądy po raz trzeci.\
