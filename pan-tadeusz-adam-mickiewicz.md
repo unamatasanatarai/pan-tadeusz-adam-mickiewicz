@@ -1,3 +1,4 @@
+U ludzi; bo szanujem w nich ród, dobre imię,\
 Albo urząd, lecz ziemski, przyznany wyborem\
 Obywatelskim, nie zaś czyimś tam faworem».
 
