@@ -1,3 +1,4 @@
+Lecz Hrabia krzesłem w środku zagrodził im drogę\
 I na tym szańcu słabym utwierdziwszy nogę,\
 «Wara! — zawołał — Sędzio! nie wolno nikomu\
 Krzywdzić sługę mojego w moim własnym domu:\
