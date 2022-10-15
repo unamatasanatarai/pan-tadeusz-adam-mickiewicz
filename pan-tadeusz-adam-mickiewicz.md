@@ -1,3 +1,4 @@
+Naprzód!» Wnet szereg rury wytknąwszy jak tyki,\
 Schyla głowy, zrusza się i przyśpiesza kroku.\
 Darmo szlachta wstrzymuje z przodu, strzela z boku:\
 Szereg już pół dziedzińca przeszedł bez oporu;\
