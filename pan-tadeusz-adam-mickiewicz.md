@@ -1,3 +1,4 @@
+Kiedy nieboszczyk Pan mój upadał zraniony,\
 A ja klęcząc nad jego piersią pochylony\
 I miecz maczając w ranę, zemstę zaprzysiągnął,\
 Pan głowę wstrząsnął, rękę ku bramie wyciągnął\
