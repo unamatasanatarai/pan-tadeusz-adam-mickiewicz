@@ -1,3 +1,4 @@
+Nim rozezna ich wartość: tak się słuch jej pieści\
 Z dźwięcznymi słowy, których nie pojęła treści.\
 Na koniec zapytała: «Skąd tu pan przychodzi?\
 I czego tu po grzędach szuka pan dobrodziéj?»
