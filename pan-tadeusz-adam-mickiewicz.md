@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Na koniec z trzaskiem sali drzwi na wściąż otwarto.\
 Wchodzi pan Wojski w czapce i z głową zadartą,\
 Nie wita się i miejsca za stołem nie bierze:\
 Bo Wojski występuje w nowym charakterze\
