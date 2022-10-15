@@ -1,3 +1,4 @@
+Wszyscy poszli za gośćmi, jak sługom należy,\
 Urządzając we dworze izby do spoczynku.\
 Starsi i damy spały we dworskim budynku;\
 Młodzież Tadeuszowi prowadzić kazano,\
