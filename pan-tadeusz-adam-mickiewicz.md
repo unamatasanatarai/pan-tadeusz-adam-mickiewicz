@@ -1,3 +1,4 @@
+Soki żywne, aż z brzegów naczynia war pryśnie\
 I powietrze dokoła zionie aromatem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bigos już gotów. Strzelcy z trzykrotnym wiwatem,\
