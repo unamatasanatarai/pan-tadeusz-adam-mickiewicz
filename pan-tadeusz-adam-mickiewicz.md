@@ -1,3 +1,4 @@
+I przez Woźnego pardon powszechny ogłasza;\
 Każe rannych opatrzyć, z trupów czyścić pole,\
 A jegrów rozbrojonych prowadzić w niewolę.\
 Długo szukano Płuta. On, w krzaku pokrzywy\
