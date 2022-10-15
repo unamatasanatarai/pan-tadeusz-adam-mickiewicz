@@ -1,3 +1,4 @@
+W rewolucyjach bardzo potrzebne dziwaki:\
 Wiem z doświadczenia; nawet głupi się przydadzą,\
 Byle tylko poczciwi i pod mądrych władzą.\
 Hrabia pan, ma u szlachty wielkie zachowanie,\
