@@ -1,3 +1,4 @@
+I chociaż brzęczą, myślisz, że są nieruchome.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziewczyna powiewała podniesioną w ręku\
 Szarą kitką, podobną do piór strusich pęku;\
