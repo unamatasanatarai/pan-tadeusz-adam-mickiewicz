@@ -1,3 +1,4 @@
+Dowiodła, że zna równie pędzel, nuty, druki;\
 Aż osłupiał Tadeusz na tyle nauki!\
 Lękał się, by nie został pośmiewiska celem,\
 I jąkał się jak żaczek przed nauczycielem.\
