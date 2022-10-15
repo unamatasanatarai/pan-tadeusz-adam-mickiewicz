@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Imię zdrajcy przylgnęło do mnie jako dżuma.\
 Odwracali ode mnie twarz obywatele,\
 Uciekali ode mnie dawni przyjaciele;\
