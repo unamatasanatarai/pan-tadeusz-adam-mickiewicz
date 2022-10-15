@@ -1,3 +1,4 @@
+Ksiądz przemycał — lecz potwarz ta niegodna wiary.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Robak, wsparty na stole, wpół głośno rozprawiał,\
 Tłum szlachty go otaczał i uszy nadstawiał,\
