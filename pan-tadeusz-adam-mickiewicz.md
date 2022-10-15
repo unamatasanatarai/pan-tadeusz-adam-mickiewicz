@@ -1,3 +1,4 @@
+Ale one mnie przeszły tak słodko, tak mile,\
 Że będą długo, zawsze myśli mej przytomne,\
 I dalibóg, że nigdy ciebie nie zapomnę».
 
