@@ -1,3 +1,4 @@
+Na nich, myślisz, iż rojem usiadły motyle\
 Trzepiotąc skrzydełkami, na których się mieni\
 Z rozmaitością tęczy blask drogich kamieni:\
 Tylą farb żywych, różnych, mak źrenicę mami.\
