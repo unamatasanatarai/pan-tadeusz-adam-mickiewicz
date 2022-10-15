@@ -1,3 +1,4 @@
+Tylko głosu im braknie, zresztą gdyby żywe.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Cóż przedstawiają? goście pytali ciekawi.\
 Za czym Wojski podnosi laskę i tak prawi:\
