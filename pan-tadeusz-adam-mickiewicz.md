@@ -1,3 +1,4 @@
+Jeden młodszy cokolwiek miał podgarle szare,\
 Drugi czarne; dalejże tłuc się po podwórzu,\
 Przewracać kulki, że aż zaryli się w kurzu —\
 My patrzym, a tymczasem szepcą sobie sługi,\
