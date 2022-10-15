@@ -1,3 +1,4 @@
+Aż z kłębów dymu, niby biała gołębica,\
 Mignęła świecąca się kuchmistrza szlafmyca:\
 Wojski przez okno kuchni, ponad starców głowy,\
 Wytknąwszy głowę, milczkiem słuchał ich rozmowy,\
