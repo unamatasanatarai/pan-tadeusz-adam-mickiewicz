@@ -1,3 +1,4 @@
+Siedzieli z pochylonym ku misie obliczem.\
 Asesor nowe jeszcze miał powody żalów,\
 Patrząc na Telimenę i na swych rywalów.
 
