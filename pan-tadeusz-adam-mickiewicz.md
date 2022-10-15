@@ -1,3 +1,4 @@
+I żeby mimo przeszli, pokornie ich prosi;\
 Czasem zamyśla zręcznie na bok się uchylić,\
 Odmienia drogę, rad by towarzyszów zmylić,\
 Lecz go szybkimi kroki ścigają natręty,\
