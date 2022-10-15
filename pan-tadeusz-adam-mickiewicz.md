@@ -1,3 +1,4 @@
+Bo i cóż mnie po takim wymuszonym słowie?\
 Wtenczas bawiłem bardzo krótko w Soplicowie;\
 Nie byłem taki próżny, ażebym się łudził,\
 Żem jednym mym spojrzeniem miłość w tobie wzbudził;\
