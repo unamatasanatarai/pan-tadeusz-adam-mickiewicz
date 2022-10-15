@@ -1,3 +1,4 @@
+Dżokeje w pętach; Hrabia siedzi niezwiązany\
 Lecz bezbronny; przy nim dwaj z gołymi bagnety\
 Stoją drabi. Poznał ich Gerwazy, niestety!\
 Moskale!!!
