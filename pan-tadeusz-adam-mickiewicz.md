@@ -1,3 +1,4 @@
+Osłupiały czynownik darmo się zaklinał,\
 Że polowania dotąd jeszcze nie zaczynał,\
 Że z wielkiego łowczego wielkim pozwoleniem,\
 Zwierz uszczuty zda mu się być psem, nie jeleniem.\
