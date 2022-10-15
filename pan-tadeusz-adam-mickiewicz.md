@@ -1,3 +1,4 @@
+Ten pan nie przyszedł straszyć; to nie dziad szkaradny,\
 To gość, dobry pan, patrzcie tylko jaki ładny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sama spojrzała: Hrabia uśmiechnął się mile,\
