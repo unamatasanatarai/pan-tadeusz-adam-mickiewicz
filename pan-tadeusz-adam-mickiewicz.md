@@ -1,3 +1,4 @@
+Dominikanie z Rymszą, Rymsza z Wysogirdem,\
 Radziwił z Wereszczaką, Giedroić z Rdułtowskim,\
 Obuchowicz z kahałem, Juraha z Piotrowskim,\
 Maleski z Mickiewiczem, a na koniec Hrabia\
