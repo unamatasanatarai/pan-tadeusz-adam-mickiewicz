@@ -1,3 +1,4 @@
+Także od feldmarszałka trzy zadowolnienia,\
 Dwie pochwały cesarskie i cztery wspomnienia,\
 Wszystko na piśmie...»
 
