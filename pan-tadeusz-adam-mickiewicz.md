@@ -1,3 +1,4 @@
+
 > Powrót panicza — Spotkanie się pierwsze w pokoiku, drugie u stołu — Ważna Sędziego nauka o grzeczności — Podkomorzego uwagi polityczne nad modami — Początek sporu o Kusego i Sokoła — Żale Wojskiego — Ostatni Woźny Trybunału — Rzut oka na ówczesny stan polityczny Litwy i Europy
 
 &nbsp;&nbsp;&nbsp;&nbsp;Litwo! Ojczyzno moja! ty jesteś jak zdrowie:\
