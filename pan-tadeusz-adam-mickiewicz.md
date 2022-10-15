@@ -1,3 +1,4 @@
+Że wtenczas za pułkowej okradzenie kasy\
 Byłem pod śledztwem, miałem wielkie ambarasy:\
 A jemu co do tego? Ja tańczę mazura,\
 On krzyczy z tyłu: »Złodziej!« szlachta za nim: »Ura!«\
