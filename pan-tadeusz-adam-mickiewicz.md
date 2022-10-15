@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Major! co nam z tych wszystkich niewolników?\
 Oddamy pod sąd? będzie szlachcie wielka bieda,\
 A panu Majorowi nikt za to nic nie da.\
