@@ -1,3 +1,4 @@
+On leci na strzał, kręcąc ostrze Scyzoryka.\
 Widzi to ksiądz: zabiega Klucznikowi drogę,\
 Sam pada i podbija Gerwazemu nogę:\
 Upadli, właśnie kiedy pluton ognia dawał.\
