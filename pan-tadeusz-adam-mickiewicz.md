@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Czyż uciekałem, kiedyś mierzył do mnie z góry?\
 Utkwiłem oczy we dwie twojej broni rury;\
 Rozpacz jakaś, żal dziwny do ziemi mnie przybił!\
 Czemuż? ach mój Gerwazy, czemuś wtenczas chybił?\
