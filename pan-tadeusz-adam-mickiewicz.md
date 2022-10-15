@@ -1,3 +1,4 @@
+I dalej mówił: «Grzeczność nie jest rzeczą małą:\
 Kiedy się człowiek uczy ważyć, jak przystało,\
 Drugich wiek, urodzenie, cnoty, obyczaje,\
 Wtenczas i swoją ważność zarazem poznaje:\
