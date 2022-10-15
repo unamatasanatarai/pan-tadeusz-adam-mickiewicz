@@ -1,3 +1,4 @@
+Donoszące, że nasi biorą tył wrogowi.\
 On potem w Hiszpaniji, gdy nasze ułany\
 Zdobyły Samosiery grzbiet oszańcowany,\
 Obok Kozietulskiego był ranny dwa razy!\
