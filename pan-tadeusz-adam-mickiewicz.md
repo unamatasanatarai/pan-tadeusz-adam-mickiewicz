@@ -1,3 +1,4 @@
+Ja mam Kropidło; dalbóg! ja kropię, a ty siecz:\
 I tak szach mach, plusk i plask; oni niech gawędzą!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Toć i Bartka — rzekł Brzytwa — bracia nie odpędzą;\
