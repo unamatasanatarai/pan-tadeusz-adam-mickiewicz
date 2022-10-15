@@ -1,3 +1,4 @@
+Na ręku miała koszyk, w dół spuściła oczy,\
 Prawą rękę podniosła niby do chwytania,\
 Jako dziewczę, gdy rybki w kąpieli ugania\
 Bawiące się z jej nóżką, tak ona co chwila\
