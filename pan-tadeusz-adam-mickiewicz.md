@@ -1,3 +1,4 @@
+I tak ostróżny Maciek ustępuje w pole.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz z największym na niego naciera uporem\
 Stary Gifrejter, co był pułku instruktorem,\
