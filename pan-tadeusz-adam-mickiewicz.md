@@ -1,3 +1,4 @@
+Zaczął cucić, ocierać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tymczasem Gerwazy,\
 Wystawiony na stołków i butelek razy,\
