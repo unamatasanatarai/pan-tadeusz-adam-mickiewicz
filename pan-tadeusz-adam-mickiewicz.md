@@ -1,3 +1,4 @@
+Ja tylko jedną taką wiosnę miałem w życiu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Soplicowo leżało tuż przy wielkiej drodze,\
 Którą od strony Niemna ciągnęli dwaj wodze:\
