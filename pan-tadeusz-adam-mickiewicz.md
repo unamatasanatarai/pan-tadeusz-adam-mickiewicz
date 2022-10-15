@@ -1,3 +1,4 @@
+I nastąpiła długa godzina milczenia.\
 Oczekują plebana. Podkowy zagrzmiały,\
 Zastukał do komnaty arendarz zdyszały:\
 List ma ważny, samemu Jackowi pokaże.\
