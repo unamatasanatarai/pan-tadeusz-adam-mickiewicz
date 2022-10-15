@@ -1,3 +1,4 @@
+A widzę, że się dzisiaj ziścił omen babi.\
 Prawdać to, że naonczas myślano o Hrabi,\
 Nie zaś o Tadeuszu».
 
