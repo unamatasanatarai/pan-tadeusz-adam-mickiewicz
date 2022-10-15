@@ -1,3 +1,4 @@
+Prosić o pokój; wojna nie jest ogłoszona:\
 Lecz książę Józef słyszał od pana Biniona,\
 Francuza, co należy do cesarskiej rady,\
 Że się na niczym skończą wszystkie te układy,\
