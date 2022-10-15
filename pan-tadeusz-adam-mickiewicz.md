@@ -1,3 +1,4 @@
+Milczał; wreszcie, zniżając swej rozmowy tony:\
 «Przepraszam — rzekł — panienko! Widzę, żem pomieszał\
 Zabawy! Ach, przepraszam: jam właśnie pośpieszał\
 Na śniadanie: już późno, chciałem na czas zdążyć;\
