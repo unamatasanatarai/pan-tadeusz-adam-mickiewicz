@@ -1,3 +1,4 @@
+Że się z tych much szlacheckich pomniejszy lud rodził,\
 Że one tym są muchom, czym dla roju matki,\
 Że z ich wybiciem zginą owadów ostatki.\
 Prawda, że ochmistrzyni ani pleban wioski,\
