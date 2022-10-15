@@ -1,3 +1,4 @@
+Dając na skarb milijon, jak książę Radziwiłł\
 Dominik, co zastawił dobra swe i sprzęty\
 I dwa uzbroił nowe konne regimenty.\
 Jedź, jedź, a weź pieniądze: rąk tam dosyć mamy,\
