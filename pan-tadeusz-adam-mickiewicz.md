@@ -1,3 +1,4 @@
+I wszyscy nieruchomi w miejscach swoich stali;\
 Jeden drugiemu ręką dawał znak milczenia,\
 A wszyscy obrócili oczy do kamienia,\
 Nad którym stał pan Sędzia. On zwierza obaczył\
