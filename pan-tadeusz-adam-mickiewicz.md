@@ -1,3 +1,4 @@
+Kłótnik, Jacek Soplica, zwany Wojewoda\
 Przez żart; w istocie wiele znaczył w województwie,\
 Bo rodzinę Sopliców miał jakby w dowództwie,\
 I trzystu ich kreskami rządził wedle woli,\
