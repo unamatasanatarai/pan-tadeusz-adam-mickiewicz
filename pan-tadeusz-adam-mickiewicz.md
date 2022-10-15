@@ -1,3 +1,4 @@
+Mam list, to rzecz zakonna, to są nasze sprawy\
 Bernardyńskie: cóż o tym gadać u wieczerzy;\
 Są tu świeccy, do których nic to nie należy».
 
