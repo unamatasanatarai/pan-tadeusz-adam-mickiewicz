@@ -1,3 +1,4 @@
+Przebaczę łacniej, chociaż przestaniesz mnie kochać,\
 Pomnąc jakoś mnie kochał!» I zaczęła szlochać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, widząc że tak płacze i tak błaga\
