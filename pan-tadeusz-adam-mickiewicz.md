@@ -1,3 +1,4 @@
+Darmo proszą Wojskiego, żeby je przedłużyć:\
 Już serwis, jak planeta koniecznym obrotem,\
 Zmienia porę, już zboża malowane złotem,\
 Nabrawszy ciepła w izbie powoli topnieją,\
