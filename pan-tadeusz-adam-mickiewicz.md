@@ -1,3 +1,4 @@
+W ręku ma plackę muszą, owad lada jaki\
 Opędza, wpadający chciwie na przysmaki;\
 Drugą ręką przetarte okulary włożył,\
 Dobył z zanadrza księgę, odwinął, otworzył.
