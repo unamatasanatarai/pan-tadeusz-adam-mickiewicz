@@ -1,3 +1,4 @@
+Nosił skórzaną plackę: czasem w miejscu stanie,\
 Duma długo i — muchę zabije na ścianie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną, pomiędzy izbami\
