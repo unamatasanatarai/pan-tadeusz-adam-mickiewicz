@@ -1,3 +1,4 @@
+Wyhodował i w ogród puścił po kryjomu,\
 Ażeby szczwaczów zgodzić zbyt łatwą zdobyczą.\
 Staruszek tak swą sztukę zrobił tajemniczo,\
 Że oszukał zupełnie całe Soplicowo.\
