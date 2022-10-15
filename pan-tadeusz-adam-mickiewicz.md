@@ -1,3 +1,4 @@
+Którzy są szlachta liczna i dzielna, człek w człeka,\
 A nienawidzą rodu Sopliców od wieka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tak zginął pan potężny, pobożny i prawy,\
