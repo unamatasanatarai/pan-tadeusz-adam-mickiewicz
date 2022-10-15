@@ -1,3 +1,4 @@
+U głowy przysmażona, we środku pieczona,\
 A mająca potrawkę z sosem u ogona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście ani pytali nazwiska potrawy,\
