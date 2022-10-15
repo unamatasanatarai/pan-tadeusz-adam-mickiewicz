@@ -1,3 +1,4 @@
+Usta, jakby nad własną mową się zadziwił.\
 «Zgoda i Soplicowie! Mopanku, panisko,\
 Pan żartuje, co? Zamek, Horeszków siedlisko,\
 Ma pójść w ręce Sopliców? Niech pan tylko raczy\
