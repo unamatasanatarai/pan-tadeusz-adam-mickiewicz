@@ -1,3 +1,4 @@
+Że zeń jak z konwi tuzin kulek lał potokiem.\
 Oba krzyczeli: «Wiwat Chrzciciel z kropidełkiem!»\
 Prusak chciał mówić, ale zgłuszono go zgiełkiem\
 I śmiechem; «Precz — wołano — precz Prusaki tchórze!\
