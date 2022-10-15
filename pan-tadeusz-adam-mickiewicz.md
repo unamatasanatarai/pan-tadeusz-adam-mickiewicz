@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tu rozmowę przerwały chorego cierpienia,\
 I nastąpiła długa godzina milczenia.\
 Oczekują plebana. Podkowy zagrzmiały,\
