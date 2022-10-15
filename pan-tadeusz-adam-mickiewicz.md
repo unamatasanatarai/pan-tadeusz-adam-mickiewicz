@@ -1,3 +1,4 @@
+Bo to długie; a zawsze od lewego ucha\
 Ciąć oburącz, to przetniesz od głowy do brzucha».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jenerał wziął Scyzoryk; lecz że bardzo długi,\
