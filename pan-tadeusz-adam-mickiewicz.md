@@ -1,3 +1,4 @@
+I ten zaraz odbity, odszedł bez nadziei.\
 Aż Zosia, już strudzona, spotkała z kolei\
 Tadeusza, i dalszej lękając się zmiany,\
 I chcąc przy nim pozostać, zakończyła tany.\
