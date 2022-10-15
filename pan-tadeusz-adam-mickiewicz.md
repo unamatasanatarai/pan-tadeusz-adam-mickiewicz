@@ -1,3 +1,4 @@
+Dobrze mi tak, wiedziałam, kto jesteś: mężczyzna!\
 Nie znając kokieterii, nie chciałam cię dręczyć,\
 Uszczęśliwiłam; takżeś umiał mnie zawdzięczyć!\
 Tryumf nad miękkim sercem serce twe zatwardził;\
