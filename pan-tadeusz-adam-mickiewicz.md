@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Woźny patrzy, czuwa:\
 Cicho wszędzie; w konopie z wolna ręce wsuwa,\
 I rozchylając gęstwę badylów, w jarzynie\
