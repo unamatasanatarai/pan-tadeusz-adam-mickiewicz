@@ -1,3 +1,4 @@
+Bo rzekł dosyć wesoło: «No, to i cóż robić!\
 Bóg widzi, szczerze chciałem interesu dobić;\
 Tylko bez gniewu. Jeśli aśćka się nie zgodzi,\
 Aśćka ma prawo; smutno: gniewać się nie godzi.\
