@@ -1,3 +1,4 @@
+Siedź cicho, jakeś siedział; jeśli siwej głowy\
 Nie czcisz, to szanuj pierwszy urząd powiatowy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Co mi? — odmruknął Hrabia — dość już tej gawędy;\
