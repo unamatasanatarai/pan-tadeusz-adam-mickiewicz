@@ -1,3 +1,4 @@
+Ryk okropny, boleści, wściekłości, rozpaczy;\
 Za nim wrzask psów, krzyk strzelców, trąby dojeżdżaczy\
 Grzmiały ze środka puszczy. Strzelcy — ci w las śpieszą,\
 Tamci kurki odwodzą, a wszyscy się cieszą;\
