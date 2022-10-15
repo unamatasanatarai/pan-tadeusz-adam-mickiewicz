@@ -1,3 +1,4 @@
+Już rwie się wpół, już znikła owa szyja pyłu,\
 Głowa już blisko lasu, ogony, gdzie z tyłu!\
 Głowa niknie; raz jeszcze jakby kto kutasem\
 Mignął: w las wpadła; ogon urwał się pod lasem.
