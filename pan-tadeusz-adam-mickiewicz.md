@@ -1,3 +1,4 @@
+«Księga — rzekł Major — lepsza niż wasze statuty,\
 A w niej pisze co słowo: stryczek, Sybir, knuty;\
 Księga ustaw wojennych, teraz w Litwie całéj\
 Ogłoszonych: już pod stół wasze trybunały!\
