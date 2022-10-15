@@ -1,3 +1,4 @@
+Dzierżąc palec przy ustach, tymi rzekła słowy:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Kochana Zosiu, już też całkiem zapominasz\
 I na stan, i na wiek twój: wszak to dziś zaczynasz\
