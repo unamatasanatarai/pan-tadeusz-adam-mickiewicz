@@ -1,3 +1,4 @@
+Jak strzelec, gdy w ruchomej gałęzistej szopie,\
 Usiadłszy na dwóch kołach, podjeżdża na dropie,\
 Albo na siewki idąc, przy koniu się kryje,\
 Strzelbę złoży na siodle lub pod końską szyję,\
