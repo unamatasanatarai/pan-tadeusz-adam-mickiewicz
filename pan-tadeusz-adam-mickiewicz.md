@@ -1,3 +1,4 @@
+I stąd to, że przechodził partyi tak wiele,\
 Nazywany był dawniej *Kurkiem na kościele*:\
 Że jak kurek za wiatrem chorągiewkę zwracał.\
 Przyczynę zmian tak częstych na próżno byś macał:\
