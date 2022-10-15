@@ -1,3 +1,4 @@
+Dziś Soplica kopcami tyka waszych granic:\
 Cóż kiedy wam dobrego zrobił on?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Nic a nic! —\
