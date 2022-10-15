@@ -1,3 +1,4 @@
+Szukać pięknej natury! O, szczęśliwe nieba\
 Krajów włoskich! różowe cezarów ogrody!\
 Wy, klasyczne Tyburu spadające wody!\
 I straszne Pauzylipu skaliste wydroże!\
