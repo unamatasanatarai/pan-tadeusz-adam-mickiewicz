@@ -1,3 +1,4 @@
+Co się tycze dawniejszych z Soplicami sprzeczek:\
 Jest na to od procesu lepszy Scyzoryczek;\
 A jeśli Maciej w pomoc da mi swą Rózeczkę,\
 To my we dwóch, Sopliców tych porzniem na sieczkę».
