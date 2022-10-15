@@ -1,3 +1,4 @@
+Ile możności to...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Córka Stolnika ze swym mężem wojewodą,\
 Gdzieś w Sybir wywieziona, tam umarła młodo;\
