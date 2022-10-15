@@ -1,3 +1,4 @@
+W ich domu hodowana i za mąż wydana.\
 Wsi nie lękam się. Jeśli w wielkim mieście żyłam,\
 To dawno, zapomniałam, wieś zawsze lubiłam;\
 I wierz mi, że mnie moje kogutki i kurki\
