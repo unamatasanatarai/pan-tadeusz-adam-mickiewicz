@@ -1,3 +1,4 @@
+Ten Jacek nie był umarł (jak głoszono) w Rzymie,\
 Tylko odmienił życie dawne, stan i imię,\
 A wszystkie przeciw Bogu i Ojczyźnie winy\
 Zgładził przez żywot święty i przez wielkie czyny.
