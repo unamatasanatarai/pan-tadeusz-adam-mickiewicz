@@ -1,3 +1,4 @@
+Szlachta mnie obaczyła i gwałtem tu wiedzie,\
 A Waszeć za stół sadzasz — dziękuję, sąsiedzie».\
 To wyrzekłszy, przewrócił talerz dnem do góry,\
 Na znak że jeść nie będzie, i milczał ponury.
