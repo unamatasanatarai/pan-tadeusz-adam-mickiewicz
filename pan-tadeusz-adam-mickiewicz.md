@@ -1,3 +1,4 @@
+Cały kwiat na powietrzu rozleci się puchem,\
 A w ręku widzi tylko badacz zbyt ciekawy\
 Nagą łodygę szarozielonawej trawy.
 
