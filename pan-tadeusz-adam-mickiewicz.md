@@ -1,3 +1,4 @@
+Wyskoczył wpół ubrany Sędzia; widzi zgraję\
 Zbrojną, myśli, że zbójcy, aż Hrabię poznaje.\
 «Co to jest?» pyta. Hrabia szpadą nad nim mignął,\
 Lecz widząc bezbronnego w zapale ostygnął:\
