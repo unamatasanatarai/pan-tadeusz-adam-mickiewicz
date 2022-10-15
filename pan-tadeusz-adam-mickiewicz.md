@@ -1,3 +1,4 @@
+Hrabię i Tadeusza. Hrabia panicz młody,\
 Wielkiego domu dziedzic, powabnej urody,\
 Już trochę zakochany: cóż? może się zmienić!\
 Potem, czy szczerze kocha? czy się zechce żenić?\
