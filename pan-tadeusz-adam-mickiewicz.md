@@ -1,3 +1,4 @@
+Gdy będziesz dla monarchów zagranicznych grona\
 Dawał ucztę, ba, nawet dla Napoleona.\
 Ale pozwól, nim księgę tę panu poświęcę,\
 Niech powiem, jakim trafem wpadła w moje ręce».
