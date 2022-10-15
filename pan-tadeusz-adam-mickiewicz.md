@@ -1,3 +1,4 @@
+Nie zapomniałaś jeszcze całkiem Petersburka.\
 No, Zosiu, toaletę rób, dostań tam z biurka,\
 Nagotowane znajdziesz wszystko do ubrania.\
 Spiesz się, bo lada chwila wrócą z polowania».
