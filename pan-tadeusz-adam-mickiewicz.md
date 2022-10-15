@@ -1,3 +1,4 @@
+Ściany bez żadnych ozdób, ale mur chędogi;\
 Sterczały wkoło sarnie i jelenie rogi\
 Z napisami, gdzie, kiedy te łupy zdobyte;\
 Tuż myśliwców herbowne klejnoty wyryte,\
