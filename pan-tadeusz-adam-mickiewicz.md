@@ -1,3 +1,4 @@
+Niech żyje równość!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Zatem dwaj Terajewicze\
 I czterej Stypułkowscy i trzej Mickiewicze,\
