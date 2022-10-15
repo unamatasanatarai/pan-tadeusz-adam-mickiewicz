@@ -1,3 +1,4 @@
+Na pamiątkę; rozumna, żywa jak wiewiórka:\
 Mam jej portrecik, tylko nie chcę iść do biurka.\
 Widząc ją zadławioną, z wielkiej alteracji\
 Dostałam mdłości, spazmów, serca palpitacji.\
