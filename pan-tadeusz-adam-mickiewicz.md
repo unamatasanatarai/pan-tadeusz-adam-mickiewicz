@@ -1,3 +1,4 @@
+Przeklęstw i kłamstwa, niewczesnych zamiarów,\
 Zapóźnych żalów, potępieńczych swarów?...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biada nam zbiegi, żeśmy w czas morowy\
