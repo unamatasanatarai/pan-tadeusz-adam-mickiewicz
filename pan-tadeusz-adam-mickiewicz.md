@@ -1,3 +1,4 @@
+Jedź, jedź, a weź pieniądze: rąk tam dosyć mamy,\
 Ale grosza brak w Księstwie; jedź wasze, żegnamy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena smutnymi rzuciwszy oczyma:\
