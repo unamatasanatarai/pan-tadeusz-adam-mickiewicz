@@ -1,3 +1,4 @@
+Po ścianach: w tej komnacie mieszkanie kobiéce!\
 Któż by tu mieszkał? Stary stryj nie był żonaty;\
 A ciotka w Petersburgu mieszkała przed laty.\
 To nie był ochmistrzyni pokój? Fortepiano?\
