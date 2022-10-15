@@ -1,3 +1,4 @@
+Z gorszącej kłótni waszej co będzie? czy wiecie?\
 Oto młodzież, na której Ojczyzny nadzieje,\
 Która ma wsławiać nasze ostępy i knieje,\
 Która niestety, i tak zaniedbuje łowy,\
