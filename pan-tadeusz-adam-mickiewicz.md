@@ -1,3 +1,4 @@
+Przecież ten folwark zdał się być stolicą wioski,\
 Iż kształtniejszy od innych chat, bardziej rozległy,\
 I prawą stronę, gdzie jest świetlica, miał z cegły.\
 Obok lamus, spichrz, gumno, obora i stajnie,\
