@@ -1,3 +1,4 @@
+Wiesz, że gdy imperator zatwierdza ukazy,\
 Z łaski swej często karę powiększa dwa razy.\
 Apelujcie, ja może wynajdę w potrzebie,\
 Mospanie Sędzio, dobry kruczek i na ciebie.\
