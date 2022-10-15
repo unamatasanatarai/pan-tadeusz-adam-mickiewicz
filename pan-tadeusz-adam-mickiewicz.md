@@ -1,3 +1,4 @@
+Iż jest wygodny, trwały, a piękny jak cacko:\
 Kulbaczka wąska modą z turecka kozacką,\
 Kula na przodzie, w kuli są drogie kamienie,\
 Poduszeczka z rubrontu wyścieła siedzenie;\
