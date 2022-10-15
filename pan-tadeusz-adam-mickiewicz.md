@@ -1,3 +1,4 @@
+Oni biegną dziedzińcem, Gerwazy ich torem;\
 Wpadają we drzwi gumna stojące otworem,\
 I Gerwazy do gumna na ich karkach wjechał,\
 Zniknął w ciemności, ale bitwy nie zaniechał:\
