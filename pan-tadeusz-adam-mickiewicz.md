@@ -1,3 +1,4 @@
+Wezmą pieski, bo równą pozyskali sławę,\
 Równa ich była rączość, równa była praca;\
 Godzien jest pałac Paca, godzien Pac pałaca,\
 Godni są szczwacze chartów, godne szczwaczów charty.\
