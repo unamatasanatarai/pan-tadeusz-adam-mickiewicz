@@ -1,3 +1,4 @@
+Różowe, biegą pierwsze promyki słoneczne.\
 Wpadły przez szyby jako strzały brylantowe,\
 Odbiły się na łożu o chorego głowę\
 I ubrały mu złotem oblicze i skronie,\
