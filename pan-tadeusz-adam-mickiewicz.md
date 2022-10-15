@@ -1,3 +1,4 @@
+Okrąg niebios gdzieniegdzie chmurkami zasłany,\
 U góry błękitnawy, na zachód różany;\
 Chmurki wróżą pogodę: lekkie i świecące,\
 Tam jako trzody owiec na murawie śpiące,\
