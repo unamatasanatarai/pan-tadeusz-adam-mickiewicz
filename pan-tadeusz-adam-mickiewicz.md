@@ -1,3 +1,4 @@
+Mnie, którego Radziwiłł nazywał: kochanku!\
 Mnie, com kiedy wyjeżdżał z mojego zaścianku,\
 To liczniejszy dwór miałem niżeli książęcy,\
 Kiedym szablę dostawał, to kilka tysięcy\
