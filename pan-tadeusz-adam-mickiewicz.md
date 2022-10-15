@@ -1,3 +1,4 @@
+On cofał się: młodego nie mógł Maciek zgonić,\
 I tak nie raniąc, musiał tylko siebie bronić.\
 Już mu Proporszczyk dzidą lekką ranę zadał,\
 Już wznosząc w górę berdysz do cięcia się składał,\
