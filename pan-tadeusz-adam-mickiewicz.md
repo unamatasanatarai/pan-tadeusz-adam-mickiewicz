@@ -1,3 +1,4 @@
+I cóż, że przeszłej zimy byłaś już gotowa\
 Dać słowo mnie? Ja wtenczas nie przyjąłem słowa:\
 Bo i cóż mnie po takim wymuszonym słowie?\
 Wtenczas bawiłem bardzo krótko w Soplicowie;\
