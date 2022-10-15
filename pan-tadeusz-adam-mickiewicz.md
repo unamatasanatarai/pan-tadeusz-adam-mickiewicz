@@ -1,3 +1,4 @@
+I posępne milczenie trwało minut kilka.\
 Aż Ryków rzekł: «Nosił wilk, ponieśli i wilka!»\
 «Requiescat in pace!» dodał Podkomorzy;\
 «Już ci — zakończył Sędzia — był w tym palec Boży!\
