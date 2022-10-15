@@ -1,3 +1,4 @@
+Wiecie wy, co to znaczy? Oto, że wy dziady,\
 Niedołęgi! He, bracia, to wyżła rzecz tropić,\
 Bernardyńska kwestować, a moja rzecz: kropić;\
 Kropić, kropić i kwita!» Tu maczugę głasnął,\
