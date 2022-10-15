@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Preopinanci moi w swych głosach wymownych\
 Dotknęli wszystkich punktów stanowczych i głownych,\
 Dyskusyją na wyższe wznieśli stanowisko;\
