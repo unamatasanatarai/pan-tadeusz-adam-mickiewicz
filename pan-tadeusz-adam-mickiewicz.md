@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Śród takich pól przed laty, nad brzegiem ruczaju,\
 Na pagórku niewielkim, we brzozowym gaju,\
 Stał dwór szlachecki, z drzewa, lecz podmurowany;\
