@@ -1,3 +1,4 @@
+Rwą się ku stronom obcym, dziełom nadzwyczajnym.\
 Wyznaję, że dziś chciałem na cześć Telimenie\
 U ołtarzów Hymena zapalić płomienie,\
 Ale mi dał zbyt piękny przykład ten młodzieniec,\
