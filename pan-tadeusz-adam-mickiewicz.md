@@ -1,3 +1,4 @@
+W imię Imperatorskiej Mości; oddaj szpadę,\
 Panie Hrabio, bo wezwę wojskowej pomocy,\
 A wiesz pan, że kto zbrojnie śmie napadać w nocy,\
 Zastrzeżono tysiącznym dwóchsetnym ukazem,\
