@@ -1,3 +1,4 @@
+O politycznych sprawach rozmawiał po cichu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gdy tak były zajęte stołu strony obie,\
 Tadeusz przyglądał się nieznanej osobie.\
