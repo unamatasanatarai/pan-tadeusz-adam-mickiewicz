@@ -1,3 +1,4 @@
+I rozstrzygnijcie spór wasz choć mniejszym zakładem.\
 Słowo wiatr, w sporach słownych nigdy nie masz końca;\
 Szkoda ust dłużej suszyć kłótnią o zająca.\
 Więc polubownych sędziów najpierwej obierzcie,\
