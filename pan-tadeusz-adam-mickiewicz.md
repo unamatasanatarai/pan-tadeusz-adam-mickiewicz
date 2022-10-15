@@ -1,3 +1,4 @@
+A z wnętrza ciągle dymi, zionąc woń plugawą,\
 Od której drzewa wkoło tracą liść i korę;\
 Łyse, skarłowaciałe, robaczliwe, chore,\
 Pochyliwszy konary mchem kołtunowate\
