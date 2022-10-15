@@ -1,3 +1,4 @@
+Miał za dozorcę księdza, który go pilnował\
 I w dawnej surowości prawidłach wychował.\
 Tadeusz zatem przywiózł w strony swe rodzinne\
 Duszę czystą, myśl żywą i serce niewinne,\
