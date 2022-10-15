@@ -1,3 +1,4 @@
+Pracowałem przy taczkach rok w pruskiej fortecy;\
 Trzy razy Moskwa kijmi zraniła me plecy,\
 Raz już wiedli na Sybir; potem Austryjacy,\
 W Szpilbergu zakopali mnie w lochach do pracy,\
