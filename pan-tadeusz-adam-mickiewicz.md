@@ -1,3 +1,4 @@
+Było wielkie mrowisko. Owad gospodarny\
 Snuł się wkoło po trawie, ruchawy i czarny.\
 Nie wiedzieć, czy z potrzeby czy z upodobania,\
 Lubił szczególnie zwiedzać *Świątynię dumania*;\
