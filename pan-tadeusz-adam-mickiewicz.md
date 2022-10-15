@@ -1,3 +1,4 @@
+Jeden wciąż wołał «Golić» a drugi «Zalewać!»\
 Maciek milczał; lecz widno, że się zaczął gniewać./
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ćwierć godziny wrzał hałas, gdy nad tłum wrzeszczący,\
