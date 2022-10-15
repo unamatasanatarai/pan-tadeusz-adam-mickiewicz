@@ -1,3 +1,4 @@
+Jenerale, wybacz mi, porzućcie te rożny,\
 Niemieckie szpadki; to wstyd szlacheckiemu dziecku\
 Nosić ten kijek: weźmij szablę po szlachecku!\
 Oto ten mój Scyzoryk u nóg twoich składam,\
