@@ -1,3 +1,4 @@
+I na przemiany to w tył, to się naprzód kiwał,\
 I ustawicznie «Kropić, kropić!» wykrzykiwał.\
 Wzdłuż izby zaś przebiegał Brzytewka ruchawy\
 Ciągle od Kropiciela do Macieja ławy.\
