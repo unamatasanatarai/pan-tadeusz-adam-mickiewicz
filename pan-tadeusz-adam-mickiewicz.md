@@ -1,3 +1,4 @@
+Nie wiedział, jak boleśnie serce jego przeszył.\
 Bo Hrabia, na strzeleckiej komnaty wspomnienie,\
 Mimowolnie wzrok podniósł: a te łby jelenie,\
 Te gałęziste rogi, jakby las wawrzynów\
