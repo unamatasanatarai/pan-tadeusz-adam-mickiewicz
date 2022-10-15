@@ -1,3 +1,4 @@
+Nie śpiewają piosenek: pracują leniwo,\
 Jakby nie pamiętali na zasiew i żniwo.\
 Co krok wstrzymują woły i podjezdki w bronie\
 I poglądają z trwogą ku zachodniej stronie,\
