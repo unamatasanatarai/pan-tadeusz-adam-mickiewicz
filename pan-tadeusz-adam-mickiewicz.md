@@ -1,3 +1,4 @@
+Od ludzi nieochrzczone; a jest ich bez liku.\
 Ni wilczych, ni zajęczych nikt dotknąć nie raczy;\
 A kto schyla się ku nim, gdy błąd swój obaczy,\
 Zagniewany, grzyb złamie albo nogą kopnie:\
