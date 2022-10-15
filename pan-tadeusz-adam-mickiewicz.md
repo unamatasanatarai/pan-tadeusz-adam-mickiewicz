@@ -1,3 +1,4 @@
+Pozostała mi tylko pamiątka jej cnoty,\
 Jej wdzięków, i ten oto ślubny pierścień złoty.\
 Ilekroć nań spojrzałem, zawsze ma nieboga\
 Stawała przed oczyma: i tak z łaski Boga,\
