@@ -1,3 +1,4 @@
+Fala bagnetów szlachtę bije i roztrąca:\
 Przeciw tej fali płynie; schyla się do ziemi\
 I nurkuje pomiędzy trawami gęstemi,\
 Środkiem dziedzińca; aż tam, gdzie rosła pokrzywa,\
