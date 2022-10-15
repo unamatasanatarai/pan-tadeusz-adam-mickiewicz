@@ -1,3 +1,4 @@
+Kuchmistrz i dwóch kuchcików, wszyscy trzej pijani,\
 Proboszcz, lokaj, hajducy czterej, ludzie śmiali.\
 Więc za strzelby, do okien. Aż tu tłum Moskali,\
 Krzycząc: »Ura!«, od bramy wali po tarasie;\
