@@ -1,3 +1,4 @@
+Aż się uspokoiły, objąwszy w rączęta\
 Jej kolana i tuląc główki jak pisklęta\
 pod skrzydło matki. Ona rzekła: «Czy to pięknie\
 Tak krzyczeć? Czy to grzecznie? Ten pan się zalęknie.\
