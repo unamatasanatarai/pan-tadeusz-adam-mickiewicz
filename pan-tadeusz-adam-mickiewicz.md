@@ -1,3 +1,4 @@
+O niewierna istoto, o duszo zmiennicza!\
 I nie skryjesz ze wstydu pod ziemię oblicza?\
 Takeś twojej tak świeżej niepomna przysięgi?\
 O łatwowierny! po cóż nosiłem te wstęgi!\
