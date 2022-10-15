@@ -1,3 +1,4 @@
+Zdjęto puderman, całe ubranie gotowe.\
 Zosia białą sukienkę wrzuciła przez głowę,\
 Chusteczkę batystową białą w ręku zwija,\
 I tak cała wygląda biała jak lilija.
