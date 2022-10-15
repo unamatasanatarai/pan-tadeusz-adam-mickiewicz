@@ -1,3 +1,4 @@
+Więc niech jaśnie wielmożny Podkomorzy raczy\
 Odwołać swe rozkazy i niech mi wybaczy,\
 Że nie mogę na takie jechać polowanie,\
 I nigdy na nim noga moja nie postanie!\
