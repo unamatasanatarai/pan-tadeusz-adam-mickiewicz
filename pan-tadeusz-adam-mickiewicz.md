@@ -1,3 +1,4 @@
+Kazał stoły z wieczerzą powynosić z domu,\
 I ustawić co prędzej w pośrodku zamczyska,\
 Którego widne były pod lasem zwaliska.\
 Po cóż te przenosiny? Pan Wojski się krzywił\
