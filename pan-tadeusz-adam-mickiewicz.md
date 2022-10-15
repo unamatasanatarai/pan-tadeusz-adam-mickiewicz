@@ -1,3 +1,4 @@
+Z obecnych zaś tylko szef szwadronu Dwernicki\
 I dowódca plutonu, porucznik Różycki\
 Potrafili obracać tym żelaznym drągiem:\
 I tak rapier na próbę szedł z rak do rąk ciągiem.
