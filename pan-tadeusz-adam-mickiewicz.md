@@ -1,3 +1,4 @@
+Tak dowcipne żarciki umiał komponować,\
 Iżby je w kalendarzu można wydrukować,\
 Wszystkie złośliwe, ostre. Dawniej człek dostatni,\
 Schedę ojca swojego i majątek bratni\
