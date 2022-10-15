@@ -1,3 +1,4 @@
+Przysiągłem wyszczerbić go na Sopliców karkach,\
 Ścigałem ich na sejmach, zajazdach, jarmarkach.\
 Dwóch zarąbałem w kłótni, dwóch na pojedynku;\
 Jednego podpaliłem w drewnianym budynku,\
