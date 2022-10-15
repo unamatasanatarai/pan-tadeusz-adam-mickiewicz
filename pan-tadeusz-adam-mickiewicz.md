@@ -1,3 +1,4 @@
+Wrócił tak niespokojny, że o kurów pianiu\
 Jeszcze oczu nie zmrużył, a na swym posłaniu\
 Tak kręcił się, że w siano jak w wodę utonął,\
 I spał twardo, aż zimny wiatr w oczy mu wionął,\
