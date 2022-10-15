@@ -1,3 +1,4 @@
+Wprzód nim strzelcy poszczuli, już za nim pobiegły.\
 Rejent też i Asesor chcieli końmi natrzeć;\
 Lecz Wojski wstrzymał krzycząc: «Wara! stać i patrzeć!\
 Nikomu krokiem ruszyć z miejsca nie dozwolę;\
