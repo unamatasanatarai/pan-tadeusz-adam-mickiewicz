@@ -1,3 +1,4 @@
+Któż by tu mieszkał? Stary stryj nie był żonaty;\
 A ciotka w Petersburgu mieszkała przed laty.\
 To nie był ochmistrzyni pokój? Fortepiano?\
 Na nim nuty i książki; wszystko porzucano\
