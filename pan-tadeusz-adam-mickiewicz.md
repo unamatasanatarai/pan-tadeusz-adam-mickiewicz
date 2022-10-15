@@ -1,3 +1,4 @@
+Chciał wyręczyć Hrabiego: tak sobie niekiedy\
 Przemawiali śród gwaru i wrzasku czeredy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski jechał pośrodku; staruszek szanowny,\
