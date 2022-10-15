@@ -1,3 +1,4 @@
+I stodołę miał wielką, i przy niej trzy stogi\
 Użątku, co pod strzechą zmieścić się nie może.\
 Widać, że okolica obfita we zboże,\
 I widać z liczby kopic, co wzdłuż i wszerz smugów\
