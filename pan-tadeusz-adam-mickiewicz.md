@@ -1,3 +1,4 @@
+I pana Asesora wzywając na śledztwo,\
 Z powodu wielmożnego Sędziego Soplicy:\
 O inkursyją, to jest o najazd granicy,\
 Gwałt zamku, w którym Sędzia dotąd prawnie włada,\
