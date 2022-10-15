@@ -1,3 +1,4 @@
+Byłem tam lat już...» — Robak przerwał mu: «Na zdrowie\
 Wszystkim waszmościom, moi mościwi panowie!\
 Co się tabaki tyczy, hem, ona pochodzi\
 Z dalszej strony, niż myśli Skołuba dobrodziéj:\
