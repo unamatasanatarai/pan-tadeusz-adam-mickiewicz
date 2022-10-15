@@ -1,3 +1,4 @@
+Za moich, panie, czasów, w języku strzeleckim,\
 Dzik, niedźwiedź, łoś, wilk, zwany był zwierzem szlacheckim\
 A zwierzę niemające kłów, rogów, pazurów,\
 Zostawiano dla płatnych sług i dworskich ciurów;\
