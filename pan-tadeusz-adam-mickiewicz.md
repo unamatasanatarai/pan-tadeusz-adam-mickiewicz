@@ -1,3 +1,4 @@
+Powiedz Litwinom, niech mnie czekają z tabaką\
 Częstochowską, nie biorę innej tylko taką».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Mowa księdza wzbudziła takie zadziwienie,\
