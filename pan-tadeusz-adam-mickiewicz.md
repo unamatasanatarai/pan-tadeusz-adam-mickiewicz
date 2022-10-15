@@ -1,3 +1,4 @@
+Około ust szczególnie widne były piegi.\
 Nuż oczy Tadeusza, jako chytre szpiegi,\
 Odkrywszy jedną zdradę, poczną w kolej zwiedzać\
 Resztę wdzięków i wszędzie jakiś fałsz wyśledzać:\
