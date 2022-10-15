@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Więc Major syt i wesół w krześle się rozwalił,\
 Dobył fajkę, biletem bankowym zapalił,\
 I otarłszy śniadanie z ust końcem serwety,\
