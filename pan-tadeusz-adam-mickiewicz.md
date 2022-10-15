@@ -1,3 +1,4 @@
+Z dawna byłeś niebieskim oznajmiony cudem\
 I poprzedzony głuchą wieścią między ludem;\
 Ogarnęło Litwinów serca z wiosny słońcem\
 Jakieś dziwne przeczucie, jak przed świata końcem,\
