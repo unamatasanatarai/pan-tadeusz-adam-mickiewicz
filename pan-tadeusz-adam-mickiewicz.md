@@ -1,3 +1,4 @@
+Jeden wielbiąc przymioty swojej Sanguszkówki,\
 Drugi bałabanowskiej swej Sagalasówki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Sędzio sąsiedzie — wreszcie wyrzekł Podkomorzy —\
