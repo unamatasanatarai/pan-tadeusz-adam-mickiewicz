@@ -1,3 +1,4 @@
+Tu biegłem, wojsk forpoczty już stały nad Niemnem;\
 Napoleon już zbiera armiję ogromną,\
 Jakiej człowiek nie widział i dzieje nie pomną;\
 Obok Francuzów ciągnie polskie wojsko całe,\
