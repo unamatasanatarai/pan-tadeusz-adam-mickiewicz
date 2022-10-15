@@ -1,3 +1,4 @@
+Zieleniły się jako wieniec rozpleciony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«O ty — rzekł — jakimkolwiek uczczę cię imieniem,\
 Bóstwem jesteś czy nimfą, duchem czy widzeniem!\
