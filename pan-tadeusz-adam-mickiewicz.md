@@ -1,3 +1,4 @@
+Idąc na rozstrzygnienie śmiertelnego sporu:\
 Nikt ze słów zawziętości ich poznać nie zdoła;\
 Pan Rejent wiódł Kusego, Asesor Sokoła.\
 Z tyłu damy w pojazdach; młodzieńcy, stronami\
