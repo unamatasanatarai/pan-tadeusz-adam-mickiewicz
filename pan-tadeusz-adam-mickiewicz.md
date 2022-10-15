@@ -1,3 +1,4 @@
+Kusy piękny chart z kształtu, jeśli równie chwytny...»\
 «Chwytny? — krzyknął pan Rejent — mój pies faworytny\
 Żeby nie miał być chwytny?...» Więc Tadeusz znowu\
 Cieszył się, że tak piękny pies nie ma narowu,\
