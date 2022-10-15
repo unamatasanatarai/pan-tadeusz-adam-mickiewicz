@@ -1,3 +1,4 @@
+Po wielu latach pierwszy raz miała rodzina\
 Wieść o życiu, o chwale i o śmierci syna;\
 Brał dom żałobę, ale powiedzieć nie śmiano\
 Po kim była żałoba, tylko zgadywano\
