@@ -1,3 +1,4 @@
+Bo prosto biegli ku mnie oba paniczowie,\
 A niedźwiedź z tyłu już, już na Hrabiego głowie,\
 Ostatniego z Horeszków!... chociaż po kądzieli.\
 »Jezus Maria!« krzyknąłem i Pańscy anieli\
