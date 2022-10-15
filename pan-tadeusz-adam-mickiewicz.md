@@ -1,3 +1,4 @@
+A sądziłem ich nieraz sądem polubownym.\
 Któż był w lasach litewskich Rejtanowi równym?\
 Czy obławę zaciągnąć, czy spotkać się z zwierzem,\
 Kto z Białopiotrowiczem porówna się Jerzym?\
