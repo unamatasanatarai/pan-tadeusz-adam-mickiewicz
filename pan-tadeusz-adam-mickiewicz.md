@@ -1,3 +1,4 @@
+Ale żaden z nich nie śmiał zagrać przy Jankielu\
 (Jankiel przez całą zimę nie wiedzieć gdzie bawił,\
 Teraz się nagle z głównym sztabem wojska zjawił);\
 Wiedzą wszyscy, że mu nikt na tym instrumencie\
