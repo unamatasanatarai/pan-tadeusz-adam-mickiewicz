@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zbudził Hrabiego szelest na plecach i skroni;\
 Był to bernardyn, kwestarz Robak, a miał w dłoni\
 Podniesione do góry węzłowate sznurki:\
