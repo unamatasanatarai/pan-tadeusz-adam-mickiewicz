@@ -1,3 +1,4 @@
+Że go trzeba wnet ścigać, wszyscy wraz uznali,\
 Choć ani się radzili, ani namyślali;\
 Spólną myśl widać było z uciętych wyrazów,\
 Z gestów żywych, z wydanych rozlicznych rozkazów,\
