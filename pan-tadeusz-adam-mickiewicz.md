@@ -1,3 +1,4 @@
+Pieściłem go, on w nocy sypiał przy mym boku;\
 A kiedym się zestarzał, nad łóżkiem na ścianie\
 Wisiał, jako nad Żydem Boże przykazanie!\
 Myśliłem zakopać go razem z ręką w grobie,\
