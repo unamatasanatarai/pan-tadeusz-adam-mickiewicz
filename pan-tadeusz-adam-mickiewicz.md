@@ -1,3 +1,4 @@
+Jedź, weź pieniądze, możesz usztyftować rotę\
 Jak Włodzimierz Potocki, co Francuzów zdziwił\
 Dając na skarb milijon, jak książę Radziwiłł\
 Dominik, co zastawił dobra swe i sprzęty\
