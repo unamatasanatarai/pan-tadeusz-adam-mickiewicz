@@ -1,3 +1,4 @@
+Ciał się najedzą, krwią całe opłyną,\
 I skrzydła wreszcie na spoczynek zwiną;\
 Gdy wróg ostatni wyda krzyk boleści,\
 Umilknie, światu swobodę obwieści —\
