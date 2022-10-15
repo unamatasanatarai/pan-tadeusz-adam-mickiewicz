@@ -1,3 +1,4 @@
+Z głową schyloną, bladym, posępnym obliczem,\
 A konia ustawicznie bódł i kropił biczem.\
 Ten widok bardzo księdza bernardyna zmieszał,\
 Więc za młodzieńcem kroki szybkimi pośpieszał\
