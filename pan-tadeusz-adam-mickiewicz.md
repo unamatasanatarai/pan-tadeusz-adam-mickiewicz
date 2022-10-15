@@ -1,3 +1,4 @@
+Wyszedł wreszcie ujrzawszy, że było po bitwie.\
 Taki miał koniec zajazd ostatni na Litwie.
 
 
