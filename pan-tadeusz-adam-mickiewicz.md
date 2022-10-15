@@ -1,3 +1,4 @@
+To jak z wiader buchają warstami całemi.\
 Już zakryły się całkiem niebiosa i ziemia;\
 Noc je z burzą od nocy czarniejszą, zaciemia.\
 Czasem widnokrąg pęka od końca do końca,\
