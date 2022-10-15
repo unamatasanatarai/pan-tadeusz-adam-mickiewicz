@@ -1,3 +1,4 @@
+Bo węża tylko znaliśmy po skórze.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I tylko krajów tych obywatele\
 Jedni zostali wierni przyjaciele,\
