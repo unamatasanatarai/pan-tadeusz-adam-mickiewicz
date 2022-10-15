@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Tańczyć! — zawołał Robak — gdy wychylę flaszę,\
 To i ja, choć ksiądz, habit czasami podkaszę\
 I potańczę mazurka! Ale wiesz, Majorze,\
 My tu pijem, a jegry tam zmarzną na dworze?\
