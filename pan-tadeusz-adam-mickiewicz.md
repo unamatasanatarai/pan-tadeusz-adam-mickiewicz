@@ -1,3 +1,4 @@
+Jarzębiny ze świeżym pasterskim rumieńcem,\
 Leszczyna jak menada z zielonymi berły,\
 Ubranymi jak w grona, w orzechowe perły;\
 A niżej dziatwa leśna: głóg w objęciu kalin,\
