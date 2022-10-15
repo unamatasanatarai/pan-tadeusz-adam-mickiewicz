@@ -1,3 +1,4 @@
+Tam dla rozerwania się zaczął grać w drużbarta\
 Z wiarusami, kielichem osładzając żałość.\
 Taka była dla Zosi Dobrzyńskiego stałość.
 
