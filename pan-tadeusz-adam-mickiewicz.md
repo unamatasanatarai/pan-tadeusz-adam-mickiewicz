@@ -1,3 +1,4 @@
+Pierwszy raz połajany tak ostro!... Ocenił\
 Słuszność wyrzutów, sam się przed sobą rumienił.\
 Co począć? jeśli Zosia o wszystkim się dowie?\
 Prosić o rękę? a cóż Telimena powie?\
