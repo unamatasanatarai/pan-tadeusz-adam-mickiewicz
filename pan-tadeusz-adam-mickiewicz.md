@@ -1,3 +1,4 @@
+Trafiać, chybiać, poprawiać, to kolej strzelecka.\
 Ja sam, chociaż ze strzelbą włóczę się od dziecka,\
 Chybiałem; chybiał sławny ów strzelec Tułoszczyk,\
 Nawet nie zawsze trafiał pan Rejtan nieboszczyk.\
