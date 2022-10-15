@@ -1,3 +1,4 @@
+Od mchu i trawy, która buja jak na łące.\
 Po strzechach gumien niby ogrody wiszące\
 Różnych roślin, pokrzywa i krokos czerwony,\
 Żółta dziewanna, szczyru barwiste ogony.\
