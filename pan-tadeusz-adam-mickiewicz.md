@@ -1,3 +1,4 @@
+A drugą ścisnął z lekka rączkę Telimeny.\
 Kilka już upłynęło minut cichej sceny;\
 Hrabia rozłożył papier na swym kapeluszu\
 I wydobył ołówek. Wtem przykry dla uszu\
