@@ -1,3 +1,4 @@
+Płut i Ryków tak czynnie zaczęli się zwijać,\
 Tak łakomie połykać i gęsto zapijać,\
 Że w pół godziny zjedli dwadzieścia trzy zrazy\
 I wychylili ponczu ogromne pół wazy.
