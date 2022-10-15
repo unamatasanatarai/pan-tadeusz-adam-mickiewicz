@@ -1,3 +1,4 @@
+Lecz gdy zapał ochłonął, myśląc nad obławą,\
 Postrzegają, że wyszli z niej z niewielką sławą:\
 Trzebaż było, ażeby jeden kaptur popi,\
 Wyrwawszy się Bóg wie skąd, jak Filip z konopi,\
