@@ -1,3 +1,4 @@
+Zając sędziwy, gdy mu już krew w żyłach krzepnie,\
 Kruk, gdy już posiwieje, sokół, gdy oślepnie,\
 Orzeł, gdy mu dziób stary tak się w kabłąk skrzywi,\
 Że zamknięty na wieki już gardła nie żywi,\
