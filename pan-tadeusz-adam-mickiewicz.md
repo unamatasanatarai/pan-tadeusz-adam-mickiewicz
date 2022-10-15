@@ -1,3 +1,4 @@
+Kto z nas tych lat nie pomni, gdy, młode pacholę,\
 Ze strzelbą na ramieniu świszcząc szedł na pole,\
 Gdzie żaden wał, płot żaden nogi nie utrudza,\
 Gdzie, przestępując miedzę, nie poznasz, że cudza!\
