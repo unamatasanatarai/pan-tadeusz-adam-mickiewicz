@@ -1,3 +1,4 @@
+W towarzystwie kielichów węgrzyna, malagi.\
 Jedzą, piją, a milczą wszyscy. Nigdy pono,\
 Od czasu jako mury zamku podźwigniono,\
 Który uraczał hojnie tylu szlachty bratów,\
