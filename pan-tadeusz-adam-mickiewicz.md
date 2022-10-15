@@ -1,3 +1,4 @@
+Tym bardziej Telimenę pomięszał i zdziwił.\
 Zmieniła więc natychmiast twarz i ton rozmowy,\
 Powstała zagniewana, i ostrymi słowy\
 Poczęła nań przymówki sypać i wyrzuty.\
