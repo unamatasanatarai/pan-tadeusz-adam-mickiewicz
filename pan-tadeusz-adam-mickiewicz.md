@@ -1,3 +1,4 @@
+Patrząc z dziwem na siebie, wzajem się badali\
 I posępne milczenie trwało minut kilka.\
 Aż Ryków rzekł: «Nosił wilk, ponieśli i wilka!»\
 «Requiescat in pace!» dodał Podkomorzy;\
