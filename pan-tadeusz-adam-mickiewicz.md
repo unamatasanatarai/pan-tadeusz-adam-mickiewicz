@@ -1,3 +1,4 @@
+Kosy, strzelby; Konewka znalazł dwa szturmaki\
 I worek kul; wsypał je do swego szturmaka,\
 Drugi, równie nabiwszy, ustąpił dla Saka.
 
