@@ -1,3 +1,4 @@
+A wodze śród cichego dumają namiotu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przerwał się obiad, dzień zszedł na kowaniu koni,\
 Karmieniu psów, zbieraniu i czyszczeniu broni;\
