@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Było to osobliwsze szczęście dla Sopliców,\
 Że Hrabia, mając lepsze konie od szlachciców\
 I chcąc spotkać się pierwszy, zostawił ich w tyle\
