@@ -1,3 +1,4 @@
+Bo Sędzia w domu dawne obyczaje chował,\
 I nigdy nie dozwalał, by chybiano względu\
 Dla wieku, urodzenia, rozumu, urzędu.\
 Tym ładem, mawiał, domy i narody słyną,\
