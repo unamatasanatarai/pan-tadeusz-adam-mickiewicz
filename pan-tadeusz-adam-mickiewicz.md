@@ -1,3 +1,4 @@
+Schyliwszy się i ręce obmywszy w strumieniu,\
 Usiadł przed Telimeną na wielkim kamieniu,\
 I, wsparłszy się oburącz na gałkę słoniową\
 Trzciny ogromnej, z taką ozwał się przemową:
