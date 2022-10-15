@@ -1,3 +1,4 @@
+Rzekł Sędzia wzrok podnosząc. — Jeśli Tadeuszka\
 Podoba?» — «Czy podoba? to na wierzbie gruszka!\
 Podoba, nie podoba: a to mi rzecz ważna!\
 Zosia nie będzie, prawda, partyja posażna;\
