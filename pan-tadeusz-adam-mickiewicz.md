@@ -1,3 +1,4 @@
+A właśnie zawisł szlachty los od tajemnicy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W izbie Sędziego ważne toczą się narady.\
 Bernardyn leżał w łóżku; zmordowany, blady\
