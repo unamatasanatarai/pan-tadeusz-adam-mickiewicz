@@ -1,3 +1,4 @@
+Dalej co krok czyhają, niby wilcze doły,\
 Małe jeziorka, trawą zarosłe na poły,\
 Tak głębokie, że ludzie dna ich nie dośledzą\
 (Wielkie jest podobieństwo, że diabły tam siedzą).\
