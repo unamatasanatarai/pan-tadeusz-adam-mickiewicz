@@ -1,3 +1,4 @@
+Skończył i dumnie szpady rękojeść uderzył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jużci — rzekł Robak — trudno ganić tę ochotę,\
 Jedź, weź pieniądze, możesz usztyftować rotę\
