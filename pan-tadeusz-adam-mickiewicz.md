@@ -1,3 +1,4 @@
+Póty Soplica tego zamku nie dostanie!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«O! — krzyknął Hrabia, ręce podnosząc do góry —\
 Dobre miałem przeczucie, żem lubił te mury!\
