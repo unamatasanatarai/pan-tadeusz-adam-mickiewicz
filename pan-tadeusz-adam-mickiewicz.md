@@ -1,3 +1,4 @@
+Doławiają się, wrzeszczą, wpadły na trop, grają,\
 Ujadają. Już nie jest to powolne granie\
 Psów goniących zająca, lisa albo łanie;\
 Lecz wciąż wrzask krótki, częsty, ucinany, zjadły;\
