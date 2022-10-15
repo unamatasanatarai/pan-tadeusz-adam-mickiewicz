@@ -1,3 +1,4 @@
+Kołysałby!... Teraz co?... Nas zgubił oboje\
 I sam... i to zabójstwo... i wszystkie następstwa\
 Tej zbrodni, wszystkie moje biedy i przestępstwa!...\
 Ja skarżyć nie mam prawa: ja jego morderca,\
