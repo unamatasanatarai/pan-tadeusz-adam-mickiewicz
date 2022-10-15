@@ -1,3 +1,4 @@
+Przymruża się, drżąc wstrząsa swe rzęsy promienne,\
 Siedmią barw błyszczy razem: szafirowe razem,\
 Razem krwawi się w rubin i żółknie topazem;\
 Aż rozlśniło się jako kryształ przezroczyste,\
