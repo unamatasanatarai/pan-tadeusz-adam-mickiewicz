@@ -1,3 +1,4 @@
+Jeden żołnierz znajomy pod imieniem Brzytwy\
 I drugi co z tromblonem jeździ na flankiery;\
 Są także w pułku strzelców dwa grenadyjery\
 Dobrzyńscy».
