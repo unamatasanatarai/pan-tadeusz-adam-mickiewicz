@@ -1,3 +1,4 @@
+Gniewy ludzkie, bo jestem już pod ręką Bożą.\
 Zaklinam cię na imię Tego, co świat zbawił\
 I na krzyżu zabójcom swoim błogosławił,\
 I przyjął prośbę łotra: byś się udobruchał\
