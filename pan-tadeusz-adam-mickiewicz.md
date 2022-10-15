@@ -1,3 +1,4 @@
+I poglądają w niebo najeżywszy słomę.\
 I zielone przy drogach wierzby i topole,\
 Co pierwej, jako płaczki przy grobowym dole,\
 Biły czołem, długimi kręciły ramiony,\
