@@ -1,3 +1,4 @@
+I dalszych replik stronom dzisiaj nie dozwolę.\
 Woźny! odwołaj sprawę, na jutro na pole.\
 Jutro i Hrabia z całym myślistwem tu zjedzie,\
 I waszeć z nami ruszysz, Sędzio mój sąsiedzie,\
