@@ -1,3 +1,4 @@
+«Panie Polak, wstydź się pan, chować się za drzewem;\
 Nie bądź tchórz, wyjdź na środek, bij się honorowie,\
 Po żołniersku». A na to Tadeusz odpowie:\
 «Majorze! jeśli jesteś tak śmiałym rycerzem,\
