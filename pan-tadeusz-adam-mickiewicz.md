@@ -1,3 +1,4 @@
+Jak się jej pozbyć: bo stąd mogą urość plotki,\
 Zły przykład i pomiędzy młokosami zwady,\
 Które mogą pomieszać twe prawne układy».\
 «Układy? — krzyknął Sędzia z niezwykłym zapałem —\
