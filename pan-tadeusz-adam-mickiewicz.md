@@ -1,3 +1,4 @@
+Będzie mnie z tobą miły! Z najdzikszej pustyni\
 Miłość, wierzaj mi, ogród rozkoszy uczyni».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz, wydarłszy się z objęcia przemocą:\
