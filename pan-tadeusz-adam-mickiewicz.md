@@ -1,3 +1,4 @@
+Choćby mnie osławiono; a ty, ty mężczyzna?\
 Cóż szkodzi z was któremu, chociaż się i przyzna,\
 Że ma romans z dziesięciu razem kochankami?\
 Mów prawdę: chcesz mnie rzucić?» Zalała się łzami.\
