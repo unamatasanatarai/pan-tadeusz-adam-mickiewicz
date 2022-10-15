@@ -1,3 +1,4 @@
+Rurą ku niemu wije i już cyngla tyka.\
 Wilk uszy spuszcza, ogon podtuliwszy, zmyka;\
 Psiarnia z tryumfującym rzuca się hałasem\
 I skubie go po kudłach; zwierz zwraca się czasem,\
