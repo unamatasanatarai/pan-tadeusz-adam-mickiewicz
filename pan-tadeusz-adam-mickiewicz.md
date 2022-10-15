@@ -1,3 +1,4 @@
+Lecz idzie niewesoło i po drodze drzemie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Za przykładem niebieskim, wszystko się spóźniło\
 Na ziemi. Bydło późno na paszę ruszyło\
