@@ -1,3 +1,4 @@
+Bóg widzi, szczerze chciałem interesu dobić;\
 Tylko bez gniewu. Jeśli aśćka się nie zgodzi,\
 Aśćka ma prawo; smutno: gniewać się nie godzi.\
 Radziłem, bo brat kazał; nikt tu nie przymusza.\
