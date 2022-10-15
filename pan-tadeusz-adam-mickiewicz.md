@@ -1,3 +1,4 @@
+I z nim na miejscu pustym oczy swe osadzał.\
 Dziwna rzecz! miejsca wkoło są siedzeniem dziewic,\
 Na które mógłby spojrzeć bez wstydu królewic,\
 Wszystkie zacnie zrodzone, każda młoda, ładna:\
