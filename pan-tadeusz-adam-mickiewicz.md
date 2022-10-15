@@ -1,3 +1,4 @@
+Wiwat Scyzoryk, klejnot Rębajłów zaścianku!\
 Wiwat Rębajło, Szczerbiec, Półkozic, Mopanku!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wnet Gerwazy (to on był) przez tłum się przecisnął\
