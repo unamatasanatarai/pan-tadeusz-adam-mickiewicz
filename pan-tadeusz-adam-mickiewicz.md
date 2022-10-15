@@ -1,3 +1,4 @@
+*Kwietnej*. Pogoda była prześliczna, czas ranny;\
 Niebo czyste, wokoło ziemi obciągnięte,\
 Jako morze wiszące, ciche, wklęsło-wgięte,\
 Kilka gwiazd świeci z głębi, jako perły ze dna\
