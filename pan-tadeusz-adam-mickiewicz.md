@@ -1,3 +1,4 @@
+Co się zgromadzić dało i z domu, i z jatek,\
 I z lasów, i z sąsiedztwa, z bliska i z daleka:\
 Rzekłbyś, ptasiego tylko nie dostaje mleka.\
 Dwie rzeczy, których hojny pan do uczty szuka,\
