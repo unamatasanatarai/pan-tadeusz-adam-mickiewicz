@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W środku, na snopie zboża Ekonom usiadłszy\
 Nudzi się, kręci głową, roboty nie patrzy,\
 Pogląda na gościniec, na drogi rozstajne,\
