@@ -1,3 +1,4 @@
+Gdyż to jest wóz Anielski. Na nim to przed czasy\
 Jechał Lucyper, Boga gdy wyzwał w zapasy,\
 Mlecznym gościńcem pędząc cwał w niebieskie progi,\
 Aż go Michał zbił z wozu, a wóz zrzucił z drogi.\
