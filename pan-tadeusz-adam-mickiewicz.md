@@ -1,3 +1,4 @@
+Kilka gwiazd świeci z głębi, jako perły ze dna\
 Przez fale; z boku chmura biała, sama jedna,\
 Podlatuje i skrzydła w błękicie zanurza,\
 Podobne do niknących piór Anioła Stróża,\
