@@ -1,3 +1,4 @@
+Szeroko rozprzestrzenił w różnofarbną tęczę,\
 Na której główki białe, jak na tle obrazku,\
 Rzucone w ciemny błękit, nabierały blasku.\
 Obrysowane wkoło kręgiem pawich oczu\
