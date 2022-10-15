@@ -1,3 +1,4 @@
+Zaczyna polowanie. Wprawdzie nieruchoma,\
 Siedzi z założonymi na piersiach rękoma,\
 Lecz myślą goni źwierzów dwóch; szuka sposobu,\
 Jak by razem obsaczyć i ułowić obu:\
