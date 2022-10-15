@@ -1,3 +1,4 @@
+Wieki dzieciństwa, domowe zagrody...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jedyne szczęście: kto w szarej godzinie,\
 Z kilką przyjaciół siadłszy przy kominie,\
