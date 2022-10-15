@@ -1,3 +1,4 @@
+Chcąc Assesora skłócić z Rejentem na nowo;\
 Ale próżno krzywdzące chartów wieści szerzył:\
 Wojski zaprzeczył i nikt kuchcie nie uwierzył.
 
