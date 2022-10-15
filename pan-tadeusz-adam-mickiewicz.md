@@ -1,3 +1,4 @@
+Wkoło szyte jedwabiem herbowe klejnoty,\
 Półkozice: i stąd też cała okolica\
 Półkozicem przezwała starego szlachcica.\
 Czasem też od przysłowia, które bez ustanku\
