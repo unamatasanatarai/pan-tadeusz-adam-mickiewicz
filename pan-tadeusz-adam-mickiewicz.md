@@ -1,3 +1,4 @@
+Nie czekając, dobywa rapier spod kirejki:\
 Czach, czach! i za Domeykę podciął wąs Doweyki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wreszcie, jak na dobitkę, trzeba jeszcze było,\
