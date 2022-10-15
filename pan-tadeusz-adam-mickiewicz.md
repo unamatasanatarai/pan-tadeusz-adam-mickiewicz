@@ -1,3 +1,4 @@
+### Bitwa
 
 > O niebezpieczeństwach wynikających z nieporządnego obozowania — Odsiecz niespodziana — Smutne położenie szlachty — Odwiedziny kwestarskie są wróżbą ratunku — Major Płut zbytnią zalotnością ściąga na siebie burzę — Wystrzał z krócicy, hasło boju — Czyny Kropiciela, czyny i niebezpieczeństwa Maćka — Konewka zasadzką ocala Soplicowo — Posiłki jezdne, atak na piechotę — Czyny Tadeusza — Pojedynek dowódców przerwany zdradą — Wojski stanowczym manewrem przechyla szalę boju — Czyny krwawe Gerwazego — Podkomorzy zwycięzca wspaniałomyślny.
 
