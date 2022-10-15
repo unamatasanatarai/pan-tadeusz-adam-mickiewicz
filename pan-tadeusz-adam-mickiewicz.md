@@ -1,3 +1,4 @@
+Zwycięstwa swoich chartów: gdy pośród równiny\
 Znalazł się zagon chłopskiej niezżętej jarzyny.\
 Tam wpadł zając; już Kusy, już go Sokół imał,\
 Gdy Sędzia dojeżdżaczy na miedzy zatrzymał.\
