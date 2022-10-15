@@ -1,3 +1,4 @@
+A psami jak podwójnym ogonem wywija.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Rejent, Asesor patrzą, otworzyli usta,\
 Dech wstrzymali. Wtem Rejent pobladnął jak chusta,\
