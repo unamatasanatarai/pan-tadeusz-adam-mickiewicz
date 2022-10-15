@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Właśnie w owej chwili\
 Szlachta z Moskwą okropną walkę zakończyli\
 I chronią się gromadnie w domy i stodoły,\
