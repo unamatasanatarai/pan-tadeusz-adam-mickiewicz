@@ -1,3 +1,4 @@
+Że się skończył spór między Kusym i Sokołem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Była wieść, że zająca tego Wojski w domu\
 Wyhodował i w ogród puścił po kryjomu,\
