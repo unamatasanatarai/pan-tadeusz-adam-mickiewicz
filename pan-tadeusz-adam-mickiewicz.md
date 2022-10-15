@@ -1,3 +1,4 @@
+Nie zlękła się i mogła słuchać szczęku broni!...\
 Lecz ona biedna! tak ją, rodzice pieścili,\
 Słaba, lękliwa! był to robaczek motyli,\
 Wiosenna gąsiennica! i tak ją zagrabić,\
