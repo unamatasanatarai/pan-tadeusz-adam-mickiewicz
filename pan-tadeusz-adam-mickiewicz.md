@@ -1,3 +1,4 @@
+I wiatr nią jak wachlarzem ku swym nozdrzom tuli,\
 Pyta wiatru, czy strzelcy jadła nie zatruli:\
 Protazy zeszedł z drogi i wzdłuż sianożęci\
 Krąży około domu; pałkę w ręku kręci,\
