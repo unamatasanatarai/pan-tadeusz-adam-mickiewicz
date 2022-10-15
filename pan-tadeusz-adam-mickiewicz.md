@@ -1,3 +1,4 @@
+I nigdy nie dozwalał, by chybiano względu\
 Dla wieku, urodzenia, rozumu, urzędu.\
 Tym ładem, mawiał, domy i narody słyną,\
 Z jego upadkiem domy i narody giną.\
