@@ -1,3 +1,4 @@
+Widać z zamachu ręki, że silnie uderzy,\
 A z oczu łacno zgadnąć, że w Hrabiego mierzy\
 (Ostatniego z Horeszków, chociaż po kądzieli),\
 Mniej baczni młodzi ruchów starca nie pojęli:\
