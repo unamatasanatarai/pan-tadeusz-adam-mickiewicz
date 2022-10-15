@@ -1,3 +1,4 @@
+Opowiadać i swoją z jego córką miłość,\
 I swe z tego powodu z Stolnikiem zatargi.\
 Lecz mówił nieporządnie, często mieszał skargi\
 I żale we swą spowiedź, często rzecz przecinał,\
