@@ -1,3 +1,4 @@
+Bardzo niewygodnego. Bo gdy w czas sejmików,\
 Przyjaciele Doweyki skarbili stronników,\
 Szepnął ktoś do szlachcica: »Daj kreskę Doweyce«.\
 A ten, nie dosłyszawszy, dał kreskę Domeyce.\
