@@ -1,3 +1,4 @@
+Wszyscy przychylni panów Horeszków rodzinie,\
 Wszyscy nieprzyjaciele zabici Sopliców!\
 Stamtąd zbiorę ze trzystu wąsatych szlachciców;\
 To rzecz moja. Pan niechaj do pałacu wraca\
