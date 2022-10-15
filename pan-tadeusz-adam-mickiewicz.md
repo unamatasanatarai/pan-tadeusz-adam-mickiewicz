@@ -1,3 +1,4 @@
+Usiadła owa piękność widziana w pomroku!\
 Wprawdzie zdała się teraz wzrostem dorodniejsza,\
 Bo ubrana, a ubiór powiększa i zmniejsza.\
 I włos u tamtej widział krótki, jasnozłoty,\
