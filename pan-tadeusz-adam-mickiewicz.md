@@ -1,3 +1,4 @@
+I starzy się uczyli; u panów rozmowa,\
 Była to historyja żyjąca krajowa,\
 A między szlachtą dzieje domowe powiatu.\
 Dawano przez to poznać szlachcicowi bratu,\
