@@ -1,3 +1,4 @@
+Bijąca z Polski jako dzwon smętarza,\
 Gdy im prędkiego zgonu życzą straże,\
 Wrogi ich wabią z dala jak grabarze,\
 Gdy w niebie nawet nadziei nie widzą...\
