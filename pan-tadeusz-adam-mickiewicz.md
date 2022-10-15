@@ -1,3 +1,4 @@
+To jest czamarce». «W jakiej czamarce, mospanie? —\
 Odparł Wilbik. — To przecież zwano taratatką».\
 «Ale tamta z frędzlami, ta jest całkiem gładką» —\
 Krzyknął Mickiewicz. Zatem wszczynały się swary\
