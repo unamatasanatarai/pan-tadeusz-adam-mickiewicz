@@ -1,3 +1,4 @@
+Aż nie mogąc zdań zgodzić, na koniec stanowi\
 Przełożyć całą sprawę ojcu Maciejowi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Siedemdziesiąt dwa lat liczył Maciej, starzec dziarski\
