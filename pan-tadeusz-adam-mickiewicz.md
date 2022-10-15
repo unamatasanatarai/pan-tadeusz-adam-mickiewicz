@@ -1,3 +1,4 @@
+Pobrawszy się pod ręce, Rejent z Asesorem\
 Wyszukują ołowiu. Reszta spracowana\
 Szła spać wcześnie, ażeby przebudzić się z rana.
 
