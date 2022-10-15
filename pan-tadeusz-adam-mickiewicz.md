@@ -1,3 +1,4 @@
+Że go słusznie skarżyła, mówiło sumienie;\
 Lecz czuł, że po tych skargach tym mocniej ją zbrzydził.\
 O Zosi, ach! pomyślić nie ważył się, wstydził.\
 Przecież ta Zosia, taka piękna, taka miła!\
