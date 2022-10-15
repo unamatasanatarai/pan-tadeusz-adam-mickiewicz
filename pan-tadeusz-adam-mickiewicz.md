@@ -1,3 +1,4 @@
+Słyszeliście to wszyscy: a czy rozumiecie?\
 Któż jest śmieciem powiatu? Kto zdradziecko zabił\
 Najlepszego z Polaków, kto go okradł, zgrabił?\
 I jeszcze chce ostatki wydrzeć z rąk dziedzica?\
