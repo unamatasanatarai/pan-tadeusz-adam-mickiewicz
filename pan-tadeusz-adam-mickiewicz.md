@@ -1,3 +1,4 @@
+Otworem i dym jako z pożaru buchały;\
 Aż z kłębów dymu, niby biała gołębica,\
 Mignęła świecąca się kuchmistrza szlafmyca:\
 Wojski przez okno kuchni, ponad starców głowy,\
