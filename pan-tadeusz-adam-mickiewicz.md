@@ -1,3 +1,4 @@
+Wstał, podniósł dłoń i zwinął w kłębek długie palce,\
 I z góry tak uderzył w grzbiet Rosyjanina,\
 Że twarz jego i skroń wbił w zamek karabina;\
 Trzasł zamek: lecz zalany krwią proch już nie spalił;\
