@@ -1,3 +1,4 @@
+Wtem strzelono spod bramy... Stolnik się zająknął,\
 Zaczerwienił się, zbladnął, chciał mówić, krwią chrząknął:\
 Postrzegłem wtenczas kulę, wpadła w piersi same.\
 Pan słaniając się, palcem ukazał na bramę:\
