@@ -1,3 +1,4 @@
+Z cymbałami, narodu swego instrumentem,\
 Chadzał niegdyś po dworach i graniem zdumiewał,\
 I pieśniami, bo biegle i uczenie śpiewał.\
 Chociaż Żyd, dosyć czystą miał polską wymowę,\
