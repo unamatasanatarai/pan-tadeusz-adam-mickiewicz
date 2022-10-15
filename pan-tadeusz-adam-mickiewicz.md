@@ -1,3 +1,4 @@
+Obrócony na salę szlacheckiego zboru.\
 Starsi rzędem na ławach siedzą, młodzi stają\
 I ciekawi przez głowy w środek zaglądają;\
 W środku marszałek stoi, wazon w ręku trzyma,\
