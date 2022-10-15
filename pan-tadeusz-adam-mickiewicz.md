@@ -1,3 +1,4 @@
+Aż gdy przyszedł do miejsca: *O ty, której wdzięki*\
 *Budzą bolesną radość i rozkoszne męki!*\
 *Która na szyk Bellony gdy zwrócisz twarz piękną,*\
 *Złamią się wnet oszczepy i tarcze rozpękną!*\
