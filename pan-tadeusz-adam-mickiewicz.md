@@ -1,3 +1,4 @@
+Byłem młody, odważny, świat był mnie otwarty\
 W kraju, gdzie, jako wiecie, szlachcic urodzony\
 Jest zarówno z panami kandydat korony!\
 Wszakże Tęczyński niegdyś z królewskiego domu\
