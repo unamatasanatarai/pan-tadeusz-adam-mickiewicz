@@ -1,3 +1,4 @@
+Myśliłbyś, że ta para w powietrze uleci,\
 Podobna do pyzatych Boreasza dzieci.\
 Brakło cymbałów.
 
