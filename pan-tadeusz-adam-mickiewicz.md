@@ -1,3 +1,4 @@
+Zwrócił się ku Sędziemu, a był coraz bladszy,\
 I niespokojnie pytał o księdza plebana,\
 I wołał na Klucznika: «Zaklinam waćpana\
 Abyś został. Wnet skończę. Ledwie mam dość mocy\
