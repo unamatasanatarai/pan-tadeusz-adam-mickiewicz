@@ -1,3 +1,4 @@
+Rzekła z gniewem — sądź o tym sam waćpan dobrodziéj!\
 Mnie nic do Tadeusza; sami o nim radźcie,\
 Zróbcie go ekonomem lub w karczmie posadźcie,\
 Niech szynkuje lub z lasu niech zwierzynę znosi:\
