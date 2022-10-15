@@ -1,3 +1,4 @@
+Małą pensyjkę roczną, więcej przyrzec raczył,\
 Toć jej jeszcze nie kupił. Zresztą, państwo wiecie,\
 I dotąd jeszcze o tym wiadomo na świecie,\
 Że hojność państwa dla nas nie jest bez powodu,\
