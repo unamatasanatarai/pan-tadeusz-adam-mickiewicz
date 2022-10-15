@@ -1,3 +1,4 @@
+Który innych na niebie nie rozumiał krzyków\
 Prócz wichrów, a na ziemi prócz bestyi ryków,\
 Gości innych nie widział oprócz spółleśników, —\
 Teraz widzi: na niebie dziwna łuna pała,\
