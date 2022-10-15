@@ -1,3 +1,4 @@
+Zgładził przez żywot święty i przez wielkie czyny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;On to pod Hohenlinden, gdy Ryszpans jenerał\
 Na pół pobity już się do odwrotu zbierał,\
