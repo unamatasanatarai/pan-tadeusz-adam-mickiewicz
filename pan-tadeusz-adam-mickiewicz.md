@@ -1,3 +1,4 @@
+Stał w progu witać gościa. Ksiądz na pierwszej bryce\
 Jechał, kapturem na wpół zasłoniwszy lice,\
 Ale go wnet poznano: bo gdy więźniów minął,\
 Zwrócił się ku nim twarzą, palcem na znak skinął.\
