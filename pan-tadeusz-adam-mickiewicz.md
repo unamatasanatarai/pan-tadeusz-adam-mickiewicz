@@ -1,3 +1,4 @@
+Wojna niechybna! Kiedy z poselstwem tajemnem\
 Tu biegłem, wojsk forpoczty już stały nad Niemnem;\
 Napoleon już zbiera armiję ogromną,\
 Jakiej człowiek nie widział i dzieje nie pomną;\
