@@ -1,3 +1,4 @@
+Lecz skóry księdzu nie dam: lub gwałtem zabiorę,\
 Albo ją mnich ustąpić musi przez pokorę,\
 Albo ją kupię choćby dziesiątkiem soboli.\
 Skórą tą rozrządzimy wedle naszej woli:\
