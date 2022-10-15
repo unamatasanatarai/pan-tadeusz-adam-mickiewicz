@@ -1,3 +1,4 @@
+Obnażony z obrusa, poległ na talerzach\
 Zlanych winem, jak rycerz na krwawych puklerzach,\
 Między licznymi kurcząt i jendyków ciały,\
 W których piersi widelce świeżo wbite tkwiały.
