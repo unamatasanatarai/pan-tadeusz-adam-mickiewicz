@@ -1,3 +1,4 @@
+I dziecka, to zostaniesz przez resztę żywota\
 Bardzo samotny, stary, wdowiec i sierota!\
 Powiedz, czym ci ten drogi dar mam wynagrodzić\
 I czym twoje sieroctwo i wdowstwo osłodzić?»\
