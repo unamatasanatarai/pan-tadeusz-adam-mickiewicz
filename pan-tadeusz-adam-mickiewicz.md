@@ -1,3 +1,4 @@
+A my, czy to będziemy z pod prawa wyjęci?\
 Kiedy nas zapraszano z naszego zaścianku,\
 A zapraszał nas klucznik Rębajło Mopanku,\
 Mówiono nam, że wielkie rzeczy dziać się miały,\
