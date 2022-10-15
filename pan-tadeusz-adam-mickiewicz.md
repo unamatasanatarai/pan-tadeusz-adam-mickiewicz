@@ -1,3 +1,4 @@
+Stają, krzyczym, że nadto przybliżyli mety;\
 Oni na złość, przysięgli przez niedźwiedzią skórę\
 Strzelać się: śmierć niechybna! prawie rura w rurę.\
 Oba tęgo strzelali — »Sekunduj, Hreczecha!«\
