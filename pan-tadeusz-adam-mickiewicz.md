@@ -1,3 +1,4 @@
+Jadę więc na granicę Warszawskiego Księstwa.\
 Hrabia, prawda, fanfaron, lecz mu nie brak męstwa,\
 Na miejsce naznaczone zapewne się stawi,\
 Rozprawim się; a jeśli Bóg pobłogosławi,\
