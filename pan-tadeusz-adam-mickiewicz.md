@@ -1,3 +1,4 @@
+Biegali wszyscy za nim, jakby za rarogiem,\
 Zazdroszczono domowi, przed którego progiem\
 Stanęła Podczaszyca dwukolna dryndulka,\
 Która się po francusku zwała karyjulka:\
