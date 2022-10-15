@@ -1,3 +1,4 @@
+Więc nie mogąc zemścić się na nieprzyjacielu,\
 Myślił o drugim wielkim tej wyprawy celu.\
 Jako człek doświadczony i biegły w prawnictwie,\
 Chce Hrabiego osadzić na nowym dziedzictwie\
