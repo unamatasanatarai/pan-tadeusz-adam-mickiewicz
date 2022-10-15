@@ -1,3 +1,4 @@
+Z wozów niosą jarzyny, mąki i pieczyste,\
 I chleb.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Sędzia otworzył puzderko zamczyste,\
