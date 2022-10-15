@@ -1,3 +1,4 @@
+I tam na Ukrainie czy się dotąd wznosi\
 Przed Hołowińskch domem, nad brzegami Rosi,\
 Lipa tak rozrośniona, że pod jej cieniami\
 Sto młodzieńców, sto panien szło w taniec parami?
