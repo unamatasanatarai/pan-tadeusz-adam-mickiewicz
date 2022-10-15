@@ -1,3 +1,4 @@
+Wre para jak w kraterze zagasłych wulkanów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy się już do woli napili, najedli,\
 Źwierza na wóz złożyli, sami na koń siedli,\
