@@ -1,3 +1,4 @@
+A Moskal ich podatkiem potrójnym ogłodził.\
 Radzę więc, aby chłopów starym obyczajem,\
 Uszlachcić i ogłosić, że im herb nasz dajem.\
 Pani udzieli jednym wioskom Półkozica,\
