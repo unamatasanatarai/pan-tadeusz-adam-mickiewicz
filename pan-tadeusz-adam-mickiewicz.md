@@ -1,3 +1,4 @@
+Na krawędziach naczynia stoją dla ozdoby\
 Niewielkie z porcelany wydęte osoby\
 W polskich strojach: jakoby aktory na scenie,\
 Zdawały się przedstawiać jakoweś zdarzenie;\
