@@ -1,3 +1,4 @@
+Już mu Proporszczyk dzidą lekką ranę zadał,\
 Już wznosząc w górę berdysz do cięcia się składał,\
 Chrzciciel nie zdoła dobiec, lecz staje wpół drogi,\
 Okręca broń i ciska wrogowi pod nogi.\
