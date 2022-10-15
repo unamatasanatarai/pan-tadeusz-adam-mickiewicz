@@ -1,3 +1,4 @@
+Dał rozkaz ekonomom, wójtom i gumiennym,\
 Pisarzom, ochmistrzyni, strzelcom i stajennym\
 I musiał wszystkie dzienne rachunki przezierać.\
 Nareszcie rzekł Woźnemu, że się chce rozbierać.\
