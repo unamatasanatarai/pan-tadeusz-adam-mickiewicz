@@ -1,3 +1,4 @@
+Wydyma się kłębuszkiem, mruczy, krwawe ślepie\
 Wyiskrza, wąsy rusza i ogonem trzepie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Rębajło — rzekł ksiądz — już mię nie zatrwożą\
