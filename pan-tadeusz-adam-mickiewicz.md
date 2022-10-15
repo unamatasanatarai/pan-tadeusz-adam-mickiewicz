@@ -1,3 +1,4 @@
+Oczy modre, łagodne, włos długi, białawy;\
 Na włosach listki ziela i kosmyki trawy,\
 Które Hrabia oberwał pełznąc przez zagony,\
 Zieleniły się jako wieniec rozpleciony.
