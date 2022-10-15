@@ -1,3 +1,4 @@
+Za swoje. Mój syn, było to dziecko roztropne,\
 Teraz tak zgłupiał, że go nazywają Sakiem;\
 A z przyczyny Sędziego został głupcem takim.\
 Mówiłem: po co tobie leźć do Soplicowa?\
