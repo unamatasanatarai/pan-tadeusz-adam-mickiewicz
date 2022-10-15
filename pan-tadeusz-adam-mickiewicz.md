@@ -1,3 +1,4 @@
+Chmura z gradem, jak balon szybko z wiatrem leci,\
 Krągła, ciemnobłękitna, w środku żółto świeci,\
 Szum wielki słychać wkoło; nawet te codzienne,\
 Patrzcie państwo, te białe chmurki, jak odmienne!\
