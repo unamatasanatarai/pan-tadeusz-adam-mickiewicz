@@ -1,3 +1,4 @@
+W spokojniejszych i cichszych niż zwykle rozmowach:\
 Bo Asesor i Rejent, oba mówcy wielcy,\
 Pierwsi znawcy myślistwa i najlepsi strzelcy,\
 Siedzieli przeciw sobie mrukliwi i gniewni.\
