@@ -1,3 +1,4 @@
+*Marsz Dąbrowski do Polski!* — I wszyscy klasnęli,\
 I wszyscy «Marsz Dąbrowski!» chórem okrzyknęli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Muzyk, jakby sam swojej dziwił się piosence,\
