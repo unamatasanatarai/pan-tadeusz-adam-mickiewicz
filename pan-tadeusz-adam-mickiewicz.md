@@ -1,3 +1,4 @@
+Ja też pojąłem: ale tak się z gniewu wściekłem,\
 Że o tym krzyżu nigdy i słowa nie rzekłem».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu rozmowę przerwały chorego cierpienia,\
