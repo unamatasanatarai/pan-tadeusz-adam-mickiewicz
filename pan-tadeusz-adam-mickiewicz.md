@@ -1,3 +1,4 @@
+Nabrałabyś się od nich pięknej manijery.\
 Teraz to pokazać się jest przynajmniej komu,\
 Mamy przecież uczciwe towarzystwo w domu.\
 Uważaj dobrze, Zosiu, jest tu Hrabia młody,\
