@@ -1,3 +1,4 @@
+Anieli zawiesili jego martwe szczątki.\
 Podobnie pleban Mirski zawiesił w kościele\
 Wykopane olbrzymów żebra i piszczele.
 
