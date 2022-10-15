@@ -1,3 +1,4 @@
+Łączą się i akordów wiążą legijony,\
 I już w takt postępują zgodzonymi dźwięki,\
 Tworząc nutę żałośną tej sławnej piosenki:\
 *O żołnierzu, tułaczu, który borem, lasem*\
