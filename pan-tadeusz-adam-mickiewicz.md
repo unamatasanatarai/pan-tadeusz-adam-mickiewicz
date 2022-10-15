@@ -1,3 +1,4 @@
+Tylko ostrzegam, byśmy wolności nie dali\
 Pustej i słownej tylko, jako za Moskali,\
 Kiedy pan Karp nieboszczyk włościan wyswobodził ,\
 A Moskal ich podatkiem potrójnym ogłodził.\
