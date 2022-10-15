@@ -1,3 +1,4 @@
+Słowem, ubiór galowy; szeptali niejedni,\
 Że zbyt wykwintny na wieś i na dzień powszedni.\
 Nóżek, choć suknia krótka, oko nie zobaczy,\
 Bo biegła bardzo szybko, suwała się raczéj\
