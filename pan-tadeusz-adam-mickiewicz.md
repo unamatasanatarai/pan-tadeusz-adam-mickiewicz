@@ -1,3 +1,4 @@
+Przepłynę, gdzie mnie bratnie czekają szeregi.\
 Słyszałem, że mi ojciec testamentem kazał\
 Służyć w wojsku, a nie wiem, kto testament zmazał».
 
