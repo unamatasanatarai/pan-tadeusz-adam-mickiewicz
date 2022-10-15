@@ -1,3 +1,4 @@
+Kobiety wszystkie chrzczono Kachny lub Maryny.\
 By rozeznać się wpośród takiej mieszaniny,\
 Brali różne przydomki od jakiej zalety\
 Lub wady, tak mężczyźni jako i kobiety.\
