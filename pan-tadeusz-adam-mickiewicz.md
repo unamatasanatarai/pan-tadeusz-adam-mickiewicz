@@ -1,3 +1,4 @@
+On przyjaciel?... On wiedział, co się wtenczas działo\
 W duszy mojej!...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem już szeptała o tym okolica,\
