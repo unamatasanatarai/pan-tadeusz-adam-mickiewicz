@@ -1,3 +1,4 @@
+Bracia szlachta, Dobrzyńscy! Ja nie będę radził\
 Nic a nic; powiem tylko, po com was zgromadził:\
 A co robić, jak robić, decydujcie sami.\
 Wiecie, słuch dawno chodzi między zaściankami,\
