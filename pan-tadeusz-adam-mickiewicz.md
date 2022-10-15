@@ -1,3 +1,4 @@
+Znowu muzyka inna — znów zrazu brzęczenia\
 Lekkie i ciche; kilka cienkich strunek jęczy,\
 Jak kilka much, gdy z siatki wyrwą się pajęczéj.\
 Lecz strun coraz przybywa: Już rozpierzchłe tony\
