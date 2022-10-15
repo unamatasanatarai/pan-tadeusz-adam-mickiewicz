@@ -1,3 +1,4 @@
+Wiesz, iż dawniej rad bym był Sopliców rodzinę\
 W łyżce wody utopić; a tego chłopczynę,\
 Tadeusza, od dziecka niezmierniem polubił!\
 Uważałem, że gdy się z chłopiętami czubił,\
