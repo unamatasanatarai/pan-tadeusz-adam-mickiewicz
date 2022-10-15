@@ -1,3 +1,4 @@
+Że go myśli nawiedzić albo już nawiedził:\
 Tak Hrabia był ostrożny, choć go nikt nie śledził;\
 Patrzył w stronę przeciwną ogrodu, na prawo.
 
