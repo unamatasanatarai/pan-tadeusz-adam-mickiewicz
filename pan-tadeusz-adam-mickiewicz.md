@@ -1,3 +1,4 @@
+Śmieliśmy złożyć wiedząc, żeś człek niebogaty».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ach, jegry! — wołał Ryków — cała rota skłuta!\
 Moja rota! a wszystko z winy tego Płuta!\
