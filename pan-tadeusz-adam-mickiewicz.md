@@ -1,3 +1,4 @@
+Już mię znudziło wreszcie na tyle głupstw patrzeć:\
 Ważniejsze ja mam sprawy niż godzić pieniaczy;\
 Ale jeszcze raz zgodzę». «Zgodzić? Cóż to znaczy!\
 A idźże mi waść wreszcie z tą zgodą do licha! —\
