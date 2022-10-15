@@ -1,3 +1,4 @@
+Od lipy, która koroną wspaniałą\
 Całej wsi dzieciom użyczała cienia,\
 Aż do każdego strumienia, kamienia,\
 Jak każdy kącik ziemi był znajomy\
