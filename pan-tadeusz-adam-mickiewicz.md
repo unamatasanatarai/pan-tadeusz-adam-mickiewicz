@@ -1,3 +1,4 @@
+Obecni tu są naszych wojsk jenerałowie,\
 Od których usłyszałem wszystko, co wam mówię.\
 Ten Jacek nie był umarł (jak głoszono) w Rzymie,\
 Tylko odmienił życie dawne, stan i imię,\
