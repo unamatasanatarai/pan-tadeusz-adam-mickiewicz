@@ -1,3 +1,4 @@
+Tuż Asesor z Rejentem razem wrzaśli z tyłu:\
 «Wyczha, wyczha!» i z psami znikli w kłębach pyłu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy tak za szarakiem goniono, tymczasem\
