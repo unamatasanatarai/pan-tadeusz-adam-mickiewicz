@@ -1,3 +1,4 @@
+Na prawo i na lewo. Tu, końcem szablicy\
 Uciera bagnet z rury jako knot ze świécy;\
 Tam, machnąwszy na odlew, ścina albo kole:\
 I tak ostróżny Maciek ustępuje w pole.
