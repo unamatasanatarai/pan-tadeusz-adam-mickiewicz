@@ -1,3 +1,4 @@
+Odezwało się tysiąc krzyków i hałasów.\
 Odgłos to był szukania i nawoływania,\
 Hasło zakończonego na dziś grzybobrania;\
 Odgłos nie smutny wcale ani pogrzebowy,\
