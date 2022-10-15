@@ -1,3 +1,4 @@
+Również patrzyła ona: i cztery źrenice\
 Gorzały przeciw sobie jak roratne świéce.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pierwsza z nim po francusku zaczęła rozmowę.\
