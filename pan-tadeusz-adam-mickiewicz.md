@@ -1,3 +1,4 @@
+Wtem ujrzała młodzieńca i z rąk jej wypadła\
 Suknia, a twarz od strachu i dziwu pobladła.\
 Twarz podróżnego barwą spłonęła rumianą,\
 Jak obłok, gdy z jutrzenką napotka się raną.\
