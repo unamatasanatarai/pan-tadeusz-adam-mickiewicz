@@ -1,3 +1,4 @@
+Jaskółka, czarny obłok przeszywa jak strzała,\
 Wreszcie spada jak kula.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Właśnie w owej chwili\
