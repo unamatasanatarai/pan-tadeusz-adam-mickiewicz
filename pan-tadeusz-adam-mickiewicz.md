@@ -1,3 +1,4 @@
+I to mówiąc wystrzelił, a tak dobrze mierzył,\
 Że porucznika obok Rykowa uderzył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Majorze — szepnął Ryków — wyjdź na pojedynek,\
