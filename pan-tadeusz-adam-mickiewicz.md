@@ -1,3 +1,4 @@
+Gdym przybył do Palermo, wiedziano z gazety,\
 Palcami wskazywały mię wszystkie kobiety;\
 Nawet wydrukowano o całym zdarzeniu\
 Romans, gdzie wymieniony jestem po imieniu.\
