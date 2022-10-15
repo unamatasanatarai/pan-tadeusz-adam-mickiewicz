@@ -1,3 +1,4 @@
+I od dzieciństwa mieszkał w Wilnie, wielkim mieście,\
 Miał za dozorcę księdza, który go pilnował\
 I w dawnej surowości prawidłach wychował.\
 Tadeusz zatem przywiózł w strony swe rodzinne\
