@@ -1,3 +1,4 @@
+Która się po francusku zwała karyjulka:\
 Zamiast lokajów, w kielni siedziały dwa pieski,\
 A na kozłach Niemczysko chude na kształt deski;\
 Nogi miał długie, cienkie jak od chmielu tyki,\
