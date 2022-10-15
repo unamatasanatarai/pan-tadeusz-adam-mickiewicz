@@ -1,3 +1,4 @@
+Przeciw tej fali płynie; schyla się do ziemi\
 I nurkuje pomiędzy trawami gęstemi,\
 Środkiem dziedzińca; aż tam, gdzie rosła pokrzywa,\
 Zasadza się, a Saka gestami przyzywa.
