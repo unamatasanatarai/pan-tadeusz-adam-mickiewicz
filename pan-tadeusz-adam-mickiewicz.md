@@ -1,3 +1,4 @@
+Aniby go wskrzesili z mocy bożej popi,\
 Ni z mocy Belzebuba — ten mi zuch, kto kropi.\
 Panie Buchman, waścina rzecz bardzo wymowna,\
 Ale wymowa szum, drum: kropić! to rzecz główna».
