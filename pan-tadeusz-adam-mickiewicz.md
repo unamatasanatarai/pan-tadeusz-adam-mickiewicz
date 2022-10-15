@@ -1,3 +1,4 @@
+W tyle ją cudów ubrał, tyle odgadywał!\
 Wszystko znalazł inaczej: prawda, że twarz ładną,\
 Kibić miała wysmukłą, ale jak nieskładną!\
 A owa pulchność liców i rumieńca żywość,\
