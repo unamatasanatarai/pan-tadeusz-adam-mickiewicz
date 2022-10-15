@@ -1,3 +1,4 @@
+Lecz i te, przewidując nazbyt mocną burzę,\
 Już w las ciągną, podobne wznoszącej się chmurze.\
 Ostatnia z ptaków, lotem nieścigłym zuchwała\
 Jaskółka, czarny obłok przeszywa jak strzała,\
