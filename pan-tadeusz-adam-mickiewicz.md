@@ -1,3 +1,4 @@
+Ona tymczasem znikła, zakryta drzew cieniem.\
 Chwilę jeszcze z szpaleru, przez majowe zwoje,\
 Przeświecało coś na wskroś jakby oczu dwoje.
 
