@@ -1,3 +1,4 @@
+Otoż ja was obronię, i jak będzie śledztwo,\
 Słowo uczciwe, że dam za wami świadectwo.\
 Powiemy, że my przyszli tu z wizytą, pili\
 Sobie, tańczyli, trochę sobie podchmielili,\
