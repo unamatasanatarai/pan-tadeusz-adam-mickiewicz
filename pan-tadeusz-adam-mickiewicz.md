@@ -1,3 +1,4 @@
+Na znak że jeść nie będzie, i milczał ponury.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Panie Dobrzyński — rzekł mu jenerał Dąbrowski,\
 Tyż to jesteś ów sławny rębacz Kościuszkowski,\
