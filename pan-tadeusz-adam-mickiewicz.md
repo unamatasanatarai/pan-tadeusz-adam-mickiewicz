@@ -1,3 +1,4 @@
+W innych krajach, jak słyszę, trzyma urząd drabów,\
 Policyjantów różnych, żandarmów, konstabów:\
 Ale jeśli miecz tylko bezpieczeństwa strzeże,\
 Żeby w tych krajach była wolność — nie uwierzę».
