@@ -1,3 +1,4 @@
+Tadeusz nie przestawał dąsać się i zżymać,\
 Na koniec nie mógł dłużej od gniewu wytrzymać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Był on prostak, lecz umiał czuć wdzięk przyrodzenia,\
