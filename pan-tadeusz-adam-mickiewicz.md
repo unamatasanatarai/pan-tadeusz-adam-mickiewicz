@@ -1,3 +1,4 @@
+Kroćset kroci tysięcy fur, beczek, furgonów,\
 Diabłów!!!!...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Ucichli wszyscy jak rażeni gromem;\
