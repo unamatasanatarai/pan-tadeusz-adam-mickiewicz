@@ -1,3 +1,4 @@
+Dach z dranic i ze słomy, spiczasty, zadarty,\
 Pogięty jako kołpak żydowski podarty.\
 Ze szczytu wytryskują krużganku krawędzie,\
 Oparte na drewnianym licznych kolumn rzędzie.\
