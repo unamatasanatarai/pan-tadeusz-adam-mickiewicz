@@ -1,3 +1,4 @@
+Za baranem szły woły, trzoda owiec, kozy,\
 Za bydłem cztery ciężko pakowane wozy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wszyscy odgadli, że to wjazd księdza kwestarza.\
