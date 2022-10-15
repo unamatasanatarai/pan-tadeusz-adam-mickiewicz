@@ -1,3 +1,4 @@
+I chołodziec litewski milczkiem żwawo jedli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Obiadowano ciszej, niż się zwykle zdarza;\
 Nikt nie gadał, pomimo wezwań gospodarza.\
