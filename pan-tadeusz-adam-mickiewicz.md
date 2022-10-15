@@ -1,3 +1,4 @@
+Uśpieni kół turkotem, ledwie staną osie,\
 Budzą się krzycząc z trwogą: «A słowo stało się...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski ukłonem dawał znak Podkomorzemu,\
