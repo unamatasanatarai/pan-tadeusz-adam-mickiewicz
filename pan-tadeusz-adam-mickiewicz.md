@@ -1,3 +1,4 @@
+Sędzia wnet kucharzowi powtórzył rozkazy:\
 Wniesiono wazę, cukier, butelki i zrazy.\
 Płut i Ryków tak czynnie zaczęli się zwijać,\
 Tak łakomie połykać i gęsto zapijać,\
