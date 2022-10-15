@@ -1,3 +1,4 @@
+Tu obława, tu wszystkich weźmiem na świadectwo...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Więc kłótnia między zgrają wszczęła się zawzięta:\
 Ci stronę Asesora, ci brali Rejenta.\
