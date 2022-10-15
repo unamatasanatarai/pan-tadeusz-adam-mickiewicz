@@ -1,3 +1,4 @@
+O tej dziewczynie, co tak grać lubiła,\
 Że przy skrzypeczkach gąski pogubiła,\
 O tej sierocie, co piękna jak zorze,\
 Zaganiać ptastwo szła w wieczornej porze:\
