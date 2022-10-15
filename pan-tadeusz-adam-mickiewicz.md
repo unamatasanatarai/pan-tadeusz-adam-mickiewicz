@@ -1,3 +1,4 @@
+A tymczasem zagrzmiało tysiące oklasków,\
 Tysiące powińszowań i wiwatnych wrzasków.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Uciszono się z wolna i oczy gawiedzi\
