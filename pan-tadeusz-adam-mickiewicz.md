@@ -1,3 +1,4 @@
+Ważne rzeczy, mój bracie! Wojna tuż nad nami!\
 Wojna o Polskę! bracie! Będziem Polakami!\
 Wojna niechybna! Kiedy z poselstwem tajemnem\
 Tu biegłem, wojsk forpoczty już stały nad Niemnem;\
