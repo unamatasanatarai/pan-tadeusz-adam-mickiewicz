@@ -1,3 +1,4 @@
+My im ze strzelb dziesięciu palnęli »A zasie«.\
 Nic tam nie było widać; słudzy bez ustanku\
 Strzelali z dolnych pięter, a ja i pan z ganku.\
 Wszystko szło pięknym ładem, choć w tak wielkiej trwodze:\
