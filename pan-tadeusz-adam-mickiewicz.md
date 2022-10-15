@@ -1,3 +1,4 @@
+Jakoż, kiedy się moda odmieniła z laty,\
 Tenże sam markiż przybrał tytuł demokraty;\
 Wreszcie z odmienną modą, pod Napoleonem,\
 Demokrata przyjechał z Paryża baronem;\
