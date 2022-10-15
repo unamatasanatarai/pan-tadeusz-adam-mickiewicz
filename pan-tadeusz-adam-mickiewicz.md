@@ -1,3 +1,4 @@
+Niech żyją Horeszkowie! wiwant Półkozice!\
 Wiwat Klucznik Rębajło! Hejże na Soplicę!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;I tak wszystkich pociągnął wymowny Gerwazy;\
