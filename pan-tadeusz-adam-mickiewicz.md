@@ -1,3 +1,4 @@
+Starsi i damy spały we dworskim budynku;\
 Młodzież Tadeuszowi prowadzić kazano,\
 W zastępstwie gospodarza, w stodołę na siano.
 
