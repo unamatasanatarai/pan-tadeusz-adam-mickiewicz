@@ -1,3 +1,4 @@
+Toby środkiem bestyi przechodził spokojny;\
 One by nań patrzyły tym wzrokiem zdziwienia,\
 Jakim w owym ostatnim szóstym dniu stworzenia\
 Ojce ich pierwsze, co się w ogrójcu gnieździły,\
