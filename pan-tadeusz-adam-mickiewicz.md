@@ -1,3 +1,4 @@
+Je jak Żyd, skąpi gościom potraw i napitków,\
 Węgrzyna pożałuje, a pije szatańskie\
 Fałszywe wino modne, moskiewskie, szampańskie;\
 Potem w wieczór na karty tyle złota straci,\
