@@ -1,3 +1,4 @@
+«Pal — woła Sędzia — ja cię w tym ogniu usmażę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;O dworze Soplicowski! Jeśli dotąd całe\
 Świecą się pod lipami twoje ściany białe,\
