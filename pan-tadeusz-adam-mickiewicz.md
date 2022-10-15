@@ -1,3 +1,4 @@
+Pacierze różańcowe albo gadać bajki.\
 Stąd też nieprzyjacielem zabitym był fajki,\
 Wymyślonej od Niemców, by nas zcudzoziemczyć;\
 Mawiał: Polskę oniemić, jest to Polskę zniemczyć.\
