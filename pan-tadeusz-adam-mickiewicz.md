@@ -1,3 +1,4 @@
+Gęsto wszyte w aksamit zielonej darniny.\
 Już króliki na łapkach stają; każdy słucha,\
 Patrzy; na koniec cała trzódka białopucha\
 Bieży do starca liśćmi kapusty znęcona,\
