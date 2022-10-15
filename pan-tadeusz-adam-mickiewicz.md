@@ -1,3 +1,4 @@
+Rejent szepnął: *kobiety*, Asesor: *kokiety*,\
 Utkwiwszy w Telimenie oczy jak sztylety.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nie myślił wcale Wojski przymawiać nikomu,\
