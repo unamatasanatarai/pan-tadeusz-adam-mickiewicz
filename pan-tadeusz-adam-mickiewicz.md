@@ -1,3 +1,4 @@
+Zanucili tę piosnkę i poszli w kraj świata;\
 Przywodzą na myśl długie swej wędrówki lata,\
 Po lądach, morzach, piaskach gorących i mrozie,\
 Pośrodku obcych ludów, gdzie często w obozie\
