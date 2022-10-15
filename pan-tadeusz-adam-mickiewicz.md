@@ -1,3 +1,4 @@
+Dobył nożyk strzelecki wiszący za pasem,\
 Oderznął skoki i rzekł: «Dziś równą odprawę\
 Wezmą pieski, bo równą pozyskali sławę,\
 Równa ich była rączość, równa była praca;\
