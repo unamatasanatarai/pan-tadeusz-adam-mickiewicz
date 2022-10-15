@@ -1,3 +1,4 @@
+Krwią, herbem, wierną służbą Rzeczypospolitej?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jak łatwo może człowiek popsuć szczęście drugim\
 W jednej chwili, a życiem nie naprawi długim!\
