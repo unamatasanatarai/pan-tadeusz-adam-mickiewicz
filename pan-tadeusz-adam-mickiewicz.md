@@ -1,3 +1,4 @@
+I pana Tadeusza z Zofią przywodzi.\
 Tadeusz lewą dłonią dotykając głowy,\
 Pozdrowił swych dowódców przez ukłon wojskowy;\
 Zofija z opuszczonym ku ziemi wejrzeniem,\
