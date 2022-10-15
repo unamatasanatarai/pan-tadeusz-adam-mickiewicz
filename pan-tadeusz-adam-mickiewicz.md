@@ -1,3 +1,4 @@
+Bym wrócił was oglądać, przyjaciele starzy,\
 Czyli was znajdę jeszcze? czy dotąd żyjecie?\
 Wy, koło których niegdyś pełzałem jak dziecię;\
 Czy żyje wielki Baublis, w którego ogromie\
