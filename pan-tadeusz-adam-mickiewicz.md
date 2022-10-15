@@ -1,3 +1,4 @@
+Czasem staje na miejscu, rękę grzecznie wznosi\
 I żeby mimo przeszli, pokornie ich prosi;\
 Czasem zamyśla zręcznie na bok się uchylić,\
 Odmienia drogę, rad by towarzyszów zmylić,\
