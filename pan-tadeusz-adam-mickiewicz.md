@@ -1,3 +1,4 @@
+Co było w jego sercu, on sam nie odgadnął.\
 Uczuł się nieszczęśliwym bardzo — poznał Zosię!\
 Po wzroście i po włosach światłych, i po głosie;\
 Tę kibić i tę główkę widział na parkanie,\
