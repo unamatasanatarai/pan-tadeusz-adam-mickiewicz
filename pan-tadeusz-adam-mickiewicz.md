@@ -1,3 +1,4 @@
+Marszałkostwa, kredensu nie zwierzał nikomu,\
 Tylko Dobrzyńskim: pełno Dobrzyńskich miał w domu!\
 On forytował wasze w trybunałach sprawy,\
 On wyrabiał u króla dla was chleb łaskawy,\
