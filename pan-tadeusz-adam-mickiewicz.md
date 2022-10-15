@@ -1,3 +1,4 @@
+«Widziałem w botanicznym wileńskim ogrodzie,\
 Owe sławione drzewa rosnące na wschodzie\
 I na południu, w owej pięknej włoskiej ziemi;\
 Któreż równać się może z drzewami naszemi?\
