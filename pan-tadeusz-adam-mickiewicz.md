@@ -1,3 +1,4 @@
+Odezwały się chórem podwójnym dwa stawy:\
 Jako zaklęte w górach kaukaskich jeziora\
 Milczące przez dzień cały, grające z wieczora.\
 Jeden staw, co toń jasną i brzeg miał piaszczysty,\
