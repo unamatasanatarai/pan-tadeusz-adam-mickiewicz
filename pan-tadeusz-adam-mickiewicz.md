@@ -1,3 +1,4 @@
+Mospanie Sędzio, dobry kruczek i na ciebie.\
 Wszak Jankiel, szpieg, którego już rząd dawno śledzi,\
 Jest twoim domownikiem, w karczmie twojej siedzi.\
 Mogę teraz was wszystkich wziąć w areszt od razu».\
