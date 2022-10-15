@@ -1,3 +1,4 @@
+Wspiera się, jak na grobów połamanych słupach,\
 Na dębów, przodków swoich, skamieniałych trupach.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Tadeusz kręcił się, nudząc niepomału\
