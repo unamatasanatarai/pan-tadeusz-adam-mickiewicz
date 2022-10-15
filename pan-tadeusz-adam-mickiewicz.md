@@ -1,3 +1,4 @@
+Głosujmy wszyscy; równa u każdego gałka.\
 Niech żyje równość!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Zatem dwaj Terajewicze\
