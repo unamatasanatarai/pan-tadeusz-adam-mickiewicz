@@ -1,3 +1,4 @@
+Śmierć i sztabsoficerów porywa za uszy!\
 Dobrze napisał Baka, że śmierć dżga za katy\
 W szkarłaty, i po suknie nieraz dobrze stuknie,\
 I po płótnie tak utnie jak i po kapturze,\
