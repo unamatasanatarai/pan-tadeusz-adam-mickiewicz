@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Spór ich potem w dozgonną przyjaźń się zamienił,\
 I Doweyko się z siostrą Domeyki ożenił;\
 Domeyko pojął siostrę szwagra, Doweykównę,\
 Podzielili majątek na dwie części równe,\
