@@ -1,3 +1,4 @@
+Przychodzi budzić; pewnie ma jakieś nowiny.
 
 
 
