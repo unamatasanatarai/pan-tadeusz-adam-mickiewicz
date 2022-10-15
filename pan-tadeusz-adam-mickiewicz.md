@@ -1,3 +1,4 @@
+Rozjechali się. Ja zaś do Wirgilijusza...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Wojskiemu przerwał krzyk: «Wyczha!» Tuż spod koni\
 Smyknął szarak; już Kusy, już go Sokół goni.\
