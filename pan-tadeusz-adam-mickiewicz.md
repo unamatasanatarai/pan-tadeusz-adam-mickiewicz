@@ -1,3 +1,4 @@
+Lecz na Litewskim Księstwie teraz syzma siedzi!»\
 «Z Częstochowy? — rzekł Wilbik. — Byłem tam w spowiedzi,\
 Kiedym na odpust chodził lat temu trzydzieście.\
 Czy to prawda, że Francuz gości teraz w mieście,\
