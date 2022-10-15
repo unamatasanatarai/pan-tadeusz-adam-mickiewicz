@@ -1,3 +1,4 @@
+Jako ostatni płomyk życia przy skonaniu!\
 Raz ostatni dotknąwszy przyjaciela skroni,\
 Częstokroć najzimniejsze oko łzę uroni!
 
