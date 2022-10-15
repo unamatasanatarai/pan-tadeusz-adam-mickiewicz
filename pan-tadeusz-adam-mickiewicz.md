@@ -1,3 +1,4 @@
+I opiszę się jeszcze przed ziemskim urzędem,\
 Iż ten pierścień Sędziemu w salarijum złożę».\
 «Ja — rzekł Asesor — stawię me złote obroże,\
 Jaszczurem wykładane, z kółkami ze złota,\
