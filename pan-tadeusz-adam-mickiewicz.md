@@ -1,3 +1,4 @@
+Gryzą, piją; czasami w kącie zapomniana,\
 Puknie na toast duchom butelka szampana.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale na drugim piętrze, w izbie, którą zwano,\
