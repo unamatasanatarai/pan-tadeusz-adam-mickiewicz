@@ -1,3 +1,4 @@
+Co jest świętem kościelnym i świętem rodziny:\
 Jutro odbyć się mają trzech par zaręczyny.\
 Zaś jenerał Dąbrowski oświadczył z wieczora,\
 Że chce mieć obiad polski.
