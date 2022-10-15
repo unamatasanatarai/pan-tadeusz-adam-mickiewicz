@@ -1,3 +1,4 @@
+Zaś jenerał Dąbrowski oświadczył z wieczora,\
 Że chce mieć obiad polski.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Choć spóźniona pora,\
