@@ -1,3 +1,4 @@
+Może mnie wkrótce lepszym, godniejszym obaczy,\
 Może stałością na jej wzajemność zarobię,\
 Może troszeczką sławy me imię ozdobię,\
 Może wkrótce w ojczyste wrócim okolice;\
