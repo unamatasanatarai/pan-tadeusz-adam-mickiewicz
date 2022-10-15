@@ -1,3 +1,4 @@
+A tymczasem ogłaszam: bracia, uciszcie się!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;I by donośniej mówić, wstąpił na stos wielki\
 Belek (pod płotem sadu suszyły się belki),\
