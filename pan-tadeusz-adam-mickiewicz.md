@@ -1,3 +1,4 @@
+Zarówno świadom prawa jak i gospodarstwa,\
 Wiedział także sekreta strzelców i lekarstwa;\
 Przyznawano mu nawet (czemu pleban przeczy)\
 Wiadomość nadzwyczajnych i nadludzkich rzeczy.\
