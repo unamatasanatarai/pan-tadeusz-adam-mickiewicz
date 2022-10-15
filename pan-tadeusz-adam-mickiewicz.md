@@ -1,3 +1,4 @@
+Wiekami wydrążonym, jakby w dobrym domie,\
 Dwunastu ludzi mogło wieczerzać za stołem?\
 Czy kwitnie gaj Mendoga pod farnym kościołem?\
 I tam na Ukrainie czy się dotąd wznosi\
