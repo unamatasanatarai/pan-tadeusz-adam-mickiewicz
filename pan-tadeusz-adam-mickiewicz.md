@@ -1,3 +1,4 @@
+Naprawiać go Archanioł Michał nie pozwala.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I to wiadomo także u starych Litwinów,\
 (A wiadomość tę pono wzięli od rabinów)\
