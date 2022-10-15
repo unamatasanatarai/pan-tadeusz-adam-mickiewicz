@@ -1,3 +1,4 @@
+Pod godłem Orientis Fulmen, prawił wiele\
 O tym komecie. Także czytam o nim w dziele\
 Pod tytułem Janina, gdzie jest opisana\
 Cała wyprawa króla nieboszczyka Jana\
