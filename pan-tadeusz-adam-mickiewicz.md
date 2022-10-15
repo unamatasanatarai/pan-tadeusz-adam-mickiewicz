@@ -1,3 +1,4 @@
+Dobrze mi tak! Lecz straszną nauczona probą,\
 Wierz mi, iż więcej niż ty gardzę sama sobą!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Telimeno — Tadeusz rzekł — dalbóg nietwarde\
