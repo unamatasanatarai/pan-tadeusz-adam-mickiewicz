@@ -1,3 +1,4 @@
+Potem galop udając, powoli się kiwał)\
 A gdy w galop puścisz się, natenczas z czapraka\
 Blask bije, jakby złoto kapało z rumaka,\
 Bo tabenki są gęsto złotem nakrapiane,\
