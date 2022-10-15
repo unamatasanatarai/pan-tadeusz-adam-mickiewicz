@@ -1,3 +1,4 @@
+Wyszukanego cząstki najlepsze mięsiwa;\
 I praży się, aż ogień wszystkie z niej wyciśnie\
 Soki żywne, aż z brzegów naczynia war pryśnie\
 I powietrze dokoła zionie aromatem.
