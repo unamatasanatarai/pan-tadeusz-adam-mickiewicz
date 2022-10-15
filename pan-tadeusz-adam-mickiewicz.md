@@ -1,3 +1,4 @@
+Woźny niby jeść zaczął, jak człowiek roztropny,\
 Aż skradłszy się do okna, wpadł w ogród konopny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wprawdzie już wtenczas w Litwie nie było zwyczajem\
