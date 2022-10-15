@@ -1,3 +1,4 @@
+Nie odmówię!... Lecz o tym interesie całym\
 Z Hrabią, daj pokój: skrzywdził mnie, już zapozwałem;\
 Czyż wypada?»
 
