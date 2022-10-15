@@ -1,3 +1,4 @@
+Musi mnie deprekować, albo pojedynek!»\
 «Ale Sędzio, cóż będzie, jak się Jacek dowie?\
 Wszak on umrze z rozpaczy! Czyliż Soplicowie\
 Nie narobili jeszcze w tym zamku dość złego?\
