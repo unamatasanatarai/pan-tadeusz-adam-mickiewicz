@@ -1,3 +1,4 @@
+Umilkła, Tadeusza żółcią zarażona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nawet pan Podkomorzy nadzwyczaj ponury,\
 Nie miał ochoty gadać, widząc swoje córy,\
