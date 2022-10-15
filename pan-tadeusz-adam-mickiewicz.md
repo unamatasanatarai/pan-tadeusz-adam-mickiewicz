@@ -1,3 +1,4 @@
+Lud prosty, choć w publiczne nie mieszał się rady,\
 Zgadnął zaraz, że ogon ów jest wróżbą zdrady.\
 Słychać, że lud dał imię miotły tej komecie\
 I powiada, że ona milijon wymiecie».
