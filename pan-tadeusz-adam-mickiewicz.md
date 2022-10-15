@@ -1,3 +1,4 @@
+On mnie radą do usług publicznych sposobił,\
 Z opieki nie wypuścił, aż człowiekiem zrobił.\
 W mym domu wiecznie będzie jego pamięć droga,\
 Co dzień za duszę jego proszę Pana Boga.\
