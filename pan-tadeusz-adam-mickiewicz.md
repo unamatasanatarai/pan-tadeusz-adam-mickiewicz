@@ -1,3 +1,4 @@
+Była to trybunalska wokanda: tam rzędem\
 Stały spisane sprawy, które przed urzędem\
 Woźny sam głosem swoim przed laty wywołał,\
 Albo o których później dowiedzieć się zdołał.\
