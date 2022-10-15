@@ -1,3 +1,4 @@
+Sto młodzieńców, sto panien szło w taniec parami?
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pomniki nasze! ileż co rok was pożera\
 Kupiecka lub rządowa, moskiewska siekiera!\
