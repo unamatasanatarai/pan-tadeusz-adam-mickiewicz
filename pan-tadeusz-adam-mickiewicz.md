@@ -1,3 +1,4 @@
+I tak zakwitnie szczęście i Rzeczpospolita.\
 Nieprawdaż?» «Prawda — rzekli — jakby z książki czyta».\
 «Prawda — powtórzył Chrzciciel — krop a krop i kwita».\
 «Ja zawsze gotów golić» ozwał się Brzytewka;\
