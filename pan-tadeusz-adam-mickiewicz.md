@@ -1,3 +1,4 @@
+Klucznik zły, że go Ryków pytaniami dręczył,\
 Poważnie palec wielki ku ziemi naginał,\
 A potem machnął ręką, jak gdyby przecinał\
 Dalszą rozmowę i rzekł: «Klnę się Scyzorykiem,\
