@@ -1,3 +1,4 @@
+Czyż można tak otwarcie? cóż ludzie powiedzą?\
 Wszak to nieprzyzwoicie, to dalbóg jest grzechem».\
 «Grzechem! — odpowiedziała mu z gorzkim uśmiechem —\
 Niewiniątko! baranek! Ja, będąc kobiétą,\
