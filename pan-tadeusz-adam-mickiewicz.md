@@ -1,3 +1,4 @@
+Przyjmował zwyczaj, którym wszystko oddychało.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Krótkie były Sędziego z synowcem witania:\
 Dał mu poważnie rękę do pocałowania,\
