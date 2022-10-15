@@ -1,3 +1,4 @@
+Siedzieli przeciw sobie mrukliwi i gniewni.\
 Oba dobrze poszczuli, oba byli pewni\
 Zwycięstwa swoich chartów: gdy pośród równiny\
 Znalazł się zagon chłopskiej niezżętej jarzyny.\
