@@ -1,3 +1,4 @@
+Tworząc nutę żałośną tej sławnej piosenki:\
 *O żołnierzu, tułaczu, który borem, lasem*\
 *Idzie, z biedy i z głodu przymierając czasem,*\
 *Na koniec pada u nóg konika wiernego,*\
