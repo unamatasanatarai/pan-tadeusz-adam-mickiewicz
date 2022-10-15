@@ -1,3 +1,4 @@
+Psy tuż, i hec od lasu odsadzili kawał;\
 Sokół smyk naprzód; rączy pies, lecz zagorzalec,\
 Wysadził się przed Kusym, o tyle, o palec:\
 Wiedziałem, że spudłuje. Szarak, gracz nie lada,\
