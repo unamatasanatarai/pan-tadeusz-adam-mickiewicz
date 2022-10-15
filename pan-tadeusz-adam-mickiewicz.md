@@ -1,3 +1,4 @@
+Sędzia drzwi na klucz zamknął, z kimś tajnie rozmawia;\
 Tadeusz końca czeka, a ucha nadstawia.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Słyszy wewnątrz szlochanie. Nie trącając klamek,\
