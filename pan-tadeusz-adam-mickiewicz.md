@@ -1,3 +1,4 @@
+Bracie! wspominać nie chcę wypadku strasznego...\
 Wiesz także, że część gruntów od zamku dziedzica\
 Zabrała i Soplicom dała Targowica...\
 Jacek, za grzech żałując, musiał był ślubować\
