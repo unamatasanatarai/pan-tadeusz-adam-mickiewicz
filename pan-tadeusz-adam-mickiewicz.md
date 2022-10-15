@@ -1,3 +1,4 @@
+Z takimi odezwał się słowami do panny:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Zofijo, musisz to mnie koniecznie powiedzieć,\
 Nim zamienim pierścionki, muszę o tym wiedzieć.\
