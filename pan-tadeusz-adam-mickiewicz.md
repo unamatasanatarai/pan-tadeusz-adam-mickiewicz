@@ -1,3 +1,4 @@
+Muszą kryć się pod różną postacią i strojem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dobrze zrobił Protazy, że w drogę pośpieszył,\
 Bo niedługo by swoim pozwem się nacieszył:\
