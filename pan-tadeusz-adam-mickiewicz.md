@@ -1,3 +1,4 @@
+Sędzia, kiedy już gości jak trzeba ustawił,\
 Żegnając po łacinie, stół pobłogosławił.\
 Mężczyznom dano wódkę; za czym wszyscy siedli,\
 I chłodnik zabielany milcząc żwawo jedli.
