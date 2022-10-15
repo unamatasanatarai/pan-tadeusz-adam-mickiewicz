@@ -1,3 +1,4 @@
+Wy dobrzy do wypitki, dobrzy do wybitki,\
 Ale przestańcie robić nad jegrami zbytki».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Podkomorzy, słysząc to, karabelę wznasza\
