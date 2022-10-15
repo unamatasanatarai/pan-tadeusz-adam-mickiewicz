@@ -1,3 +1,4 @@
+Pomarli, nie wyjrzawszy za lasu granice,\
 Który innych na niebie nie rozumiał krzyków\
 Prócz wichrów, a na ziemi prócz bestyi ryków,\
 Gości innych nie widział oprócz spółleśników, —\
