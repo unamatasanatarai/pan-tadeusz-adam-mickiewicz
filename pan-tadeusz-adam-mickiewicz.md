@@ -1,3 +1,4 @@
+Trzeba było...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Tu znowu brakło mu oddechu.\
 «Bóg widzi — rzecze Klucznik — szczerze trafić chciałem!\
