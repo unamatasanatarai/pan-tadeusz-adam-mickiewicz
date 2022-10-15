@@ -1,3 +1,4 @@
+Robak, ku piersiom chłopca przycisnąwszy skronie\
 I na głowie mu na krzyż położywszy dłonie,\
 Spojrzał ku niebu i rzekł: «Synu! z Panem Bogiem!»\
 I zapłakał... A już był Tadeusz za progiem.\
