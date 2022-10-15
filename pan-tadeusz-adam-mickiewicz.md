@@ -1,3 +1,4 @@
+Te persony, których tu widzicie bez liku,\
 Przedstawiają polskiego historię sejmiku,\
 Narady, wotowanie, tryumfy i waśnie;\
 Sam tę scenę odgadłem i państwu objaśnię.
