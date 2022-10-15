@@ -1,3 +1,4 @@
+Lecz Sędzia wielu rzeczy zgoła nie rozumiał.\
 Oba pilnie słuchali pochyliwszy głowy,\
 A Jacek mówił coraz wolniejszymi słowy\
 I często zarywał się:
