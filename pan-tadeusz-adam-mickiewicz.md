@@ -1,3 +1,4 @@
+A potem się zaczęły wpół głośne rozmowy;\
 Mężczyźni rozsądzali swe dzisiejsze łowy.\
 Asesora z Rejentem wzmogła się uparta\
 Coraz głośniejsza kłótnia o kusego charta,\
