@@ -1,3 +1,4 @@
+I gdy mu kłaniano się, nos w górę zadzierał,\
 A za odpowiedź, na znak gniewnego humoru\
 Wypuścił z ust kłąb dymu i poszedł do dworu.
 
