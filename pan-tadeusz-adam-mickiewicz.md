@@ -1,3 +1,4 @@
+Ci jak znawcy, ci znowu jak naoczne świadki.\
 Sędzia na drugim końcu do nowej sąsiadki\
 Rzekł półgłosem: «Przepraszam, musieliśmy siadać,\
 Nie podobna wieczerzy na później odkładać:\
