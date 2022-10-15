@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Prawda, że jegry byli mocnym trunkiem pjani,\
 Źle mierzą i chybiają, rzadko który rani,\
 Ledwie który zabije: przecież dwóch Maciejów\
 Już zraniono i poległ jeden z Bartłomiejów.\
