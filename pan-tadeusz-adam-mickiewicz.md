@@ -1,3 +1,4 @@
+Gerwazy; poznano go po wzroście, po licach,\
 Po srebrzystych na żółtej kurcie Półkozicach.\
 Stąpał jako słup prosto, niemy i surowy,\
 Nie zdjąwszy czapki, nawet nie schyliwszy głowy;\
