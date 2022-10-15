@@ -1,3 +1,4 @@
+Krzyczy: «Sędzio! poddaj się, bo dwór spalić każę!»\
 «Pal — woła Sędzia — ja cię w tym ogniu usmażę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;O dworze Soplicowski! Jeśli dotąd całe\
