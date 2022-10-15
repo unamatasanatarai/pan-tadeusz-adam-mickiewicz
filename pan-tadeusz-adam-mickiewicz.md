@@ -1,3 +1,4 @@
+Jak nie wierzono w Wilnie ubogiej kobiécie,\
 Która stojąc na świętej Ostrej Bramy szczycie,\
 Widziała, jako Dejów, moskiewski jenerał,\
 Wchodząc z pułkiem kozaków, już bramę otwierał,\
