@@ -1,3 +1,4 @@
+Zresztą ubiór ten samy, w jakim dziś w kaplicy\
 Składała snop wiosenny dla Boga Rodzicy.\
 Użęła znów dla gości nowy snopek ziela;\
 Jedną ręką zeń kwiaty i trawy rozdziela,\
