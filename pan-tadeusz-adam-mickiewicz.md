@@ -1,3 +1,4 @@
+Jak gdyby na komendę razem wystrzelili.\
 Niedźwiedź wyskoczył w górę jak kot przed chartami\
 I głową na dół runął, i czterma łapami\
 Przewróciwszy się młyńcem, cielska krwawe brzemię\
