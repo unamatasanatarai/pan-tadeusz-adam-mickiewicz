@@ -1,3 +1,4 @@
+Tadeusza, i dalszej lękając się zmiany,\
 I chcąc przy nim pozostać, zakończyła tany.\
 Idzie do stołu gościom nalewać kielichy.
 
