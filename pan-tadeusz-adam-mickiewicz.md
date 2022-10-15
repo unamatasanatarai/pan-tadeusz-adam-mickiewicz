@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Wszystkich was — kończył Klucznik — biorę tu na świadki,\
 Czy Robak nie powiadał, że wprzód nim przyjmiecie\
 W dom wasz Napoleona, trzeba wymieść śmiecie?\
 Słyszeliście to wszyscy: a czy rozumiecie?\
