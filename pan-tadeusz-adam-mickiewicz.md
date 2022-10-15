@@ -1,3 +1,4 @@
+Kiedy się człowiek uczy ważyć, jak przystało,\
 Drugich wiek, urodzenie, cnoty, obyczaje,\
 Wtenczas i swoją ważność zarazem poznaje:\
 Jak na szalach, żebyśmy nasz ciężar poznali,\
