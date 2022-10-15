@@ -1,3 +1,4 @@
+Gdzie tylko pozostali z mnogich łowczych szyków\
 Wojski, Tadeusz, Hrabia, z kilką obławników.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu las był rzadszy. Słychać z głębi ryk, trzask łomu;\
