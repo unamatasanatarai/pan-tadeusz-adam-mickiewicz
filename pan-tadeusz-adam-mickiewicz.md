@@ -1,3 +1,4 @@
+Drugą swój sierp błyszczący poprawia na głowie.\
 Brali ziółka, całując jej ręce, wodzowie;\
 Zosia znowu dygała w kolej zapłoniona.
 
