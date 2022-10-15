@@ -1,3 +1,4 @@
+Pan zaspał». Skoczył z łóżka i obu rękami\
 Pchnął okienicę, że aż trzasła zawiasami\
 I rozwarłszy się w obie uderzyła ściany;\
 Wyskoczył, patrzył wkoło zdumiony, zmieszany,\
