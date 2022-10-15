@@ -1,3 +1,4 @@
+Ci biorą się do szabel, tamci poszli w nogi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jeden między kupkami szlachcic cichy stoi.\
 Widać, że człek bezstronny; waha się i boi;\
