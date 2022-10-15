@@ -1,3 +1,4 @@
+W drugiej izbie toczyła młodzież rzecz o łowach\
 W spokojniejszych i cichszych niż zwykle rozmowach:\
 Bo Asesor i Rejent, oba mówcy wielcy,\
 Pierwsi znawcy myślistwa i najlepsi strzelcy,\
