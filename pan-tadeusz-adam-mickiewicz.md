@@ -1,3 +1,4 @@
+I obiegłszy dziedziniec zawrócił przed ganek.\
 Wysiadł z powozu; konie porzucone same,\
 Szczypiąc trawę ciągnęły powoli pod bramę.\
 We dworze pusto: bo drzwi od ganku zamknięto\
