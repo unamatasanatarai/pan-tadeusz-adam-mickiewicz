@@ -1,3 +1,4 @@
+Aśćka ma prawo; smutno: gniewać się nie godzi.\
 Radziłem, bo brat kazał; nikt tu nie przymusza.\
 Gdy aśćka rekuzuje pana Tadeusza,\
 Odpisuję Jackowi, że nie z mojej winy\
