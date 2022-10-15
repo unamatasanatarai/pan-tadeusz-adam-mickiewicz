@@ -1,3 +1,4 @@
+Które pomnim widziane we śnie lat niewinnych.\
 Twarzyczka schyliła się — ujrzał, drżąc z bojaźni\
 I radości, niestety! ujrzał najwyraźniej,\
 Przypomniał, poznał włos ów krótki, jasnozłoty,\
