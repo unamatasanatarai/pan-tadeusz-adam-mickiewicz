@@ -1,3 +1,4 @@
+Wydaję wreszcie wyrok: obaście wygrali.\
 Wracam fanty, niech każdy przy swoim zostanie,\
 A wy podpiszcie zgodę». Na starca wezwanie\
 Szczwacze zwrócili na się rozjaśnione lice\
