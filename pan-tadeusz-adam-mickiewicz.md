@@ -1,3 +1,4 @@
+Asesor li, czy Jankiel? Różnie słychać o tem,\
 Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już też i słońce wschodzi, krwawo się czerwieni;\
