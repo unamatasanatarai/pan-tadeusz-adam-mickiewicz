@@ -1,3 +1,4 @@
+Com zrobił, tom wyczytał z tej tu oto księgi.\
 Pytasz, czy wszędzie w Litwie ten się zwyczaj chowa?\
 Niestety! już i do nas włazi moda nowa.\
 Niejeden panicz krzyczy, że nie cierpi zbytków:\
