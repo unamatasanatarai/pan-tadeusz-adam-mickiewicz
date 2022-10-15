@@ -1,3 +1,4 @@
+Już rzeź zagraża ptastwu. Czujne gęsi stado,\
 Co niegdyś ocaliło Rzym przed Galów zdradą,\
 Darmo gęga o pomoc; zamiast Manlijusza,\
 Wpada w kotuch Konewka, jedne ptaki zdusza,\
