@@ -1,3 +1,4 @@
+I kołysząc Horeszków pokolenie trzecie,\
 Wprawiać do Scyzoryka pani mojej dziecię,\
 Jeśli syn — a syn będzie: bo wojny nadchodzą,\
 A w czasie wojny zawżdy synowie się rodzą».
