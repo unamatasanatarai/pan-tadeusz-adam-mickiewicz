@@ -1,3 +1,4 @@
+Podkomorzy najwyższe brał miejsce za stołem:\
 Z wieku mu i z urzędu ten zaszczyt należy,\
 Idąc kłaniał się starcom, damom i młodzieży;\
 Obok stał kwestarz; Sędzia tuż przy bernardynie.\
