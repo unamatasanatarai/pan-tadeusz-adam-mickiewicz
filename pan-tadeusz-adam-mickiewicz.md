@@ -1,3 +1,4 @@
+Kawaler trzech krzyżyków i czterech medalów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem koło kłodek lewe szlachty skrzydło\
 Już jest bliskie zwycięstwa. Tam walczył Kropidło\
