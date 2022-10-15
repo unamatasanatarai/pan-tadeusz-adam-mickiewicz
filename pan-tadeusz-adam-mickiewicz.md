@@ -1,3 +1,4 @@
+Dziwaki stare, dawno ze słońcem w niezgodzie,\
 Południe wskazywały często o zachodzie.\
 Gerwazy nie przybrał się machiny naprawić,\
 Ale bez nakręcenia nie chciał jej zostawić:\
