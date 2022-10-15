@@ -1,3 +1,4 @@
+Głupi, tobieć to lepiej, tyś chłopie przywyknął,\
 Jak węgorz do odarcia: lecz nam *urodzonym*,\
 Nam wielmożnym, do złotych swobód wzwyczajonym!\
 Ach, bracia! wszak to dawniej szlachcic na zagrodzie...\
