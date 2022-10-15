@@ -1,3 +1,4 @@
+Koło Hrabiego głowy. Strwożone kobiety\
 W prośby, w płacz; Telimena, krzyknąwszy: «Niestety!»\
 Wzniosła oczy, powstała, i padła zemdlona,\
 I przechyliwszy szyję przez Hrabi ramiona,\
