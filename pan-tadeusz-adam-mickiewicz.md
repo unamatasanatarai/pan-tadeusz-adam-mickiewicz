@@ -1,3 +1,4 @@
+Którą brał za pęk strusich piór w ręku dziewicy.\
 Nie zapomniał naczynia: złocista konewka,\
 Ów rożek Amaltei, była to marchewka!\
 Widział ją w ustach dziecka pożeraną chciwie:\
