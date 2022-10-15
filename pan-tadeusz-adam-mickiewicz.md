@@ -1,3 +1,4 @@
+Jegry nie mogą strzelać; już walczą wręcz z bliska,\
 Już stal ząb za ząb o stal porwawszy się pryska,\
 Bagnet o szablę, kosa o gifes się łamie,\
 Pięść spotyka się z pięścią i z ramieniem ramię.
