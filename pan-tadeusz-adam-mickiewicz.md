@@ -1,3 +1,4 @@
+A był to taki piękny gołąbek łagodny\
 I wzrok miała uprzejmy taki! tak pogodny!\
 Taki anielski, że już nie wiem, już nie miałem\
 Odwagi zagniewać jej, zatrwożyć — milczałem.\
