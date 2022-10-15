@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;I przyjaciele wtenczas pomogli rozmowie.\
 I do pieśni rzucali mi słowo po słowie:\
 Jak bajeczne żurawie, na dzikim ostrowie,\
 Nad zaklętym pałacem przelatując wiosną,\
