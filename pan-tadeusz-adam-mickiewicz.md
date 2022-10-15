@@ -1,3 +1,4 @@
+Odezwał się dzwon dworski i zaraz śród lasu\
 Cichego pełno było krzyku i hałasu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia, kiwnąwszy głową, rzekł poważnym tonem:\
