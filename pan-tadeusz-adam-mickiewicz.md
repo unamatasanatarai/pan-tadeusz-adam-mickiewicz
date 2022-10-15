@@ -1,3 +1,4 @@
+To jest mój zwyczaj, nie zaś nieuszanowanie:\
 »mopanku« powiadali wszyscy Horeszkowie,\
 Ostatni Stolnik, pan mój, miał takie przysłowie...\
 Czyż to prawda, mopanku, że pan grosza skąpisz\
