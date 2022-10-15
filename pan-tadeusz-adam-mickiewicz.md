@@ -1,3 +1,4 @@
+Jako kuchmistrz białym się fartuchem opasał,\
 Wdział szlafmycę, a ręce do łokciów zakasał;\
 W ręku ma plackę muszą, owad lada jaki\
 Opędza, wpadający chciwie na przysmaki;\
