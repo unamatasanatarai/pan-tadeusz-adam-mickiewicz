@@ -1,3 +1,4 @@
+Tak długo czekać! nawet tak rzadka nowina —\
 Ojcze Robaku (ciszej rzekł do bernardyna),\
 Słyszałem, żeś zza Niemna odebrał wiadomość;\
 Może też co o naszym wojsku wie Jegomość?»\
