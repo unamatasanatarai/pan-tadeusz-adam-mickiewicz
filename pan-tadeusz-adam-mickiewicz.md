@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;We dwóch izbach dwa różne skupiły się grona:\
 Starszyzna przy stoliku małym zgromadzona\
 Mówiła o sposobach nowych gospodarskich,\
