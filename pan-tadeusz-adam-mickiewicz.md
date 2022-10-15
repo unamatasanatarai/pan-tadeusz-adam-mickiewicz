@@ -1,3 +1,4 @@
+Nieraz, pędząc za lisem albo za szarakiem,\
 Nagle stawał i w niebo poglądał żałośnie,\
 Jak kot, gdy ujrzy wróble na wysokiej sośnie;\
 Często bez psa, bez strzelby, błąkał się po gaju\
