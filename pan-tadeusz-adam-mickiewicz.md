@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Maciej ogrzał się słońcem, zakończył pacierze,\
 I już się do swojego gospodarstwa bierze.\
 Wyniósł traw, liścia; usiadł przed domem i świsnął:\
