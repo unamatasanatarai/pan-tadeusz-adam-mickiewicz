@@ -1,3 +1,4 @@
+Nabrawszy ciepła w izbie powoli topnieją,\
 Już trawy pożółkniały, liścia czerwienieją,\
 Sypią się: rzekłbyś, iż wiatr jesienny powiewa;\
 Na koniec owe chwilą przedtem strojne drzewa,\
