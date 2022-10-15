@@ -1,3 +1,4 @@
+A niżej dziatwa leśna: głóg w objęciu kalin,\
 Ożyna czarne usta tuląca do malin.\
 Drzewa i krzewy liśćmi wzięły się za ręce,\
 Jak do tańca stające panny i młodzieńce\
