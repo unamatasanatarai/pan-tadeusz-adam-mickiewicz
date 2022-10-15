@@ -1,3 +1,4 @@
+I po desce opartej o ścianę komnaty...\
 Nim spostrzegł się, wleciała przez okno, świecąca,\
 Nagła, cicha i lekka, jak światłość miesiąca.\
 Nucąc chwyciła suknie, biegła do zwierciadła:\
