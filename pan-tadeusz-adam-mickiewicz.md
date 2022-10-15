@@ -1,3 +1,4 @@
+Każę przynieść kozice, basetlę, dwie skrzypiec,\
 A pan Maciek Dobrodziej lubi stary lipiec\
 I nowego mazurka: mam nowe mazurki,\
 A wyuczyłem śpiewać fein moje bachurki».
