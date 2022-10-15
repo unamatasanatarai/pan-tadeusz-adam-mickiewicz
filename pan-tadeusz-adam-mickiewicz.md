@@ -1,3 +1,4 @@
+Że już jesteś dorosła: sam nie wie, co plecie,\
 Dziaduś, nigdy na wielkim niebywały świecie.\
 Ja wiem lepiej, jak długo trzeba się sposobić\
 Panience, by wyszedłszy na świat efekt zrobić.\
