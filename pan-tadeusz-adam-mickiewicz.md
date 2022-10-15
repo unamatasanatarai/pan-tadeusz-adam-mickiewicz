@@ -1,3 +1,4 @@
+Czas może mnie uleczy; wyjadę — na długo».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Tadeuszku — stryj przerwał — to mi dziwny sposób\
 Kochania się: uciekać od kochanych osób!\
