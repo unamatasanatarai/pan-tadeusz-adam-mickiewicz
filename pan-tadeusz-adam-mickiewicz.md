@@ -1,3 +1,4 @@
+Lub wady, tak mężczyźni jako i kobiety.\
 Mężczyznom czasem kilka dawano przydomków,\
 Na znak pogardy albo szacunku spółziomków;\
 Czasem jedenże szlachcic inaczej w Dobrzynie,\
