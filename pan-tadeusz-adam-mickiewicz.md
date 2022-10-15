@@ -1,3 +1,4 @@
+A drudzy, w głos śmiejąc się, krzyczeli: *dziewczyny*.\
 Rejent szepnął: *kobiety*, Asesor: *kokiety*,\
 Utkwiwszy w Telimenie oczy jak sztylety.
 
