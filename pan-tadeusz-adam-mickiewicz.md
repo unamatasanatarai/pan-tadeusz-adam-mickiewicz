@@ -1,3 +1,4 @@
+Wskazywał palcem miejsca i drogę ich jazdy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dziś mało go słuchano, nie zważano wcale\
 Na *Sito*, ni na *Smoka*, ani też na *Szale*.\
