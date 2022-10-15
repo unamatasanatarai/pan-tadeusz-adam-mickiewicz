@@ -1,3 +1,4 @@
+Biegł jak po łące, a znał tylko kwiecie\
 Miłe i piękne, jadowite rzucił,\
 Ku pożytecznym oka nie odwrócił.
 
