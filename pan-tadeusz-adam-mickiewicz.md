@@ -1,3 +1,4 @@
+Wy, koło których niegdyś pełzałem jak dziecię;\
 Czy żyje wielki Baublis, w którego ogromie\
 Wiekami wydrążonym, jakby w dobrym domie,\
 Dwunastu ludzi mogło wieczerzać za stołem?\
