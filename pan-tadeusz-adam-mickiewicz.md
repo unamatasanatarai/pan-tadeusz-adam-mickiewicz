@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ale Zosia ciekawa z głębiny alkowy\
 Śledziła przez szczelinę tajemne rozmowy;\
 Słyszała, jak Tadeusz po prostu i śmiało\
 Opowiedział swą miłość — serce w niej zadrżało —\
