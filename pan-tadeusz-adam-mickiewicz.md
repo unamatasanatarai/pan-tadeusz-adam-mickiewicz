@@ -1,3 +1,4 @@
+Ja śmiałem się, udając że drwiłem z magnatów\
 I z córek ich, i nie dbam o arystokratów;\
 Że jeśli bywam u nich, z przyjaźni to robię,\
 A za żonę nie pojmę, tylko równą sobie.\
