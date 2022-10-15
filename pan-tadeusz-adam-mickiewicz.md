@@ -1,3 +1,4 @@
+Nie puści ona na wiatr żadnego ładunku.\
 Od książęcia Sanguszki mam ją w podarunku».\
 Tu pokazywał strzelbę przedziwnej roboty,\
 Choć maleńką, i zaczął wyliczać jej cnoty.\
