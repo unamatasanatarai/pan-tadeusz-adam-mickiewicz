@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Właśnie już noc schodziła i przez niebo mleczne,\
 Różowe, biegą pierwsze promyki słoneczne.\
 Wpadły przez szyby jako strzały brylantowe,\
 Odbiły się na łożu o chorego głowę\
