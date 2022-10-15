@@ -1,3 +1,4 @@
+Wojski, ażeby ogień tym łacniej rozpalać,\
 Rozkazał stopionego masła na drwa nalać\
 (Zbytek ten dozwolony jest w dostatnim domu).\
 Kuchciki sypią w ogień suche pęki łomu;\
