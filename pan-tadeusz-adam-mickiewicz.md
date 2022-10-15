@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Konie, ludzie, armaty, orły, dniem i nocą\
 Płyną; na niebie gorą tu i ówdzie łuny,\
 Ziemia drży, słychać, biją stronami pioruny. —
 
