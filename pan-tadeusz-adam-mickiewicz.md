@@ -1,3 +1,4 @@
+Sypnęła razem ptastwu ostatek łakoci,\
 A sama kręcąc sito, jako tanecznica\
 Bębenek, i w takt bijąc, swawolna dziewica\
 Jęła skakać przez pawie, gołębie i kury:\
