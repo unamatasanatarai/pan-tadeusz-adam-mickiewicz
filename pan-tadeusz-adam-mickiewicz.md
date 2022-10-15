@@ -1,3 +1,4 @@
+Ilekroć nań spojrzałem, zawsze ma nieboga\
 Stawała przed oczyma: i tak z łaski Boga,\
 Dotąd mej narzeczonej dochowałem wiary,\
 I nie bywszy małżonkiem, jestem wdowiec stary,\
