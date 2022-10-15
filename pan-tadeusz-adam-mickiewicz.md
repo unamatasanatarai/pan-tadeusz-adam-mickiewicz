@@ -1,3 +1,4 @@
+Jak wracająca w drzewo rodzime dryjada.\
 Znowu cicho.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Wtem, gałąź wstrząsła się trącona,\
