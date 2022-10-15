@@ -1,3 +1,4 @@
+I na krzyżu zabójcom swoim błogosławił,\
 I przyjął prośbę łotra: byś się udobruchał\
 I to, co mam powiedzieć, cierpliwie wysłuchał.\
 Sam przyznałem się: muszę dla ulgi sumienia\
