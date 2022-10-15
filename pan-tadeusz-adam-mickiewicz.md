@@ -1,3 +1,4 @@
+Krzyk dalekich myśliwców wiatrami przygnany,\
 Odbijał się kilkakroć o zamkowe ściany:\
 Przysiągłbyś, że krzyk z zamku, że pod mgły zasłoną\
 Mury odbudowano i znów zaludniono.
