@@ -1,3 +1,4 @@
+(Woń napełniła izbę) włos namaszcza gumą.\
 Zosia kładnie pończoszki białe, ażurowe,\
 I trzewiki warszawskie białe, atłasowe.\
 Tymczasem pokojowa sznurowała stanik,\
