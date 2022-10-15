@@ -1,3 +1,4 @@
+Wysłuchawszy rogowej arcydzieło sztuki,\
 Powtarzały je dęby dębom, bukom buki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dmie znowu. Jakby w rogu były setne rogi,\
