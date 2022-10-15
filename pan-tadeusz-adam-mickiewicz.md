@@ -1,3 +1,4 @@
+I to, co mam powiedzieć, cierpliwie wysłuchał.\
 Sam przyznałem się: muszę dla ulgi sumienia\
 Pozyskać, a przynajmniej prosić przebaczenia:\
 Posłuchaj mej spowiedzi; potem zrobisz sobie\
