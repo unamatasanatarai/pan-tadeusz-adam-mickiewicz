@@ -1,3 +1,4 @@
+Zrobił na kurnik, kędy Zosi gospodarstwo\
 Zniszczył, nie zostawiwszy sztuki na lekarstwo,\
 Jeszcze nie mogło ptastwem zakwitnąć na nowo\
 Sławne niegdyś ze drobiu swego Soplicowo.\
