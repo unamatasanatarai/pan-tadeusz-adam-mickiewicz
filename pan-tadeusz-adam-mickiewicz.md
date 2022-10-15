@@ -1,3 +1,4 @@
+Lecz nikt pewnie nie wiedział ni wtenczas, ni potem.\
 Daremnie pytaniami Klucznika dręczono;\
 Nic nie wyrzekł, prócz tych słów: pro publico bono.\
 Wojski był w tajemnicy, lecz słowem ujęty\
