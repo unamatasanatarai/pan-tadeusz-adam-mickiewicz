@@ -1,3 +1,4 @@
+Zosia, wpadła ci w oko i na nią zdradziecko\
 Dybiesz? Zaledwieś jedną nieszczęsną oszukał,\
 A jużeś pod jej okiem nowych ofiar szukał!\
 Uciekaj, lecz cię moje dosięgną przekleństwa —\
