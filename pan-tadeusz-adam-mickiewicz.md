@@ -1,3 +1,4 @@
+Właśnie wstrząsnął ostatnią; woźni ręce wznoszą\
 I imię obranego urzędnika głoszą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jeden szlachcic na zgodę powszechną nie zważa.\
