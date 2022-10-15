@@ -1,3 +1,4 @@
+Na strzechy i przez szpary w stodołę się wkradło;\
 I po ciemnozielonym, świeżym, wonnym sianie,\
 Z którego młodzież sobie zrobiła posłanie,\
 Rozpływały się złote, migające pręgi\
