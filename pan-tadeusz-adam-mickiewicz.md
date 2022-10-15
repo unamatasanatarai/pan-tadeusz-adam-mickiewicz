@@ -1,3 +1,4 @@
+Jej ubiór zwrócił oczy; wszyscy ją witali,\
 Prócz Tadeusza widać, że ją wszyscy znali.\
 Kibić miała wysmukłą, kształtną, pierś powabną,\
 Suknię materyjalną, różową, jedwabną,\
