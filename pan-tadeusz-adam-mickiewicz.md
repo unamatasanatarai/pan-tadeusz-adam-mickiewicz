@@ -1,3 +1,4 @@
+Mam w drugiej kompaniji wąsate straszydło,\
 Wachmistrza Dobrzyńskiego, co się zwie Kropidło,\
 A Mazury zowią go litewskim niedźwiedziem.\
 Jeśli Jenerał każe, to go tu przywiedziem».\
