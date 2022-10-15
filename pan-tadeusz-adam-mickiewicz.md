@@ -1,3 +1,4 @@
+Jak ziemianka?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    A na to Zosia rzekła skromnie:\
 «Jestem kobietą, rządy nie należą do mnie,\
