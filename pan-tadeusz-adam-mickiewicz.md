@@ -1,3 +1,4 @@
+I że w ustach Wojskiego to grubiał, to cieniał,\
 Udając głosy zwierząt: to raz w wilczą szyję\
 Przeciągając się, długo, przeraźliwie wyje;\
 Znowu jakby w niedźwiedzie rozwarłszy się gardło,\
