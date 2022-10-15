@@ -1,3 +1,4 @@
+Objął go za kolana i ze łzami jęczał;\
 Za każdym zwrotem miecza: «Pięknie! jenerale,\
 Czyś był konfederatem? pięknie, doskonale!\
 To sztych Puławskich! tak się Dzierżanowski składał.\
