@@ -1,3 +1,4 @@
+Blask latarek i wniście kilkudziesiąt ludzi,\
 Którzy wpadli na szlachtę jak pająki ścienne,\
 Nazwane *kosarzami*, na muchy wpółsenne:\
 Zaledwie która bzyknie, już długimi nogi\
