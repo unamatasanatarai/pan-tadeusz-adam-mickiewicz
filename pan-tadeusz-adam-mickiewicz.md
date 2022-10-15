@@ -1,3 +1,4 @@
+Krup jęczmiennych. To ziarno godne pańskich stołów,\
 Robi się dla zaprawy litewskich rosołów;\
 Zosia je wykradając z szafy ochmistrzyni\
 Dla swego drobiu, szkodę w gospodarstwie czyni.
