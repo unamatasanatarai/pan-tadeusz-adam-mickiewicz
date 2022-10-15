@@ -1,3 +1,4 @@
+Podoba?» — «Czy podoba? to na wierzbie gruszka!\
 Podoba, nie podoba: a to mi rzecz ważna!\
 Zosia nie będzie, prawda, partyja posażna;\
 Ale też nie jest z lada wsi, lada szlachcianka,\
