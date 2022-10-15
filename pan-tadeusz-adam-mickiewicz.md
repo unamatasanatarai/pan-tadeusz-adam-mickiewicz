@@ -1,3 +1,4 @@
+I ręką potakując, mocno się zapłonił.)
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena kończyła: «Byłam jej piastunką,\
 Jestem krewną, jedyną Zosi opiekunką.\
