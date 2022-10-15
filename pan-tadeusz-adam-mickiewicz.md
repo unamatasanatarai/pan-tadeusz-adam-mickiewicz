@@ -1,3 +1,4 @@
+Przemyślają, jak by rzecz zakończyć bez sądu,\
 A co jeszcze ważniejsza, bez mieszań się rządu.\
 Więc do majora Płuta rzekł kapitan Ryków:
 
