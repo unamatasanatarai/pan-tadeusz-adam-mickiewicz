@@ -1,3 +1,4 @@
+Bieży, staje, przysiada coraz, wznosi kitę\
 I wiatr nią jak wachlarzem ku swym nozdrzom tuli,\
 Pyta wiatru, czy strzelcy jadła nie zatruli:\
 Protazy zeszedł z drogi i wzdłuż sianożęci\
