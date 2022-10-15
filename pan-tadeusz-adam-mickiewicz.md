@@ -1,3 +1,4 @@
+Jak czapla wszystkie ryby chcąca pozrzeć okiem:\
 Takie były Hrabiego dziwne obyczaje.\
 Wszyscy mówili, że mu czegoś nie dostaje;\
 Szanowano go przecież, bo pan z prapradziadów,\
