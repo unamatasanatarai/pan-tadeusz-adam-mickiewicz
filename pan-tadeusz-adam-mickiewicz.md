@@ -1,3 +1,4 @@
+Lud ich otacza, patrzy, ledwie oczom wierzy,\
 Oglądając rodaków mundury noszących,\
 Zbrojnych, wolnych i polskim językiem mówiących.
 
