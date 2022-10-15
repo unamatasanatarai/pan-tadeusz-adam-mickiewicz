@@ -1,3 +1,4 @@
+Który stopą nadtrąci lub dostrzeże okiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Hrabia zachwycony tak cudnym widokiem\
 Stał cicho. Słysząc tętent towarzyszów w dali,\
