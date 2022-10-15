@@ -1,3 +1,4 @@
+Psiarnia z tryumfującym rzuca się hałasem\
 I skubie go po kudłach; zwierz zwraca się czasem,\
 Spojrzy, klapnie paszczęką i białych kłów zgrzytem\
 Ledwie pogrozi; psiarnia pierzcha ze skowytem:\
