@@ -1,3 +1,4 @@
+Półkozicem przezwała starego szlachcica.\
 Czasem też od przysłowia, które bez ustanku\
 Powtarzał, nazywano go także Mopanku;\
 Czasem Szczerbcem, że całą łysinę miał w szczerbach;\
