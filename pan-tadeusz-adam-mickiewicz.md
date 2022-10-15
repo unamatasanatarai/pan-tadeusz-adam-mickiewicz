@@ -1,3 +1,4 @@
+Potem przysiadł się, jak mógł najbliżej, do Zosi,\
 Nalewa jej do szklanki, talerze przynosi,\
 Prawi tysiąc grzeczności, kłania się, uśmiécha,\
 Czasem oczy wywraca i głęboko wzdycha.\
