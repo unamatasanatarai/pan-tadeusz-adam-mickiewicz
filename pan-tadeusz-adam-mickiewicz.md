@@ -1,3 +1,4 @@
+Raczył mu dać za dawne czyny bohaterskie\
 Legiji honorowej znaki kawalerskie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Owoż te wszystkie rzeczy mając na uwadze,\
