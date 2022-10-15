@@ -1,3 +1,4 @@
+Tymczasem pod słup kazał wetknąć dwie podpory.\
 Tak pokrzepiona ale nietrwała budowa\
 Wyglądała za parkan nad trójkąt Rykowa.
 
