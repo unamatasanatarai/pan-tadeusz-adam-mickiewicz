@@ -1,3 +1,4 @@
+Biegł ku łąkom, gdzie stawy błyszczały się w dole,\
 I stanął nad błotnistym; w zielonawe tonie\
 Łakomy wzrok utopił i błotniste wonie\
 Z rozkoszą ciągnął piersią, i otworzył usta\
