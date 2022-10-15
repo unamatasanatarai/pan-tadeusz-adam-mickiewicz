@@ -1,3 +1,4 @@
+Odwrócił się, i spuścił ostrze płytkiej stali\
 Między głowę Chrzciciela i ręce Moskali.\
 Cofnęli się, wydawszy przeraźliwe głosy;\
 Lecz jedna ręka, mocniej wplątana we włosy,\
