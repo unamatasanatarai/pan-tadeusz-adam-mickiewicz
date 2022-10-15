@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Strzelcy stali i każdy ze strzelbą gotową\
 Wygiął się jak łuk naprzód z wciśnioną w las głową.\
 Nie mogą dłużej czekać! Już ze stanowiska\
