@@ -1,3 +1,4 @@
+Długo z księżmi Krzyżaki, aż wygrał Jagiełło;\
 Stąd na koniec pendebat długo przed aktami\
 Sławny ów proces Rymszów z dominikanami,\
 Aż wygrał wreszcie syndyk klasztorny ksiądz Dymsza,\
