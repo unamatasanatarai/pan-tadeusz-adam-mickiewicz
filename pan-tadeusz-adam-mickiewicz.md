@@ -1,3 +1,4 @@
+I mniej sławny w piosenkach, za to najsmaczniejszy,\
 Czy świeży, czy solony, czy jesiennej pory,\
 Czy zimą. Ale Wojski zbierał *muchomory*.
 
