@@ -1,3 +1,4 @@
+Patrz, i Kniaziewiczowi już się włos poszarzał:\
 A ty jeszcze z młodymi mógłbyś pójść w zapasy,\
 I Rózga twoja kwitnie pono jak przed czasy;\
 Słyszałem, żeś niedawno Moskalów oćwiczył.\
