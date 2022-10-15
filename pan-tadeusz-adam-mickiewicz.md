@@ -1,3 +1,4 @@
+Płut znowu Telimenę do tańca zachęcał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Słowo majorskie, panno: nie Rosyjaninem\
 Jestem, jeżeli kłamię; chcę być sukinsynem,\
