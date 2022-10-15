@@ -1,3 +1,4 @@
+Z których się rozrastają na świat ich plemiona;\
 W niej, jak w arce Noego, z wszelkich zwierząt rodu\
 Jedna przynajmniej para chowa się dla płodu.\
 W samym środku (jak słychać) mają swoje dwory\
