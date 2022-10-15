@@ -1,3 +1,4 @@
+Pełźnie, bo na przemiany srebrzy się i złoci,\
 Aż nagle zniknie z oczu we mchu lub paproci:\
 Tak strumień kręcący się chował się w olszynach,\
 Które na widnokręgu czerniały kończynach,\
