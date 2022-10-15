@@ -1,3 +1,4 @@
+Pewnie tu probowano hartu zygmuntówek,\
 Którymi można śmiało ćwieki obciąć z główek,\
 Lub hak przerżnąć, w brzeszczocie nie zrobiwszy szczerby.\
 Nade drzwiami, Dobrzyńskich widne były herby;\
