@@ -1,3 +1,4 @@
+Dżokejów z Hrabią zamknąć pod strażą na sali,\
 Szlachtę wieść na dwór, kędy stała druga rota.\
 Nadaremnie Kropiciel dąsa się i miota.
 
