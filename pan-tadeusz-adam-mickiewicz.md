@@ -1,3 +1,4 @@
+Ja nie pozwolę. Zgoda, że na pistolety;\
 Lecz strzelać się nie z dalszej ani z bliższej mety,\
 Jak przez skórę niedźwiedzią. Ja rękami memi\
 Jako sekundant skórę rozciągnę na ziemi,\
