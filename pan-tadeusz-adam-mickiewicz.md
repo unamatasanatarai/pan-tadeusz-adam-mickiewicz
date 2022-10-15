@@ -1,3 +1,4 @@
+W każdej okoliczności do miejsca i czasu.\
 Dlatego, nim ruszyli za Sędzią do lasu,\
 Wzięli postawy tudzież ubiory odmienne,\
 Służące do przechadzki opończe płócienne,\
