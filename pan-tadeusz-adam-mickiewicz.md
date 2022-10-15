@@ -1,3 +1,4 @@
+Odgłos nie smutny wcale ani pogrzebowy,\
 Jak się Hrabiemu zdało: owszem, obiadowy.\
 Dzwon ten, w każde południe krzyczący z poddasza,\
 Gości i czeladź domu na obiad zaprasza:\
