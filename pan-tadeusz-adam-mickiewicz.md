@@ -1,3 +1,4 @@
+Znajdował projekt dobrym, lecz chciał przeinaczyć,\
 Dokładniej go rozwinąć, jaśniej wytłumaczyć,\
 A naprzód komisyją legalnie wyznaczyć,\
 Która by rozważyła emigracji cele,\
