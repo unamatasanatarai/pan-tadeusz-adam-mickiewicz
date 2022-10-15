@@ -1,3 +1,4 @@
+Że Woźny musiał co tchu w konopie uciekać.\
 Jak później Wołodkowicz, pan dumny, zuchwały,\
 Co rozpędzał sejmiki, gwałcił trybunały,\
 Przyjąwszy urzędowy pozew, zdarł na sztuki,\
