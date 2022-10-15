@@ -1,3 +1,4 @@
+Była to historyja żyjąca krajowa,\
 A między szlachtą dzieje domowe powiatu.\
 Dawano przez to poznać szlachcicowi bratu,\
 Że wszyscy o nim wiedzą, lekce go nie ważą;\
