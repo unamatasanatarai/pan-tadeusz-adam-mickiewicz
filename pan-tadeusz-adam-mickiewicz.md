@@ -1,3 +1,4 @@
+Wszystko wkoło ubrane w bukiety i w wianki,\
 Ołtarz, obraz, a nawet dzwonica i ganki.\
 Czasem poranny wietrzyk, gdy ze wschodu wionie,\
 Zrywa wianki i rzuca na klęczących skronie,\
