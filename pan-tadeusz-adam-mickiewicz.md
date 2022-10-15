@@ -1,3 +1,4 @@
+W takim nigdy nie bywa od mężczyzn widziana:\
 Więc choć świadka nie miała, założyła ręce\
 Na piersiach, przydawając zasłony sukience.\
 Włos w pukle nierozwity, lecz w węzełki małe\
