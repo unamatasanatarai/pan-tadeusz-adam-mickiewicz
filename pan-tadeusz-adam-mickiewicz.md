@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Nawet pan Podkomorzy nadzwyczaj ponury,\
 Nie miał ochoty gadać, widząc swoje córy,\
 Posażne i nadobne panny, w wieku kwiecie,\
