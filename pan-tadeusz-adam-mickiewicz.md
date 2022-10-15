@@ -1,3 +1,4 @@
+Czasem, jakby chciał mówić: «Wszystko się skończyło»,\
 Kiwnął żałośnie głową; czasem machnął ręką:\
 Widać, że mu wspomnienie samo było męką,\
 I że je chciał odpędzić. Aż się zatrzymali\
