@@ -1,3 +1,4 @@
+W ogrodzie, blisko domu? może szukać wyślą?\
 Postrzegli, że uciekał? kto wie, co pomyślą?\
 Więc wypadało wrócić. Chyląc się u płotów\
 Około miedz i zielska, po tysiącach zwrotów\
