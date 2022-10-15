@@ -1,3 +1,4 @@
+Przebawiłem tu, dni te minęły jak chwilka;\
 Nie miałem czasu z twoim domem się nacieszyć\
 I z tobą, a odjeżdżać muszę, muszę spieszyć\
 Zaraz, dzisiaj, stryjaszku, a jutro najdaléj:\
