@@ -1,3 +1,4 @@
+I coś lekkiego znowu upadło z wysoka,\
 I przeleciawszy cały ogród w mgnieniu oka,\
 Pomiędzy zielonymi świeciło ogórki:\
 Jako promień słoneczny, wykradłszy się z chmurki,\
