@@ -1,3 +1,4 @@
+I dóbr administracją prowadził porządnie;\
 O polityce także wnioskował rozsądnie,\
 Pięknie pisać i gładko umiał się wysławiać.\
 Zatem umilkli wszyscy, kiedy jął rozprawiać:\
