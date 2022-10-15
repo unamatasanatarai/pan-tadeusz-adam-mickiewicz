@@ -1,3 +1,4 @@
+Drogi do sławy, szczęściu twojemu przeszkadzać!\
 Jesteś mężczyzną, znajdziesz kochankę godniejszą\
 Serca twojego, znajdziesz bogatszą, piękniejszą!\
 Tylko dla mej pociechy, niech wiem przed rozstaniem,\
