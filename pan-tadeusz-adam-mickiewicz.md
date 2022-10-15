@@ -1,3 +1,4 @@
+Drugie wzięła za rękę, a kilkoro przodem\
 Zaganiając jak gąski, szła dalej ogrodem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Odwróciwszy się rzekła: «Czy też pan nie może\
