@@ -1,3 +1,4 @@
+Które Żydzi modląc się na łbach zawieszają\
 I które po swojemu cyces nazywają.\
 Słowem, z daleka karczma chwiejąca się, krzywa,\
 Podobna jest do Żyda, gdy się modląc kiwa:\
