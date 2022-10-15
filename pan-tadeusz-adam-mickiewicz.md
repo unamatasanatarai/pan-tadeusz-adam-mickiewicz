@@ -1,3 +1,4 @@
+Proszę milczeć, słuchamy, sprawa na tym zyska;\
 Pan Klucznik ją z nowego zważa stanowiska».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Owszem — zawołał Klucznik — u mnie po staremu,\
