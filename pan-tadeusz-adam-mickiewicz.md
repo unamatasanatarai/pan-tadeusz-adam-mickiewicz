@@ -1,3 +1,4 @@
+I ja pieniędzmi, ile zdołam, dopomogę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czuła szlachta, że mądrze Podkomorzy radził:\
 Wiadomo, że kto z ruskim carem raz się zwadził,\
