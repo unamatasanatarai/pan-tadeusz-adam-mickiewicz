@@ -1,3 +1,4 @@
+A co robić, jak robić, decydujcie sami.\
 Wiecie, słuch dawno chodzi między zaściankami,\
 Że się na wielkie rzeczy zanosi na świecie;\
 Ksiądz Robak o tym gadał: wszakże wszyscy wiecie?»\
