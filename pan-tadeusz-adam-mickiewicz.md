@@ -1,3 +1,4 @@
+Nawet na Asesora nieraz okiem rzucić:\
 Tak ptasznik patrzy w sidło, kędy szczygły zwabia,\
 I razem w pastkę wróblą. Tadeusz i Hrabia,\
 Obadwa radzi z siebie, obadwa szczęśliwi,\
