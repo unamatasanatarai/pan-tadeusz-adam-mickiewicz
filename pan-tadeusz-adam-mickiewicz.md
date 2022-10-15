@@ -1,3 +1,4 @@
+Otóż, na me nieszczęście, najął dom w sąsiedztwie\
 Jakiś mały czynownik siedzący na śledztwie;\
 Trzymał kilkoro chartów: co to za męczarnie,\
 Gdy blisko mieszka mały czynownik i psiarnie!\
