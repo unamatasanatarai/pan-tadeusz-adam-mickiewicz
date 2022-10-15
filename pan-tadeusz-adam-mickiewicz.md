@@ -1,3 +1,4 @@
+A natenczas tam w modzie był tytuł markiża.\
 Jakoż, kiedy się moda odmieniła z laty,\
 Tenże sam markiż przybrał tytuł demokraty;\
 Wreszcie z odmienną modą, pod Napoleonem,\
