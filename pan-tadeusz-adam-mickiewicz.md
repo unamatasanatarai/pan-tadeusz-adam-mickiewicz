@@ -1,3 +1,4 @@
+Oto młodzież, na której Ojczyzny nadzieje,\
 Która ma wsławiać nasze ostępy i knieje,\
 Która niestety, i tak zaniedbuje łowy,\
 Może do ich wzgardzenia weźmie pochop nowy.\
