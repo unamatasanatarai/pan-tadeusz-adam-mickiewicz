@@ -1,3 +1,4 @@
+Runął wprost na ostatnich strażników obławy:\
 Hrabię i Tadeusza. Oni bez obawy\
 Stoją w kroku, na źwierza wytknęli flint rury,\
 Jako dwa konduktory w łono ciemnej chmury;\
