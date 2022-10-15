@@ -1,3 +1,4 @@
+Ciebie osadzę w murach jak mego burgrabię.\
 Twoja powieść, Gerwazy, zajęła mię mocno.\
 Szkoda, żeś mię nie przywiódł tu w godzinę nocną;\
 Udrapowany płaszczem, siadłbym na ruinach,\
