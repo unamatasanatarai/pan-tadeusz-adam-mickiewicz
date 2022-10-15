@@ -1,3 +1,4 @@
+Podniósł w górę dziewczynę, postawił na stole,\
 A wszyscy klaszcząc w dłonie zawołali: «Brawo!»\
 Zachwyceni dziewczyny urodą, postawą,\
 A szczególniej jej strojem litewskim, prostaczym.\
