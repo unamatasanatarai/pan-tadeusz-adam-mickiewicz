@@ -1,3 +1,4 @@
+Już to że odgłos trąbki i widok obławy\
 Przypominał mu jego lata młodociane,\
 Kiedy miał strzelców licznych i psy zawołane:\
 Teraz mu z całej psiarni dwa charty zostały,\
