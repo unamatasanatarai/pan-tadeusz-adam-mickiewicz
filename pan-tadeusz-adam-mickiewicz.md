@@ -1,3 +1,4 @@
+Niebogata: lecz za to urodzeniem równa,\
 Z domu senatorskiego, jest dygnitarzówna.\
 Jeżeliby do skutku przyszło ożenienie,\
 Telimena w ich domu miałaby schronienie\
