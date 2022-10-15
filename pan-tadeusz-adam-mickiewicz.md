@@ -1,3 +1,4 @@
+Widząc, że ci, co innym mają dać przykłady,\
 Z łowów przynoszą tylko poswarki i zwady!\
 Miejcie też wzgląd powinny dla mych włosów siwych;\
 Bo znałem większych dawniej niźli wy myśliwych,\
