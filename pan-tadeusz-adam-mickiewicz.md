@@ -1,3 +1,4 @@
+Dziwią się wszyscy. Lecz to była tylko proba;\
 Bo wnet przerwał i w górę podniósł drążki oba.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Znów gra. Już drżą drążki, tak lekkimi ruchy,\
