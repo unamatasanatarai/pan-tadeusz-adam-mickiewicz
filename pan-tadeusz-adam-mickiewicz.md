@@ -1,3 +1,4 @@
+Zestarzałby spokojny, może wnuki swoje\
 Kołysałby!... Teraz co?... Nas zgubił oboje\
 I sam... i to zabójstwo... i wszystkie następstwa\
 Tej zbrodni, wszystkie moje biedy i przestępstwa!...\
