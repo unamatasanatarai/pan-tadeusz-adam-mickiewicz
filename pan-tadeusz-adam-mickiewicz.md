@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Protazy, choć człek śmiały, uczuł nieco strachu:\
 Bo przypomniał z samego rośliny zapachu\
 Różne swoje dawniejsze woźnieńskie przypadki,\
 Jedne po drugich, biorąc konopie na świadki:\
