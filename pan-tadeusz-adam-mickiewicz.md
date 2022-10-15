@@ -1,3 +1,4 @@
+Rozłożył je, ołówek przyciął, w ustach zmoczył,\
 Patrzy w Zosię, rysuje. Ledwie Sędzia zoczył\
 Papiery i ołówki, poznał rysownika;\
 Choć go bardzo odmienił mundur pułkownika,\
