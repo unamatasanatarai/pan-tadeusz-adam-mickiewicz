@@ -1,3 +1,4 @@
+«Iż proces nasz skończy się dziwnie, ja nie przeczę.\
 Wszakże, były przykłady: pamiętam procesy,\
 W których się działy gorsze niż u nas ekscesy,\
 A intercyza cały zakończyła kłopot:\
