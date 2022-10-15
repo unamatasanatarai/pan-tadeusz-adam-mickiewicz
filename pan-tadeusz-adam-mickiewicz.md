@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tymczasem zły duch nową pokusą go wabi,\
 Podsłuchiwać, co Zosia mówiła do Hrabi.\
 Dziewczyna, uprzejmością Hrabiego ujęta,\
 Zrazu rumieniła się, spuściwszy oczęta,\
