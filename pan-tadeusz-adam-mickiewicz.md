@@ -1,3 +1,4 @@
+W ręku ogromna laska: tak pan Sędzia kroczy.\
 Schyliwszy się i ręce obmywszy w strumieniu,\
 Usiadł przed Telimeną na wielkim kamieniu,\
 I, wsparłszy się oburącz na gałkę słoniową\
