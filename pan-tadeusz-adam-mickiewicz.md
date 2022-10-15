@@ -1,3 +1,4 @@
+Zdawał się pogrążony w dumaniu głębokiem.\
 Dopiero, gdy się Hrabia z Podkomorzym skłócił:\
 I Sędziemu pogroził, Wojski głowę zwrócił,\
 Zażył dwakroć tabaki i przetarł powieki.\
