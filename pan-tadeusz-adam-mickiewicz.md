@@ -1,3 +1,4 @@
+Nie chciał, bo wszędzie tęsknił i czuł się niezdrowym,\
 Jeżeli nie oddychał powietrzem zamkowym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Skoro ujrzał Hrabiego, czapkę z głowy schwycił,\
