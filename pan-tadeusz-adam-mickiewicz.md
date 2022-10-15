@@ -1,3 +1,4 @@
+Bogactw Sędziego — wszystkich zgodziła nienawiść.\
 Cisną się do Klucznika, podnoszą do góry\
 Szable, pałki. —
 
