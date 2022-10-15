@@ -1,3 +1,4 @@
+«Tylko ty, Maćku z Rózgą, ty, Maćku z maczugą;\
 Tylko zgódźcie się: dalbóg, pobijem na druzgi\
 Moskala; Brzytew idzie pod komendę Rózgi».
 
