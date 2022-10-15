@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ileż to razy chciałem serce me otworzyć,\
 I już się nawet przed nim do próśb upokorzyć,\
 Lecz spojrzawszy mu w oczy, spotkawszy wejrzenia\
