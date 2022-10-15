@@ -1,3 +1,4 @@
+Mam wpływy: to najlepszy kreacyi sposób.\
 Za mą pomocą, znajdzie wstęp w najpierwsze domy,\
 A kiedy będzie ważnym osobom znajomy,\
 Dostanie urząd, order; wtenczas niech porzuci\
