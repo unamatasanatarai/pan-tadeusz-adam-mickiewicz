@@ -1,3 +1,4 @@
+Kędyś tam w cudzych krajach. Robak często chadzał\
 Nocą do karczmy, tajnie z Żydem się naradzał\
 O ważnych rzeczach; słychać było, że towary\
 Ksiądz przemycał — lecz potwarz ta niegodna wiary.
