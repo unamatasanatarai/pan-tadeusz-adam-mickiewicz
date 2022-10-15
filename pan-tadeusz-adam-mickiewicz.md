@@ -1,3 +1,4 @@
+Księdzu bić się), lecz jako człowiek doświadczony\
 Dawał rady, plac boju z różnych stron obchodził,\
 Wzrokiem, ręką, walczących zachęcał, przywodził.\
 I teraz woła, aby do niego się łączyć,\
