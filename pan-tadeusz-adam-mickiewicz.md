@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Po chwili wszędzie było samotnie i głucho.\
 Hrabia oczy w dom utkwił i natężył ucho;\
 Zawsze dumał, a strzelcy zawsze nieruchomie\
