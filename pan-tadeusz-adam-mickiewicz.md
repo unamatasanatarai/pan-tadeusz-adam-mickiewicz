@@ -1,3 +1,4 @@
+Stoją na kształt posągów sypilskiej Nijoby.\
 Jedna osina drżąca, wstrząsa liście siwe.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bydło, zwykle do domu powracać leniwe,\
