@@ -1,3 +1,4 @@
+Otóż, jeśli kto z panów, coście tu przytomni,\
 Będzie w wojsku cesarza, niech to sobie wspomni».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ach — zawołał Skołuba — mój księże kwestarzu!\
