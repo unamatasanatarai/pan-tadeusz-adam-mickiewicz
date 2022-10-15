@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Ona z rumieńcem dziewiczym,\
 Ale z rozweselonym słuchała obliczem.\
 Jak dziecię lubi widzieć obrazki jaskrawe\
 I w liczmanach błyszczących znajduje zabawę,\
