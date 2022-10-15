@@ -1,3 +1,4 @@
+My tu pijem, a jegry tam zmarzną na dworze?\
 Hulać to hulać! Sędzio, daj beczkę siwuchy:\
 Major pozwoli, niechaj piją jegry zuchy!»\
 «Prosiłbym — rzecze Major — lecz w tym nie ma musu».\
