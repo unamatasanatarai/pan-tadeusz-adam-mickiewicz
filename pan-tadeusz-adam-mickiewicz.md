@@ -1,3 +1,4 @@
+Lecz owóż on!...» Tu Wojski palcem wskazał w sieni,\
 Gdzie czeladź i wieśniacy stali natłoczeni,\
 A nad wszystkich głowami łysina błyszcząca\
 Ukazała się nagle jak pełnia miesiąca;\
