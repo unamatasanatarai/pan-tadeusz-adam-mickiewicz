@@ -1,3 +1,4 @@
+Na koniec w niewidzialny otwór pnia przepada,\
 Jak wracająca w drzewo rodzime dryjada.\
 Znowu cicho.
 
