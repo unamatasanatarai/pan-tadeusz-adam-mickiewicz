@@ -1,3 +1,4 @@
+Jeszcze silniej pociągnął drugiego ciężaru;\
 I wnet gil, który siedział na wierzchu zegaru,\
 Trzepiocąc skrzydłem zaczął ciąć kurantów nuty.\
 Ptak sztucznie wyrobiony, szkoda, że zepsuty,\
