@@ -1,3 +1,4 @@
+Oto w domu ojczyźnie potrzebniejszy będzie.\
 Słyszałeś pewnie, o czym już gadają wszędzie,\
 O czym ja wiadomostki przynosiłem nieraz:\
 Teraz czas już powiedzieć wszystko, czas już teraz!\
