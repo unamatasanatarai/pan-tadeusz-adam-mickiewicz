@@ -1,3 +1,4 @@
+Mając u kolan pełne miodu dwa półgarce.\
 Patrzą w sad, gdzie wśród pączków barwistego maku\
 Stał ułan jak słonecznik, w błyszczącym kołpaku\
 Strojnym blachą złocistą i piórem koguta;\
