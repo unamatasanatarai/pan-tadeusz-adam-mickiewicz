@@ -1,3 +1,4 @@
+Klęczeli, objąwszy się i łzami rzewnemi\
 Płakali; Robak ręce Sędziego całował,\
 Sędzia księdza za szyję płacząc obejmował.\
 Wreszcie po ćwierćgodzinnym przerwaniu rozmowy\
