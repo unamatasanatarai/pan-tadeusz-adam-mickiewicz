@@ -1,3 +1,4 @@
+Trwał proces, aż wygrali w szóstym pokoleniu.\
 Dosyć zrobiłem głupstwa z porady waszeci,\
 Zwołując podkomorskie sądy po raz trzeci.\
 Od dzisiaj nie ma zgody, nie ma, nie ma, nie ma! —\
