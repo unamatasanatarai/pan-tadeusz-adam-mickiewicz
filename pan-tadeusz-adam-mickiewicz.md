@@ -1,3 +1,4 @@
+Jak daleko Francuzi? kto nimi dowodzi?\
 Czy już wojnę zaczęli z Moskwą? gdzie i o co?\
 Którędy mają ciągnąć? z jaką idą mocą?\
 Wiele piechoty, jazdy? Kto wie, niechaj gada!»
