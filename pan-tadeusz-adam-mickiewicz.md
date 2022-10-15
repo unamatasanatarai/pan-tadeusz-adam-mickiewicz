@@ -1,3 +1,4 @@
+Ja tu będę pilnować zamku, aż rozdnieje,\
 A ze słoneczkiem stanę w Dobrzyńskim zaścianku».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na te słowa pan Hrabia ustąpił z krużganku;\
