@@ -1,3 +1,4 @@
+To się bez sądów owa skończyła intryga.\
 Dobrze, gdy strony mają panny albo wdowy\
 Na wydaniu: to zawsze kompromis gotowy.\
 Najdłuższy proces zwykle bywa z duchowieństwem\
