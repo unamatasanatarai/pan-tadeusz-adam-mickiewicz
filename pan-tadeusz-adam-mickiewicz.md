@@ -1,3 +1,4 @@
+Lecz Wojski nie odstąpił dawnego zwyczaju:\
 Ledwo dostrzegł takową muchę, wnet ją gonił.\
 Właśnie mu teraz szlachcic nad uchem zadzwonił;\
 Po dwakroć Wojski machnął, zdziwił się, że chybił,\
