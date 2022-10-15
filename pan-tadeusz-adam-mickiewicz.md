@@ -1,3 +1,4 @@
+Nowogródzki ochraniasz z jego wiernym ludem!\
 Jak mnie dziecko do zdrowia powróciłaś cudem\
 (Gdy od płaczącej matki, pod Twoją opiekę\
 Ofiarowany, martwą podniosłem powiekę;\
