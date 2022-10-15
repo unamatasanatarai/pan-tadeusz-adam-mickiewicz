@@ -1,3 +1,4 @@
+Słychać tylko niekiedy te krótkie wyrazy:\
 «Tak, tak, panie Gerwazy» — «Tak, panie Protazy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przyzba tykała kuchni, której okna stały\
