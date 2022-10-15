@@ -1,3 +1,4 @@
+I dalbóg, Telimeno, już go nie odmienię».\
 «Ja — rzekła Telimena — nie chcę ci zagradzać\
 Drogi do sławy, szczęściu twojemu przeszkadzać!\
 Jesteś mężczyzną, znajdziesz kochankę godniejszą\
