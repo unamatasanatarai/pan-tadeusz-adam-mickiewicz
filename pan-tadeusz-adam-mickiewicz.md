@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ona w środku wysoko nad ptastwem się wznosi;\
 Sama biała i w długą bieliznę ubrana\
 Kręci się, jak bijąca śród kwiatów fontanna;\
 Czerpie z sita i sypie na skrzydła i głowy,\
