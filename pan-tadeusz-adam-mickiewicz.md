@@ -1,3 +1,4 @@
+Chybaby tu zdziczała». Sędzia pilnie słuchał,\
 Patrząc w oczy; zdało się, że się udobruchał,\
 Bo rzekł dosyć wesoło: «No, to i cóż robić!\
 Bóg widzi, szczerze chciałem interesu dobić;\
