@@ -1,3 +1,4 @@
+Z rękami i koszykiem po owoc się schyla,\
 Który stopą nadtrąci lub dostrzeże okiem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Pan Hrabia zachwycony tak cudnym widokiem\
