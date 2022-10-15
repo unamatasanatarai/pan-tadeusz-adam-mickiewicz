@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tymczasem ksiądz na łożu usiadł i tak kończył:\
 «Jeździłem koło zamku. Ile biesów w głowie\
 I w sercu miałem: kto ich imiona wypowie!\
 Stolnik zabija dziecię własne! Mnie już zabił,\
