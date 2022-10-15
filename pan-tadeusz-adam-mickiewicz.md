@@ -1,3 +1,4 @@
+I czego tu po grzędach szuka pan dobrodziéj?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia oczy roztworzył. Zmieszany, zdziwiony,\
 Milczał; wreszcie, zniżając swej rozmowy tony:\
