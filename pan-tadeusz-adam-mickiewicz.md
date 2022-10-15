@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Czyż nie piękniejsza nasza poczciwa brzezina,\
 Która jako wieśniaczka, kiedy płacze syna,\
 Lub wdowa męża, ręce załamie, roztoczy\
