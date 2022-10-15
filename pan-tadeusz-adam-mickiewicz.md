@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«Więc — rzecze Sędzia — teraz czas myśleć o sobie.\
 Uważ, że człowiek w twoim wieku i chorobie\
 Nie zdołałby z innymi razem emigrować;\
