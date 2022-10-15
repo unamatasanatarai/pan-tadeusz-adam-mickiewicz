@@ -1,3 +1,4 @@
+Już była zaniedbana podówczas na Litwie,\
 Znajoma tylko starym; Klucznik jej próbował\
 Nieraz w zwadach karczemnych, Wojski w niej celował:\
 Widać z zamachu ręki, że silnie uderzy,\
