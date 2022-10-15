@@ -1,3 +1,4 @@
+Oto nowy marszałek na ręku stronników\
 Wyniesion z refektarza. Patrz, jak szlachta braty\
 Rzucają czapki, usta otwarli, — wiwaty!\
 A tam, po drugiej stronie pan przekreskowany\
