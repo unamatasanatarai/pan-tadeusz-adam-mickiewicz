@@ -1,3 +1,4 @@
+A dalej okrąg, jakby powieka szeroka\
 Rozsuwa się i w środku widać białek oka,\
 Widać tęczę, źrenicę — już promień wytrysnął,\
 Po okrągłych niebiosach wygięty przebłysnął,\
