@@ -1,3 +1,4 @@
+Natchnienia, chwile błogie! Potępiaj człowieka;\
 Ale sztukmistrz twojego przebaczenia czeka!\
 Na wielem się odważył, na więcej odważę:\
 Sądź!» — tu ukląkł i podał swoje pejzaże.
