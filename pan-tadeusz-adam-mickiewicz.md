@@ -1,3 +1,4 @@
+Biegę do niego zaraz...» «Niech się pierwszy zgłosi —\
 Rzekł Sędzia — niech przyjedzie tu, niech mnie przeprosi;\
 Wszak jestem starszy wiekiem, jestem na urzędzie!\
 Co się tycze procesu, sąd arbitrów będzie...»\
