@@ -1,3 +1,4 @@
+Zostawiwszy to dziecię; a mnie rozpacz żarła!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jakże mocno musiałem kochać tę niebogę,\
 Tyle lat!... Gdziem ja nie był: a dotąd nie mogę\
