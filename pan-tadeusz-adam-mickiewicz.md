@@ -1,3 +1,4 @@
+«Bracia! Bóg dziś naszemu szczęścił orężowi,\
 Ale muszę Wać Państwu wyznać bez ogródki,\
 Że z tych niewczesnych bojów złe wynikną skutki.\
 Zbłądziliśmy i nikt tu z nas nie jest bez winy:\
