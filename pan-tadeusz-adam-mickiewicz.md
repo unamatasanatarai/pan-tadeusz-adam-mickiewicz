@@ -1,3 +1,4 @@
+W kapitałach; wiesz aśćka, że ma kapitały,\
 I z łaski jego mam też fundusz prawie cały:\
 Ma więc prawo rozrządzać... aśćka pomyśl o tem,\
 Żeby się to zrobiło najmniejszym kłopotem.\
