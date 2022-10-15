@@ -1,3 +1,4 @@
+Żeś człek poczciwy, wiedzą tu wszyscy ziemianie,\
 U których na kwaterach stałeś od lat wielu.\
 Za ten dar nie gniewaj się, dobry przyjacielu:\
 Nie chcieliśmy cię skrzywdzić; te oto dukaty,\
