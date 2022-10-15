@@ -1,3 +1,4 @@
+Rozsuwa się i w środku widać białek oka,\
 Widać tęczę, źrenicę — już promień wytrysnął,\
 Po okrągłych niebiosach wygięty przebłysnął,\
 I w białej chmurce jako złoty grot zawisnął.\
