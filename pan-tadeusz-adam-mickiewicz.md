@@ -1,3 +1,4 @@
+Podbiega i na białej podaje mu dłoni\
 Drążki, którymi zwykle mistrz we struny dzwoni;\
 Drugą rączką po siwej brodzie starca głaska\
 I dygając: «Jankielu — mówi — jeśli łaska!\
