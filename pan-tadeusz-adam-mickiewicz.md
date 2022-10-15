@@ -1,3 +1,4 @@
+Czarne oczy kierują na czarne obłoki,\
 Wytknąwszy język z suchej szerokiej gardzieli\
 I skrzydła roztaczając, czekają kąpieli;\
 Lecz i te, przewidując nazbyt mocną burzę,\
