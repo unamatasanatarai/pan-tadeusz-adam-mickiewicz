@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tylko Buchman radości podzielać nie raczył;\
 Pochwalał projekt, lecz go rad by przeinaczył:\
 A naprzód, komisyją legalną wyznaczył,\
 Która by... Krótkość czasu była na zawadzie,\
