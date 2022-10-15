@@ -1,3 +1,4 @@
+Cały szereg zdaje się być ruchomym płazem,\
 Który tysiąc błyszczących nóg wywija razem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Prawda, że jegry byli mocnym trunkiem pjani,\
