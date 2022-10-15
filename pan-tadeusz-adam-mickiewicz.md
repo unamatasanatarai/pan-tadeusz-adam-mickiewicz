@@ -1,3 +1,4 @@
+Wolność, którą cesarz-król przywrócił Koronie,\
 A teraz Litewskiemu Księstwu, Polszcze całej\
 Przywraca; słyszeliście rządowe uchwały\
 I zwołujące walny sejm uniwersały.\
