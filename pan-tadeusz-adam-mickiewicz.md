@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Po chwili w Horeszkowskim samotnym budynku\
 Wszystko do zwyczajnego wracało spoczynku.\
 Mrok zgęstniał; reszty pańskiej wspaniałej biesiady\
 Leżą, podobne uczcie nocnej, gdzie na Dziady\
