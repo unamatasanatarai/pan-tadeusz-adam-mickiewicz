@@ -1,3 +1,4 @@
+Powiadano, że Ewa, gdy brała obrączkę\
 Z rąk Wojewody, mdlała, że wpadła w gorączkę,\
 Że ma początki suchot, że ustawnie szlocha;\
 Zgadywano, że kogoś potajemnie kocha. —\
