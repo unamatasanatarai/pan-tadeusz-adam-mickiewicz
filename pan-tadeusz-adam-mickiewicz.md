@@ -1,3 +1,4 @@
+Z tych psów jakieś nieszczęście: tak się też zdarzyło.\
 Bo gdym szła do ogrodu pewnego poranka,\
 Chart u nóg mych zadławił mojego kochanka\
 Bonończyka! Ach, była to rozkoszna psina,\
