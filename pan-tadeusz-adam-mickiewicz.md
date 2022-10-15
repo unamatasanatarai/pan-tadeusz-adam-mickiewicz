@@ -1,3 +1,4 @@
+On rzekł:
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Bracia! ogłosił wam ksiądz na ambonie\
 Wolność, którą cesarz-król przywrócił Koronie,\
