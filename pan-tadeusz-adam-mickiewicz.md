@@ -1,3 +1,4 @@
+Wiatr wzmagał się i pędził obłoki ze wschodu,\
 Gęste i poszarpane jako bryły lodu;\
 Każdy obłok w przelocie deszczem zimnym prószy,\
 Z tyłu za nim wiatr leci i deszcz znowu suszy,\
