@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zły przykład dla ojczyzny, zachętę do zdrady\
 Trzeba było okupić dobrymi przykłady,\
 Krwią, poświęceniem się...
