@@ -1,3 +1,4 @@
+Ale nie tylko groźne wejrzenie i blizny,\
 Lecz sam ruch i głos jego miał coś żołnierszczyzny.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przy mszy, gdy z wzniesionymi zwracał się rękami\
