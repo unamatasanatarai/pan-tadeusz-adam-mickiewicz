@@ -1,3 +1,4 @@
+Gdzie stał sztab; za czym Ryków gniewa się i dąsa,\
 Tupa nogami, szpady swej rękojeść kąsa:\
 «Majorze Płucie — woła — co to z tego będzie?\
 Wkrótce tu nie zostanie nikt z nas przy komendzie!»
