@@ -1,3 +1,4 @@
+I częściej niż kalendarz gospodarski zgadnie.\
 Nie dziw tedy, że czy to siejbę rozpoczynać,\
 Czy wiciny wyprawiać, czy zboże zażynać,\
 Czy procesować, czyli zawierać układy:\
