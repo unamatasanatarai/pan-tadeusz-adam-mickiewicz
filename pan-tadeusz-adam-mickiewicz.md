@@ -1,3 +1,4 @@
+Telimena, mówiąca wciąż do Tadeusza,\
 Musiała ku Hrabiemu nieraz się odwrócić,\
 Nawet na Asesora nieraz okiem rzucić:\
 Tak ptasznik patrzy w sidło, kędy szczygły zwabia,\
