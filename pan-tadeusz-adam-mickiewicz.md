@@ -1,3 +1,4 @@
+Gdy więc na jednym promie płynęli Wilejką,\
 Pyta sąsiada, kto on? odpowie: Doweyko —\
 Nie czekając, dobywa rapier spod kirejki:\
 Czach, czach! i za Domeykę podciął wąs Doweyki.
