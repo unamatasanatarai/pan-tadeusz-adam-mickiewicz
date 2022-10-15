@@ -1,3 +1,4 @@
+Żeby cię na świat wywieść, ciągle pod nos mruczał\
 Że już jesteś dorosła: sam nie wie, co plecie,\
 Dziaduś, nigdy na wielkim niebywały świecie.\
 Ja wiem lepiej, jak długo trzeba się sposobić\
