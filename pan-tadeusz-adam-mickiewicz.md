@@ -1,3 +1,4 @@
+Śmierć matula, powiada Baka, jak cebula,\
 Łzy wyciska, gdy ściska, a równie przytula\
 I dziecko co się lula, i zucha co hula!\
 Ach! ach! Majorze, dzisiaj żyjem, jutro gnijem,\
