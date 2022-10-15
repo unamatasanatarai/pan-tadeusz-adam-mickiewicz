@@ -1,3 +1,4 @@
+I ten obrazek, a niech pamięta o Zosi.\
 Niech pana Pan Bóg w zdrowiu i szczęściu prowadzi,\
 I niech prędko szczęśliwie do nas odprowadzi».\
 Umilkła i spuściła głowę; oczki modre\
