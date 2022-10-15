@@ -1,3 +1,4 @@
+Był pokój w Wielkopolszcze, jak teraz na Litwie;\
 Wtem nagle rozeszła się wieść o strasznej bitwie.\
 Przybiegł do nas posłaniec od pana Towdena:\
 Grabowski list przeczytał, krzyknął: «Jena! Jena!\
