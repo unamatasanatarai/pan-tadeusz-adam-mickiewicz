@@ -1,3 +1,4 @@
+Dwadzieścia strzelb leżało tu na tej podłodze;\
 Wystrzeliliśmy jedną, podawano drugą.\
 Ksiądz proboszcz zatrudniał się czynnie tą usługą,\
 I pani, i panienka, i nadworne panny:\
