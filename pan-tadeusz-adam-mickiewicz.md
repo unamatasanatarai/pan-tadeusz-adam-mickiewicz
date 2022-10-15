@@ -1,3 +1,4 @@
+Ujadają. Już nie jest to powolne granie\
 Psów goniących zająca, lisa albo łanie;\
 Lecz wciąż wrzask krótki, częsty, ucinany, zjadły;\
 To nie na ślad daleki ogary napadły:\
