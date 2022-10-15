@@ -1,3 +1,4 @@
+Malująca zbyteczną, prostacką szczęśliwość!\
 Znak, że myśl jeszcze drzemie, że serce nieczynne!\
 I owe odpowiedzi, tak wiejskie, tak gminne!\
 «Po cóż się łudzić — krzyknął — zgaduję po czasie:\
