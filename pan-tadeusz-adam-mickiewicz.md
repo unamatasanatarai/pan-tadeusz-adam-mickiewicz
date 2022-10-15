@@ -1,3 +1,4 @@
+Suwała się ku niemu z wyciągniętą ręką,\
 Od której odbijał się drżący blask miesięczny,\
 I przystąpiwszy, cicho jęknęła: «Niewdzięczny!\
 Szukałeś wzroku mego, teraz go unikasz;\
