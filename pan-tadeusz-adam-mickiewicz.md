@@ -1,3 +1,4 @@
+Jak guślarze: zdają się witać wschód miesiąca,\
 Którego postać oknem spadła na stół drżąca,\
 Niby dusza czyscowa; z podziemu, przez dziury,\
 Wyskakiwały na kształt potępieńców szczury:\
