@@ -1,3 +1,4 @@
+Biedna! jaśnie wielmożnej tytuł przybrać miała,\
 A znów tylko wielmożną na lat trzy została!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Wojski skończył opis i laską znak daje.\
