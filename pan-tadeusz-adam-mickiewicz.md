@@ -1,3 +1,4 @@
+Pominąć strefy ulewy i grzmotu,\
 I szukać tylko cienia i pogody:\
 Wieki dzieciństwa, domowe zagrody...
 
