@@ -1,3 +1,4 @@
+Coraz głośniej targając akord rozdąsany,\
 Przeciwko zgodzie tonów skonfederowany:\
 Aż Klucznik pojął mistrza, zakrył ręką lica\
 I krzyknął: «Znam! znam głos ten! to jest *Targowica*!»\
