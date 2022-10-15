@@ -1,3 +1,4 @@
+Teraz pusto i głucho jak na mogilniku:\
 Wszyscy ruszyli w pole. Tadeusz nadstawił\
 Uszu i ręce do nich jak trąbki przyprawił;\
 Słuchał, aż mu wiatr przyniósł, wiejący od puszczy,\
