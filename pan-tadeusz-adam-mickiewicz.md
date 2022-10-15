@@ -1,3 +1,4 @@
+A Wojski mu po cichu wydawał rozkazy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stała w ogrodzie, prawie pod samym parkanem,\
 O który się opierał Ryków swym trójgranem,\
