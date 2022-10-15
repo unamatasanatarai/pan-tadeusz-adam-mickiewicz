@@ -1,3 +1,4 @@
+I ja astronomii słuchałem dwa lata\
 W Wilnie, gdzie Puzynina, mądra i bogata\
 Pani, oddała dochód z wioski dwiestu chłopów\
 Na zakupienie różnych szkieł i teleskopów.\
