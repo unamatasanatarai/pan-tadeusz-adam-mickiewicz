@@ -1,3 +1,4 @@
+A com wiedział i słyszał, w księgi umieściłem.
 
 
 
