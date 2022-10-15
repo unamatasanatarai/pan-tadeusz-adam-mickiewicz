@@ -1,3 +1,4 @@
+Iskrzyły mu się oczy (zawżdy postrzegano\
 Ten blask niezwykły, kiedy o łowach gadano),\
 Obiegał zgromadzenie ognistą źrenicą\
 I gdzie szmer jeszcze słyszał, jak ksiądz kropielnicą,\
