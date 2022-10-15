@@ -1,3 +1,4 @@
+Z której jako ze źródła płyną wszystkie prawa.\
 Widzimy tedy, że rząd umową się tworzy,\
 Nie pochodząc, jak mylnie sądzę, z woli Bożej.\
 Owoż, rząd na kontrakcie oparłszy społecznym,\
