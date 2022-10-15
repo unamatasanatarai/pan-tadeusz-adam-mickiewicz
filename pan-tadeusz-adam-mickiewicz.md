@@ -1,3 +1,4 @@
+Lubił szczególnie zwiedzać *Świątynię dumania*;\
 Od stołecznego wzgórka aż po źródła brzegi\
 Wydeptał drogę, którą wiódł swoje szeregi.\
 Nieszczęściem, Telimena siedziała śród drożki:\
