@@ -1,3 +1,4 @@
+Szumiał, tryskał i zaraz, jakby szukał cienia,\
 Chował się między gęste i wysokie zioła,\
 Które wodą pojone bujały dokoła;\
 Tam ów bystry swawolnik, spowijany w trawy\
