@@ -1,3 +1,4 @@
+I oczy pełne smutku i wzgardy odwrócił.\
 I ażeby ukarać niewierną kochankę,\
 Za przedmiot stałych ogniów wziął Podkomorzankę.
 
