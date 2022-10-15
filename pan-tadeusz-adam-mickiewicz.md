@@ -1,3 +1,4 @@
+Jako kobieta mała, brzydka, lecz bogata?\
 Czy zachwalony cyprys długi, cienki, chudy,\
 Co zdaje się być drzewem nie smutku, lecz nudy?\
 Mówią, że bardzo smutnie wygląda na grobie;\
