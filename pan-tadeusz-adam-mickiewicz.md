@@ -1,3 +1,4 @@
+Ani rżące rumaki, skrzypiące kolasy,\
 Ni odgłos trąb dających hasło polowania\
 Nie mogły Tadeusza wyciągnąć z posłania;\
 Ubrany padłszy w łóżko, spał jak bobak w norze.\
