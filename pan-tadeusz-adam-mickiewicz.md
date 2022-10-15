@@ -1,3 +1,4 @@
+Odpisuję Jackowi, że nie z mojej winy\
 Nie dojdą Tadeusza z Zosią zaręczyny.\
 Teraz sam będę radzić. Pono z Podkomorzym\
 Zagaimy swatowstwo i resztę ułożym».
