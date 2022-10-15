@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Załamał ręce ksiądz zdziwiony.\
 Wlepiwszy oczy w Sędzię, ruszywszy ramiony,\
 Rzekł : «To gdy Napoleon wolność Litwie niesie,\
