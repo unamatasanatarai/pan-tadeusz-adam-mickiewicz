@@ -1,3 +1,4 @@
+Ciągnie za sobą długie sążniowate drzewo,\
 Uzbrojone w krzemienie i guzy, i sęki\
 (Nikt by go nie podźwignął prócz Chrzciciela ręki).\
 Chrzciciel, gdy miłą broń swą, swe Kropidło zoczył,\
