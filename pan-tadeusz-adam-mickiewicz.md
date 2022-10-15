@@ -1,3 +1,4 @@
+Od dzisiaj nie ma zgody, nie ma, nie ma, nie ma! —\
 I krzycząc chodził, tupał nogami obiema —\
 Prócz tego za wczorajszy niegrzeczny uczynek\
 Musi mnie deprekować, albo pojedynek!»\
