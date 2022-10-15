@@ -1,3 +1,4 @@
+Będzie kręcić się. Ale teraz powiem o tem,\
 Co już mówiłem temu szlachcicu, co długi\
 Ma rapier, że Płut pierwszy komendant, ja drugi:\
 Płut został żywy, może on wam zagiąć kruczka\
