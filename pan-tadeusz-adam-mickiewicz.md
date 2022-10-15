@@ -1,3 +1,4 @@
+Jechać za mną? Ja, będąc sam prostym żołnierzem,\
 Włóczyć, czy markietankę?» — «To my się pobierzem»\
 Rzekła mu Telimena. «Nie, nigdy! — zawoła\
 Tadeusz.— Ja żenić się nie mam teraz zgoła\
