@@ -1,3 +1,4 @@
+I dobrą sztukę spłatać Niemcowi przyrzekał;\
 Tej sztuki ledwie własnym nie przypłacił zdrowiem,\
 A spłatał ją nazajutrz, jak to wnet opowiem».
 
