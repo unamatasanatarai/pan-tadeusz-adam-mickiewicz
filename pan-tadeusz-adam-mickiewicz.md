@@ -1,3 +1,4 @@
+Która służyła długo, wiernie, Bogu dzięki,\
 Ojczyźnie, tudzież panów Horeszków rodzinie,\
 Czego pamięć dotychczas między ludźmi słynie.\
 Mopanku! rzadko który pisarz prowentowy\
