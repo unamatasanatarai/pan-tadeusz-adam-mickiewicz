@@ -1,3 +1,4 @@
+Zniszczył!... Jadę pod bramę: szatan mnie tam wabił.\
 Patrz, jak on hula! Co dzień w zamku pijatyka,\
 Ile świec w oknach, jaka brzmi w salach muzyka!\
 I ten zamek na łysą głowę mu nie runie?...
