@@ -1,3 +1,4 @@
+Wierz mi, iż więcej niż ty gardzę sama sobą!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Telimeno — Tadeusz rzekł — dalbóg nietwarde\
 Mam serce ani ciebie unikam przez wzgardę;\
