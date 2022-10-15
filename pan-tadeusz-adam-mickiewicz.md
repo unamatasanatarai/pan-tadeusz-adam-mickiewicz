@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Komenda — przerwał Chrzciciel — dobra ku paradzie;\
 U nas była komenda w kowieńskiej brygadzie\
 Krótka a węzłowata: strasz, sam się nie strachaj;\
 Bij, nie daj się; postępuj często, gęsto machaj:\
