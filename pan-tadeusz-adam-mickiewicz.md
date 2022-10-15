@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Razem ze strun wiela\
 Buchnął dźwięk, jakby cała janczarska kapela\
 Ozwała się z dzwonkami, z zelami, z bębenki:\
