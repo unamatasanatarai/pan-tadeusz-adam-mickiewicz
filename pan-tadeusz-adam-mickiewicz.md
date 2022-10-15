@@ -1,3 +1,4 @@
+Może źle opatrzono — zaraz po doktora,\
 W apteczce jest...» Ksiądz przerwał: «Bracie, już nie pora!\
 Miałem tam strzał dawniejszy, dostałem pod Jena,\
 Źle zgojony, a teraz draśniono: gangrena\
