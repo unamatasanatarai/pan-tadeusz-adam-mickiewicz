@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Rejent, Asesor patrzą, otworzyli usta,\
 Dech wstrzymali. Wtem Rejent pobladnął jak chusta,\
 Zbladł i Asesor; widzą... fatalnie się dzieje:\
 Owa żmija im dalej, tym bardziej dłużeje,\
