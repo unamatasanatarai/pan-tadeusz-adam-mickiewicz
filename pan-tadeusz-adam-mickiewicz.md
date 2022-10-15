@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;I tak wszystkich pociągnął wymowny Gerwazy;\
 Bo wszyscy ku Sędziemu mieli swe urazy,\
 Jak zwyczajnie w sąsiedztwie: to o szkodę skargi,\
 To o wyręby, to o granice zatargi.\
