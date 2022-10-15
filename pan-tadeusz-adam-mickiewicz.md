@@ -1,3 +1,4 @@
+Chyba inny giez jaki waści stąd wygania,\
 To gadaj szczerze, po co takie omawiania?\
 Jestem twój stryj; choć stary, znam, co serce młode;\
 Byłem ci ojcem (mówiąc gładził go pod brodę),\
