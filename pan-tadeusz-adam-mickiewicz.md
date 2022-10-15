@@ -1,3 +1,4 @@
+I kuchcik, małe, ale bardzo silne chłopię.\
 Przyszedłszy, drągi wparli w wierzch słupa nadgniły,\
 Sami u końców wisząc pchają z całej siły:\
 Jako flisy uwięzłą na rapach wicinę\
