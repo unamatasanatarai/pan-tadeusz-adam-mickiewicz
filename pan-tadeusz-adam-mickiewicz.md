@@ -1,3 +1,4 @@
+Jej wdzięków, i ten oto ślubny pierścień złoty.\
 Ilekroć nań spojrzałem, zawsze ma nieboga\
 Stawała przed oczyma: i tak z łaski Boga,\
 Dotąd mej narzeczonej dochowałem wiary,\
