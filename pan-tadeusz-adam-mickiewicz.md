@@ -1,3 +1,4 @@
+Ale gdyby ostatnie z krwi Horeszków dziecię\
 Wpadło w bestyi paszczę, nie byłbym na świecie,\
 I moje by tam stare pogryzł niedźwiedź kości;\
 Pójdź, księże, wypijemy zdrowie jegomości».
