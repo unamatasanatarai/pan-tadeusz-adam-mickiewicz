@@ -1,3 +1,4 @@
+Ni mińskim, ni za żadnym Buchmana kontraktem;\
 Aniby go wskrzesili z mocy bożej popi,\
 Ni z mocy Belzebuba — ten mi zuch, kto kropi.\
 Panie Buchman, waścina rzecz bardzo wymowna,\
