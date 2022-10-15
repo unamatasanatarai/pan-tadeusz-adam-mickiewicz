@@ -1,3 +1,4 @@
+A na koniec po piątej szklanicy wypitej,\
 Wnoszono: »Kochajmy się«. Wiwat bez przestanku,\
 Który dniem okrzykniony, brzmiał aż do poranku;\
 A już gotowe stały cugi i podwody,\
