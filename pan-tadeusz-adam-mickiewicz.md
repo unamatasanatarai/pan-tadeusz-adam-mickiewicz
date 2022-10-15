@@ -1,3 +1,4 @@
+Której nigdy nie rzuca w domu i w podróży.\
 Była to trybunalska wokanda: tam rzędem\
 Stały spisane sprawy, które przed urzędem\
 Woźny sam głosem swoim przed laty wywołał,\
