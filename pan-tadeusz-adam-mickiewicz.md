@@ -1,3 +1,4 @@
+Bernardyn trzasnął drzwiami. «No, szczęśliwa droga!»\
 Rzekł Sędzia.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Ksiądz wpadł w powóz stojący u proga,\
