@@ -1,3 +1,4 @@
+Zaraz miłośną stawów rozmowę zagłuszył\
 I zbudził Hrabię.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Hrabia widząc, że tak blisko\
