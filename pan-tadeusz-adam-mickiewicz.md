@@ -1,3 +1,4 @@
+Idź mi waść spać!» To mówiąc, drzwi na wściąż otwierał\
 I zawołał Woźnego, żeby go rozbierał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz cicho wyszedł, opuściwszy głowę,\
