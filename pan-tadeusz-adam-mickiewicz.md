@@ -1,3 +1,4 @@
+Wymyśliła ogródek: sławna gospodyni,\
 Zwała się Kokosznicka, z domu Jendykowi-\
 czówna. Jej wynalazek epokę stanowi\
 W domowym gospodarstwie; dziś powszechnie znany,\
