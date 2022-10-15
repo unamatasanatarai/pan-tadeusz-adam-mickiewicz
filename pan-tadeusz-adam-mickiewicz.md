@@ -1,3 +1,4 @@
+A gdy wnoszono zdrowie, trąby jak w dniu sądnym\
 Grzmiały z choru; wiwaty szły ciągiem porządnym:\
 Pierwszy wiwat za zdrowie Króla Jegomości,\
 Potem prymasa, potem Królowej Jejmości,\
