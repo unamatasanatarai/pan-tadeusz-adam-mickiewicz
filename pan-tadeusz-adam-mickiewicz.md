@@ -1,3 +1,4 @@
+Tadeusz Telimenie, Asesor Krajczance,\
 A pan Rejent na końcu Wojskiej Hreczeszance.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z kilku gośćmi poszedł do stodoły,\
