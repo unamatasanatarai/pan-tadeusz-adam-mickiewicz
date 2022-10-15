@@ -1,3 +1,4 @@
+Ostatnia z ptaków, lotem nieścigłym zuchwała\
 Jaskółka, czarny obłok przeszywa jak strzała,\
 Wreszcie spada jak kula.
 
