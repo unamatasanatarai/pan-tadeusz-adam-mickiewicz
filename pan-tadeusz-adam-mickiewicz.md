@@ -1,3 +1,4 @@
+Patrząc na Telimenę i na swych rywalów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Do Tadeusza siedzi Telimena bokiem,\
 Pomięszana, zaledwie śmie nań rzucić okiem;\
