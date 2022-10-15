@@ -1,3 +1,4 @@
+»Jak to? — krzyknął Kiryło — to śmiałbyś, hultaju,\
 Znać się lepiej na łowach i zwierząt rodzaju\
 Niźli ja, Kozodusin, carski jegermajster?\
 Niechajże nas rozsądzi zaraz policmajster!«\
