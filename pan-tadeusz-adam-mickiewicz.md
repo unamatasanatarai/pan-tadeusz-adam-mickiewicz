@@ -1,3 +1,4 @@
+Podkomorzy krążące o wojnie pogłoski\
 Oceniał i wyciągał polityczne wnioski.\
 Panna Wojska, włożywszy okulary sine,\
 Zabawiała kabałą z kart Podkomorzynę.\
