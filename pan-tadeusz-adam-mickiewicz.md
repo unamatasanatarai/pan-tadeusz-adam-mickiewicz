@@ -1,3 +1,4 @@
+Weź za syna lub zabij!« Wtem Stolnik posępny,\
 Zimny jako słup soli, grzeczny, obojętny,\
 Wszczął dyskurs — o czym? o czym? o córki weselu!...\
 W tej chwili! O Gerwazy! uważ, przyjacielu,\
