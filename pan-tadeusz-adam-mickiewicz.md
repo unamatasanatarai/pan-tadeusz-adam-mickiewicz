@@ -1,3 +1,4 @@
+Może nam grozi jakiem nieszczęściem domowem.\
 Mieliśmy wczoraj dosyć rozterku i zwady,\
 Tak w czasie polowania, jako i biesiady.\
 Rejent kłócił się z rana z panem Asesorem,\
