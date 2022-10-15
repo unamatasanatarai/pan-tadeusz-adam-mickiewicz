@@ -1,3 +1,4 @@
+Bo woźni przed procesem, jak szpiegi przed bojem,\
 Muszą kryć się pod różną postacią i strojem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Dobrze zrobił Protazy, że w drogę pośpieszył,\
