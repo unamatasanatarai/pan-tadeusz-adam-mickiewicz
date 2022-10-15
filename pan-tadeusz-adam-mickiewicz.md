@@ -1,3 +1,4 @@
+Pod dom, gdzie szyby okien, twarze ludzi świecą;\
 Bliżej zaś nietoperzów siostrzyczki, ćmy, rojem\
 Wiją się przywabione białym kobiet strojem;\
 Mianowicie przykrzą się Zosi, bijąc w lice\
