@@ -1,3 +1,4 @@
+Nade drzwiami, Dobrzyńskich widne były herby;\
 Lecz armaturę — serów zasłoniły półki\
 I zasklepiły gęsto gniazdami jaskółki.
 
