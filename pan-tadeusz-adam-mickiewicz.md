@@ -1,3 +1,4 @@
+Z jego upadkiem domy i narody giną.\
 Więc do porządku wykli domowi i słudzy;\
 I przyjezdny gość, krewny albo człowiek cudzy,\
 Gdy Sędziego nawiedził, skoro pobył mało,\
