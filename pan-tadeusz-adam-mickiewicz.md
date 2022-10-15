@@ -1,3 +1,4 @@
+Dziś skarzę cię za dawne i za świeże winy,\
 Dziś zdasz mi sprawę z mojej fortuny zaboru,\
 Nim pomszczę się obelgi mojego honoru!»
 
