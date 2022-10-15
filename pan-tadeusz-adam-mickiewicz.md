@@ -1,3 +1,4 @@
+Zabawiała kabałą z kart Podkomorzynę.\
 W drugiej izbie toczyła młodzież rzecz o łowach\
 W spokojniejszych i cichszych niż zwykle rozmowach:\
 Bo Asesor i Rejent, oba mówcy wielcy,\
