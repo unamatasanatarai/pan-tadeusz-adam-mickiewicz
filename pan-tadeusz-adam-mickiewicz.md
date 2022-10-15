@@ -1,3 +1,4 @@
+Ja ciebie dotąd widzę, piękna maro senna!\
 Urodzony w niewoli, okuty w powiciu,\
 Ja tylko jedną taką wiosnę miałem w życiu.
 
