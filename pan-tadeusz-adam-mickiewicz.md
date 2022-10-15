@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Dziś mało go słuchano, nie zważano wcale\
 Na *Sito*, ni na *Smoka*, ani też na *Szale*.\
 Dziś oczy i myśl wszystkich pociąga do siebie\
 Nowy gość dostrzeżony niedawno na niebie:\
