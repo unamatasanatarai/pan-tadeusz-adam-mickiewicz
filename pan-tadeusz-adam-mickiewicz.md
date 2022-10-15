@@ -1,3 +1,4 @@
+Chodziły za nim prosząc i płacząc kobiety.\
 «Majorze — mówił Sędzia — choć pozwiesz do prawa;\
 Cóż wygrasz? Tu nie zaszła żadna bitwa krwawa,\
 Nie było ran; że zjedli kury i półgąski,\
