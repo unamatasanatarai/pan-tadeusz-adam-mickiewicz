@@ -1,3 +1,4 @@
+Widząc, że bladnie i że na nogach się słania,\
 Radził mu odejść do swej izby dla spoczynku.\
 Tadeusz stanął w kącie, wsparł się na kominku,\
 Nic nie mówiąc — szerokie, obłędne źrenice\
