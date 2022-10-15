@@ -1,3 +1,4 @@
+A Litwini nazwali *Maćkiem nad Maćkami*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Jak on nad Dobrzyńskimi, dom jego nad siołem\
 Panował, stojąc między karczmą i kościołem.\
