@@ -1,3 +1,4 @@
+Wydzierali go sobie. Spojrzą, aż tu z pyska\
 Wielkiego, czerwonego dwa rzędy kłów błyska,\
 I łapa z pazurami już się na łby spuszcza;\
 Pobledli, w tył skoczyli i, gdzie rzednie puszcza,\
