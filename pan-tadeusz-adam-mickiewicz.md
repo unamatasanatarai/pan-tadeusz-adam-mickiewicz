@@ -1,3 +1,4 @@
+I chwytając naczynia w ślad panów uciekli,\
 Nawet nakrycia z częścią sprzętów się wyrzekli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Któż ostatni, nie dbając na groźby i razy,\
