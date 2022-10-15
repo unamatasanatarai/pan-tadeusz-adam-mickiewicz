@@ -1,3 +1,4 @@
+A Jacek mówił coraz wolniejszymi słowy\
 I często zarywał się:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Wszak sam wiesz, Gerwazeńku, jak Stolnik zapraszał\
