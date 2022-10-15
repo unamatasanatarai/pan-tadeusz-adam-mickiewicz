@@ -1,3 +1,4 @@
+I dwakroć uderzywszy głowy obie mocne\
 Jedną o drugą, jako jaja wielkanocne,\
 Rozkrzyżował ramiona na kształt drogowskazu\
 I we dwa kąty izby rzucił ich od razu.\
