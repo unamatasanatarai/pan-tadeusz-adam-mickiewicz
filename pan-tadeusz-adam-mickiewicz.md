@@ -1,3 +1,4 @@
+Wyzwałem i zraniłem dwóch braci Buzwików,\
 Którzy... Ale to mniejsza. Jakże wasze myśli?\
 Czy potrzeba, żebyśmy zaraz w pole wyszli?\
 Strzelców zebrać, rzecz łatwa; prochu mam dostatek;\
