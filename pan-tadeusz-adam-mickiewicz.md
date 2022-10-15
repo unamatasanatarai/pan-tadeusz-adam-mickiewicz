@@ -1,3 +1,4 @@
+Odbiły się na łożu o chorego głowę\
 I ubrały mu złotem oblicze i skronie,\
 Że błyszczał jako święty w ognistej koronie.
 
