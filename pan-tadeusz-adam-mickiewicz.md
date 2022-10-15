@@ -1,3 +1,4 @@
+A zapraszał nas klucznik Rębajło Mopanku,\
 Mówiono nam, że wielkie rzeczy dziać się miały,\
 Że tu nie o Dobrzyńskich, lecz o powiat cały,\
 O całą szlachtę idzie; toż i Robak bąkał,\
