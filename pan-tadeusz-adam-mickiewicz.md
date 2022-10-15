@@ -1,3 +1,4 @@
+Jak lis bywalec, gdy go woń słoniny wabi,\
 Bieży ku niej, a strzelców zna fortele skryte,\
 Bieży, staje, przysiada coraz, wznosi kitę\
 I wiatr nią jak wachlarzem ku swym nozdrzom tuli,\
