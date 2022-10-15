@@ -1,3 +1,4 @@
+Wiesz co? na całej Litwie narobim hałasu\
 Wyprawą niesłychaną od dawnego czasu.\
 I sami się zabawim. Dwa lata tu siedzę,\
 Jakąż bitwę widziałem? z chłopami o miedzę!\
