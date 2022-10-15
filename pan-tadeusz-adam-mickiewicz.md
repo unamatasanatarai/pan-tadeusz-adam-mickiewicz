@@ -1,3 +1,4 @@
+Trzeba mieć zdrowie, na wsi żyć, wracać z obławy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Przecież i bez tych przypraw potrawą nie lada\
 Jest bigos, bo się z jarzyn dobrych sztucznie składa.\
