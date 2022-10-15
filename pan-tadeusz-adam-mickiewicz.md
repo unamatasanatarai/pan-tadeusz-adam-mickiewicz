@@ -1,3 +1,4 @@
+Poleruje się gustem, wspiera na prawidłach.\
 Nie dość jest przyrodzenia, nie dosyć zapału:\
 Sztukmistrz musi ulecieć w sfery ideału!\
 Nie wszystko, co jest piękne, wymalować da się!\
