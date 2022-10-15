@@ -1,3 +1,4 @@
+Widzimy tedy, że rząd umową się tworzy,\
 Nie pochodząc, jak mylnie sądzę, z woli Bożej.\
 Owoż, rząd na kontrakcie oparłszy społecznym,\
 Podział władzy już tylko jest skutkiem koniecznym».
