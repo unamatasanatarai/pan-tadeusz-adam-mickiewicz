@@ -1,3 +1,4 @@
+Rękami Telimena; z nią panicze młodzi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem.\
 Podkomorzy najwyższe brał miejsce za stołem:\
