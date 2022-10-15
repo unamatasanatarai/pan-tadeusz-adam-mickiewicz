@@ -1,3 +1,4 @@
+A najstraszniej pan Rejent był zacietrzewiony:\
 Jak raz zaczął, bez przerwy rzecz swoją tokował,\
 I gestami ją bardzo dobitnie malował.\
 (Był dawniej adwokatem pan Rejent Bolesta,\
