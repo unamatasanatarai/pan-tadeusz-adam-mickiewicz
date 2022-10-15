@@ -1,3 +1,4 @@
+Albo ją mnich ustąpić musi przez pokorę,\
 Albo ją kupię choćby dziesiątkiem soboli.\
 Skórą tą rozrządzimy wedle naszej woli:\
 Pierwszy wieniec i sławę już wziął sługa boży;\
