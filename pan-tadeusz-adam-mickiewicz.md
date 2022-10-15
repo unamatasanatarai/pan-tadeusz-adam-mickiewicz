@@ -1,3 +1,4 @@
+Zmieszane z kędziorami snopów. Wiatry wyją,\
 Upadają na rolę, tarzają się, ryją,\
 Rwą skiby, robią otwór wichrowi trzeciemu,\
 Który wydarł się z roli jak słup czarnoziemu,\
