@@ -1,3 +1,4 @@
+Bo Wojski występuje w nowym charakterze\
 Marszałka dworu. Laskę ma na znak urzędu\
 I tą laską z kolei jako mistrz obrzędu,\
 Wskazuje wszystkim miejsca i gości usadza.\
