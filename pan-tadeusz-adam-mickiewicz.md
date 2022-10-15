@@ -1,3 +1,4 @@
+W pole i w domu przyszłą urządza zabawę.\
 Dał rozkaz ekonomom, wójtom i gumiennym,\
 Pisarzom, ochmistrzyni, strzelcom i stajennym\
 I musiał wszystkie dzienne rachunki przezierać.\
