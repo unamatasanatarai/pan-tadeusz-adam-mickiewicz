@@ -1,3 +1,4 @@
+Czuł niewymowny pociąg utopić się w błocie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Telimena z dzikiej młodzieńca postawy\
 Zgadując rozpacz, widząc że pobiegł nad stawy,\
