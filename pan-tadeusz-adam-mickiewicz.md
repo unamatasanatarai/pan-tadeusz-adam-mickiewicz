@@ -1,3 +1,4 @@
+Prawą, rękojeść Rózgi tuż przy piersiach trzyma,\
 Cofa się, Gifrejtera ruch śledząc oczyma;\
 Sam słania się na nogach, jakoby był pijany.\
 Gifrejter bieży prędzej i pewny wygranej;\
