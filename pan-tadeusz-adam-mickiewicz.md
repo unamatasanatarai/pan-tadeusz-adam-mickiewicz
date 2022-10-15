@@ -1,3 +1,4 @@
+My patrzym, a tymczasem szepcą sobie sługi,\
 Że ten czarny niech będzie Horeszko, a drugi\
 Soplica; więc ilekroć szary był na górze\
 Krzyczą: »Wiwat Soplica, pfe Horeszki tchórze!«\
