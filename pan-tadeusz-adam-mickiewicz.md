@@ -1,3 +1,4 @@
+Chwieją się ciągle na kształt tulipanów wodnych;\
 Tysiące oczu jak gwiazd błyskają ku Zosi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ona w środku wysoko nad ptastwem się wznosi;\
