@@ -1,3 +1,4 @@
+Miały zwichnione nogi; stół także kulawy,\
 Obnażony z obrusa, poległ na talerzach\
 Zlanych winem, jak rycerz na krwawych puklerzach,\
 Między licznymi kurcząt i jendyków ciały,\
