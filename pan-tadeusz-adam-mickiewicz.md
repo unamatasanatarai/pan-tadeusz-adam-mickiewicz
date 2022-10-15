@@ -1,3 +1,4 @@
+Przynajmniej z kolegami wesoło pić będziesz\
 Zdrowie Napoleona i Polski nadzieje!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Ha! — rzekł Maciej — słyszałem, widzę co się dzieje!\
