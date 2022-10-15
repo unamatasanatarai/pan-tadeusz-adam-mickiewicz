@@ -1,3 +1,4 @@
+Zadrżał we mchu, najeżył długie włosy grzywy,\
 Wstaje na wpół, na przednich nogach się opiera,\
 I potrząsając brodą, zdziwiony spoziera\
 Na błyskające nagle między łomem zgliszcze:\
