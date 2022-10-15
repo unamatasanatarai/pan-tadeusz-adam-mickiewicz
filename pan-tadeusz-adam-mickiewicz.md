@@ -1,3 +1,4 @@
+A dawnym obyczajem jest naszej rodziny,\
 Zaręczać się i żenić przy wiejskiej muzyce.\
 Patrz, stoi cymbalista, skrzypak i kozice,\
 Poczciwi muzykanci; już się skrzypak zżyma,\
