@@ -1,3 +1,4 @@
+Jeśli tam dotąd szlachty sąsiedzkiej gromada\
 Za gościnnymi stoły Sędziego zasiada:\
 Pewnie tam piją często za Konewki zdrowie;\
 Bez niego już by było dziś po Soplicowie!
