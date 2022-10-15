@@ -1,3 +1,4 @@
+Dziękując Panu Bogu... Do miasta jedziemy,\
 Niby dla interesu, niby nic nie wiemy:\
 Aż tu widzimy wszystkie landraty, hofraty,\
 Komisarze i wszystkie podobne psubraty\
