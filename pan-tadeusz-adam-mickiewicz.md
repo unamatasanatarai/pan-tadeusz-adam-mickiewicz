@@ -1,3 +1,4 @@
+On sam powagę umiał utrzymać nad groźnym\
 Klucznikiem horeszkowskim i kłótliwym Woźnym;\
 Przed Jankielem tłumili dawne swe urazy\
 Gerwazy, groźny ręką, językiem Protazy.
