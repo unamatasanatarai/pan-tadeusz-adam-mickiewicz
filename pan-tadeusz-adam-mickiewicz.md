@@ -1,3 +1,4 @@
+W cząstce spadły dalekim krewnym po kądzieli,\
 A resztę rozdzielono między wierzycieli.\
 Zamku żaden wziąć nie chciał, bo w szlacheckim stanie\
 Trudno było wyłożyć koszt na utrzymanie;\
