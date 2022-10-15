@@ -1,3 +1,4 @@
+Mianowicie przykrzą się Zosi, bijąc w lice\
 I w jasne oczki, które biorą za dwie świéce.\
 Na powietrzu owadów wielki krąg się zbiera,\
 Kręci się, grając jako harmoniki sfera;\
