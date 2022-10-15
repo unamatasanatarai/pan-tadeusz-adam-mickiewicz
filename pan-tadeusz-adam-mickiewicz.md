@@ -1,3 +1,4 @@
+Że wiecznie patrzą na się i najkrótszą drogą\
 Biegą do siebie — ale zbliżyć się nie mogą!»\
 «Dość już tego — przerwała — nie jestem planetą\
 Z łaski Bożej, dość Hrabio: ja jestem kobietą,\
