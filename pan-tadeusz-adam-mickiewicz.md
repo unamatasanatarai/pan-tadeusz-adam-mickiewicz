@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Tu śmiech młodzieży mowę Wojskiego zagłuszył.\
 Wstano od stołu, pierwszy Podkomorzy ruszył,\
 Z wieku mu i z urzędu ten zaszczyt należy,\
 Idąc kłaniał się damom, starcom i młodzieży;\
