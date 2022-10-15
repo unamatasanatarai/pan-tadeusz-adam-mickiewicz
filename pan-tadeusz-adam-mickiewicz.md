@@ -1,3 +1,4 @@
+Opisałem się także przed ziemskim urzędem,\
 Iż pierścień mój sędziemu w salarijum złożę:\
 Fant postawiony w zakład wracać się nie może.\
 Pierścień niechaj pan Wojski na pamiątkę przymie,\
