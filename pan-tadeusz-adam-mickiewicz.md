@@ -1,3 +1,4 @@
+Wznosi się, jak ruchoma piramida toczy,\
 Łbem grunt wierci, z nóg piasek sypie gwiazdom w oczy,\
 Co krok wszerz wydyma się, roztwiera ku górze,\
 I ogromną swą trąbą otrębuje burzę.\
