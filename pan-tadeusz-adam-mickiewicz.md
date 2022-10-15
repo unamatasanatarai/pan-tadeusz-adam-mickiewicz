@@ -1,3 +1,4 @@
+To gadaj szczerze, po co takie omawiania?\
 Jestem twój stryj; choć stary, znam, co serce młode;\
 Byłem ci ojcem (mówiąc gładził go pod brodę),\
 Już w ucho szepnął o tym mnie mój palec mały,\
