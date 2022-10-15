@@ -1,3 +1,4 @@
+Zwierz uszczuty zda mu się być psem, nie jeleniem.\
 »Jak to? — krzyknął Kiryło — to śmiałbyś, hultaju,\
 Znać się lepiej na łowach i zwierząt rodzaju\
 Niźli ja, Kozodusin, carski jegermajster?\
