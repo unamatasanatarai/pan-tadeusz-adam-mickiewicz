@@ -1,3 +1,4 @@
+I teraz woła, aby do niego się łączyć,\
 Uderzyć na Rykowa, zwycięstwo dokończyć.\
 Tymczasem przez posłańca wskazał do Rykowa,\
 Że jeżeli broń złoży, życie swe zachowa;\
