@@ -1,3 +1,4 @@
+Ekonom pobiegł wszystko Sędziemu powiedzieć,\
 Spodziewając się i sam czegoś się dowiedzieć.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W Soplicowie domowi i goście, po kłótni\
