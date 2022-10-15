@@ -1,3 +1,4 @@
+Aż do ziemi, jak gdyby wybijać pokłony.\
 Jeżeli się przybliżą albo się spotkają,\
 Ani mówią do siebie, ani się witają,\
 Głęboko zadumani, w sobie pogrążeni.\
