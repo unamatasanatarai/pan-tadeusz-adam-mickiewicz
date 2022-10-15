@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Myślił zaś w duchu: jeśli nie jest heroiną\
 Romansów, jest młodziuchną, prześliczną dziewczyną.\
 Zbyt często wielka dusza, myśl wielka ukryta\
