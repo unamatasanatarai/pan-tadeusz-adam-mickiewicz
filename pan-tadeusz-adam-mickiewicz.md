@@ -1,3 +1,4 @@
+Przeciw słońcu promienie gwiazdy zajaśniały\
 Jako ostatni odbłysk ziemskiej Jacka chwały.\
 Tymczasem lud na klęczkach Anioł Pański mowi,\
 Upraszając o wieczny pokój grzesznikowi;\
