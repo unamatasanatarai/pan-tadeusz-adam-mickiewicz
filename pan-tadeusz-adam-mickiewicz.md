@@ -1,3 +1,4 @@
+Gerwazy po nim kryślił palcem różne rysy;\
 Widać, że przyszłych wypraw snuł plany wojenne.\
 Ciążą mu coraz bardziej powieki brzemienne,\
 Bezwładną kiwnął szyją, czuł, że go sen bierze,\
