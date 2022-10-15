@@ -1,3 +1,4 @@
+Czy zimą. Ale Wojski zbierał *muchomory*.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Inne pospólstwo grzybów, pogardzone w braku\
 Dla szkodliwości albo niedobrego smaku,\
