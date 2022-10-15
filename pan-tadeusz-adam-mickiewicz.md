@@ -1,3 +1,4 @@
+Pan Pociej, zacny człowiek, chciał zaraz po wojnie\
 Obrońcę Dobrzyńskiego wynagrodzić hojnie;\
 Dawał mu folwark pięciu dymów w dożywocie\
 I wyznaczył mu rocznie tysiąc złotych w złocie.\
