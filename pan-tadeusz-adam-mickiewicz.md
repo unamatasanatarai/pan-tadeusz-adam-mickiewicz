@@ -1,3 +1,4 @@
+Na piasku, bez trzewika była i pończoszki;\
 Na piasku drobnym, suchym, białym na kształt śniegu,\
 Ślad wyraźny, lecz lekki, odgadniesz, że w biegu\
 Chybkim był zostawiony nóżkami drobnemi\
