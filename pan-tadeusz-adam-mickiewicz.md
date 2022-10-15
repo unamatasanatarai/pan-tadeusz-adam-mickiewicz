@@ -1,3 +1,4 @@
+I spór na dalsze czasy trwał nierozstrzygniony.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski stary od izby do izby przechodził,\
 Po obu stronach oczy roztargnione wodził,\
