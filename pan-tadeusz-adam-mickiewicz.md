@@ -1,3 +1,4 @@
+Białopiotrowiczowi samemu odmówił!\
 Bo cóż by on na waszych polowaniach łowił?\
 Piękna byłaby sława, ażeby pan taki\
 Wedle dzisiejszej mody jeździł na szaraki!\
