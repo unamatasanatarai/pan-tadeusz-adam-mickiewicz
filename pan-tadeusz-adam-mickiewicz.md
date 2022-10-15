@@ -1,3 +1,4 @@
+Kozackiemu wieszczowi tyle cudów śpiewa!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ja ileż wam winienem, o domowe drzewa!\
 Błahy strzelec, uchodząc szyderstw towarzyszy\
