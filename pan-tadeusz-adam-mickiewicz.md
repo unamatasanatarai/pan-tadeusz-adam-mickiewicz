@@ -1,3 +1,4 @@
+Który leciał gościńcem, w cwał, bez kapelusza,\
 Z głową schyloną, bladym, posępnym obliczem,\
 A konia ustawicznie bódł i kropił biczem.\
 Ten widok bardzo księdza bernardyna zmieszał,\
