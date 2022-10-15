@@ -1,3 +1,4 @@
+Całe zaczerwienione, jak zdrowe oblicze\
 Gospodarza, gdy prace skończywszy rolnicze\
 Na spoczynek powraca. Już krąg promienisty\
 Spuszcza się na wierzch boru i już pomrok mglisty,\
