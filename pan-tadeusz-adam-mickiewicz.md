@@ -1,3 +1,4 @@
+Gdy Branecki karetą swą ruszył do Jassów\
 I za tą niepoczciwą pociągnął karetą\
 Ogon Targowiczanów, jak za tą kometą;\
 Lud prosty, choć w publiczne nie mieszał się rady,\
