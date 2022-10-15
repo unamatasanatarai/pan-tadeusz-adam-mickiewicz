@@ -1,3 +1,4 @@
+Gdy poważnymi kroki przystąpił Protazy.\
 Skłonił się i wydobył z zanadrza kontusza\
 Panegiryk ogromny, w półtrzecia arkusza.\
 Skomponował go rymem podoficer młody,\
