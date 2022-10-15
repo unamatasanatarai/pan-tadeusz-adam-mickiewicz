@@ -1,3 +1,4 @@
+Tuż myśliwców herbowne klejnoty wyryte,\
 I stoi wypisany każdy po imieniu;\
 Herb Horeszków, Półkozic, jaśniał na sklepieniu.
 
