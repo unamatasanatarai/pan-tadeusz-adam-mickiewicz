@@ -1,3 +1,4 @@
+Na wywrót jedwab czarny posrebrzany w kraty;\
 Pas taki można równie kłaść na strony obie,\
 Złotą na dzień galowy, a czarną w żałobie.\
 Sam Woźny umiał pas ten odwiązywać, składać;\
