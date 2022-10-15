@@ -1,3 +1,4 @@
+Pamiętacie, prosiłem na córki wesele;\
 Poję, nie chce pić, mówi: »Nie piję tak wiele\
 Jak wy szlachta; wy szlachta ciągniecie jak bąki«.\
 Ot magnat! delikacik z marymonckiej mąki!\
