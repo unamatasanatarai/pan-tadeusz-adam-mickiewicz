@@ -1,3 +1,4 @@
+Maleski z Mickiewiczem, a na koniec Hrabia\
 Z Soplicą; i czytając, z tych imion wywabia\
 Pamięć spraw wielkich, wszystkie procesu wypadki,\
 I stają mu przed oczy sąd, strony i świadki;\
