@@ -1,3 +1,4 @@
+Wymuszony przez gwałty, ogłoszony w nocy».\
 «Co za gwałty — rzekł Klucznik — tu nie ma napaści,\
 Wszak proszę pana grzecznie; jeśli ciemno waści,\
 To Scyzorykiem skrzesam ognia, że waszeci\
