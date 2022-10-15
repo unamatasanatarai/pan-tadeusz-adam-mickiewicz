@@ -1,3 +1,4 @@
+W Polsce pierwszy raz słyszę o takim wypadku.\
 Czuję, że we mnie mężnych krew Horeszków płynie!\
 Wiem, co winienem sławie i mojej rodzinie.\
 Tak, muszę zerwać wszelkie z Soplicą układy,\
