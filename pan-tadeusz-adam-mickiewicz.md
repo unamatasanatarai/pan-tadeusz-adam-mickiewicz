@@ -1,3 +1,4 @@
+Jako człek doświadczony i biegły w prawnictwie,\
 Chce Hrabiego osadzić na nowym dziedzictwie\
 Legalnie i formalnie: więc za Woźnym biega,\
 Aż go po długich śledztwach za piecem dostrzega,\
