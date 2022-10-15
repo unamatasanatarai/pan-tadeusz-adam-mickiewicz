@@ -1,3 +1,4 @@
+Co potem był nadwornym marszałkiem królewskim,\
 Na koniec umarł wielkim kanclerzem litewskim,\
 Miawszy lat sto i dziesięć. Ten, za króla Jana\
 Trzeciego, był pod Wiedniem w chorągwi hetmana\
