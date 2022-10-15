@@ -1,3 +1,4 @@
+Na samą myśl procesu czuł, że się odmłodził:\
 Wspomniał na dawne lata, gdy z pozwami chodził\
 Po guzy, ale razem po zapłaty hojne.\
 Tak żołnierz, który strawił życie tocząc wojnę,\
