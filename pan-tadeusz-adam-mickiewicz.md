@@ -1,3 +1,4 @@
+Zosia także się z wolą opiekunów zgadza.\
 Jeśli dziś ślubem pary nie możem uwieńczyć,\
 Toć by ich, panie bracie, przynajmniej zaręczyć\
 Przed odjazdem; bo serce młode i podróżne,\
