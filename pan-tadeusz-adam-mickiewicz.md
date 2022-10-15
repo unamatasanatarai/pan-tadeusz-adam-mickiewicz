@@ -1,3 +1,4 @@
+Albo walczyć oszczepem — lecz z własnej ochoty,\
 A nie z musu: gdyż oszczep strzelcom poruczony\
 Nie dla natarcia, ale tylko dla obrony.\
 Tak było po staremu. A więc mnie zawierzcie,\
