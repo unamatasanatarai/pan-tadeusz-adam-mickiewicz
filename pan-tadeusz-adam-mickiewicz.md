@@ -1,3 +1,4 @@
+Kołnierzyk zadzierzgniony różową zawiązką;\
 Zauszniczki wyrżnięte sztucznie z pestek wiszni,\
 Których się wyrobieniem Sak Dobrzyński pyszni\
 (Były tam dwa serduszka z grotem i płomykiem\
