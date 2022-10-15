@@ -1,3 +1,4 @@
+Myśląc, że Maciej wzrokiem suknie z niego złupi.\
 Dobrzyński tylko dwakroć wyrzekł głośno: «Głupi!»\
 I tak strasznie zgorszył się z Rejenta przebrania,\
 Że zaraz wstał od stołu, i bez pożegnania\
