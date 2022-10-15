@@ -1,3 +1,4 @@
+Wbiega i okiem chciwie ściany starodawne\
 Ogląda czule, jako swe znajome dawne.\
 Też same widzi sprzęty, też same obicia,\
 Z którymi się zabawiać lubił od powicia,\
