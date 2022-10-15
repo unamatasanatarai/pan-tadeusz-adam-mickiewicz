@@ -1,3 +1,4 @@
+Nie wiem, czy się podobna okazja zdarzy\
 Częstować w Soplicowie takich dygnitarzy.\
 Widzę, że pan jenerał na biesiadach zna się,\
 Niechaj przyjmie tę książkę! Ona panu zda się,\
