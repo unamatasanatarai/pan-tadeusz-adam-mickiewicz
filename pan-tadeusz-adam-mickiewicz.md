@@ -1,3 +1,4 @@
+Aby się etykiecie niczym nie sprzeciwić.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Czyż nie piękniejsza nasza poczciwa brzezina,\
 Która jako wieśniaczka, kiedy płacze syna,\
