@@ -1,3 +1,4 @@
+Nie mogłem go uprzedzić, ważna w tym przyczyna:\
 Stary Maciek mnie poznał, a jeśli odkryje,\
 Potrzeba będzie oddać pod Scyzoryk szyję.\
 Nic Klucznika nie wstrzyma! Mniejsza o mą głowę,\
