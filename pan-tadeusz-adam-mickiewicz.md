@@ -1,3 +1,4 @@
+Lubił, może z próżności, nazywać się bratem,\
 Czego mu Telimena przez przyjaźń nie wzbrania.\
 Ulżyły Tadeusza sercu te wyznania.\
 Wiele też innych rzeczy sobie oświadczyli;\
