@@ -1,3 +1,4 @@
+Cała zielna domowa apteka Wojszczanki.\
 Sernica w górze miała wszerz sążni półczwarta,\
 A u dołu na jednym wielkim słupie wsparta\
 Niby gniazdo bocianie. Stary słup dębowy\
