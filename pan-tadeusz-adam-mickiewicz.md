@@ -1,3 +1,4 @@
+Ząjąkał się i piszczał, im dalej, tym gorzéj.\
 Goście w śmiech; musiał przerwać znowu Podkomorzy.\
 «Mości Kluczniku — krzyknął — lub raczej puszczyku,\
 Jeśli dziób twój szanujesz, dość mi tego krzyku».
