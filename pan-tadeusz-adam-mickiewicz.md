@@ -1,3 +1,4 @@
+Woda warstami spada, a na każdej warście\
 Połyskają się blasku miesięcznego garście,\
 Światło w rowie na drobne drzazgi się roztrąca,\
 Chwyta je i w głąb niesie toń uciekająca,\
