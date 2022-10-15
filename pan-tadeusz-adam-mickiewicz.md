@@ -1,3 +1,4 @@
+Wychowaniem i z pana na świecie znaczeniem?\
 Nie pozwolę skrzywdzić się!» Wtem Sędziego słudzy\
 Biegli, jedni z kijami, ze strzelbami drudzy;\
 Wojski, stojąc z daleka, poglądał ciekawie\
