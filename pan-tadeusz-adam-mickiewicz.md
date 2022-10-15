@@ -1,3 +1,4 @@
+Birbasze, Wilbikowie, Biergiele, Kotwicze,\
 Widząc szlachtę Dobrzyńskich w tej ciężkiej niewoli,\
 Zaczęli z dawnych gniewów ostygać powoli:\
 Bo szlachta polska, chociaż niezmiernie kłótliwa\
