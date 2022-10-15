@@ -1,3 +1,4 @@
+Umyśliłem ze szlachty mały pułk zgromadzić\
 I opuścić na zawsze powiat i ojczyznę,\
 Wynieść się gdzie na Moskwę lub na Tatarszczyznę\
 I zacząć wojnę. Jadę pożegnać Stolnika,\
