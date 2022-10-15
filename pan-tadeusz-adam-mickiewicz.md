@@ -1,3 +1,4 @@
+Z okolicznych zaścianków, zbrojni i bezbronni,\
 W kałamaszkach i bryczkach, i piesi, i konni.\
 Stawią wozy, podjezdki do brzezinek wiążą,\
 Ciekawi skutku narad koło domu krążą;\
