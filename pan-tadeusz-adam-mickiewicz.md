@@ -1,3 +1,4 @@
+Od Chrzciciela do Maćka biegając jak cewka\
 Od jednej strony krosien przerzucana w drugą:\
 «Tylko ty, Maćku z Rózgą, ty, Maćku z maczugą;\
 Tylko zgódźcie się: dalbóg, pobijem na druzgi\
