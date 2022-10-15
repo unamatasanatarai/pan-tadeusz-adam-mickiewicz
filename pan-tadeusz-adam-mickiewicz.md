@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W końcu sam już nie wiedząc, jak sobie poradzić,\
 Umyśliłem ze szlachty mały pułk zgromadzić\
 I opuścić na zawsze powiat i ojczyznę,\
