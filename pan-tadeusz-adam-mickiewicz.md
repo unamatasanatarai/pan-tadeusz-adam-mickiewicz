@@ -1,3 +1,4 @@
+Szabli i wielkich wąsów od ucha do ucha.\
 Owoż pan Stolnik nieraz wzywał tego zucha,\
 I ugaszczał w pałacu, zwłaszcza w czas sejmików,\
 Popularny dla jego krewnych i stronników.\
