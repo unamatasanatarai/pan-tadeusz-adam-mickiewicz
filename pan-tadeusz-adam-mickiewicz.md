@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Przeszli już kilka komnat. Gerwazy w milczeniu,\
 Tu wzrok na ścianie wstrzymał, ówdzie na sklepieniu,\
 Przywołując pamiątkę tu smutną, tam miłą;\
 Czasem, jakby chciał mówić: «Wszystko się skończyło»,\
