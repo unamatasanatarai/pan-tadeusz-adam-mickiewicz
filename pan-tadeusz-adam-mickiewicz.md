@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Zdziwili się domowi, patrząc na Robaka,\
 Skąd mu się wzięła mina i wesołość taka.\
 Sędzia wnet kucharzowi powtórzył rozkazy:\
