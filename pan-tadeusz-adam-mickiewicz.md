@@ -1,3 +1,4 @@
+Jak zwyczajnie w sąsiedztwie: to o szkodę skargi,\
 To o wyręby, to o granice zatargi.\
 Jednych gniew, drugich tylko podburzała zawiść\
 Bogactw Sędziego — wszystkich zgodziła nienawiść.\
