@@ -1,3 +1,4 @@
+Poważnie palec wielki ku ziemi naginał,\
 A potem machnął ręką, jak gdyby przecinał\
 Dalszą rozmowę i rzekł: «Klnę się Scyzorykiem,\
 Że Płut nie wyda! gadać już nie będzie z nikim!»\
