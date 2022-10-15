@@ -1,3 +1,4 @@
+Obronny trzęsawicą, tysiącem strumieni\
 I siecią zielsk zarosłych, i kopcami mrowisk,\
 Gniazdami os, szerszeniów, kłębami wężowisk.\
 Gdybyś i te zapory zmógł nadludzkim męstwem,\
