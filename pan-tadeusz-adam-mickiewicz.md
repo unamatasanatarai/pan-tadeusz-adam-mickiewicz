@@ -1,3 +1,4 @@
+Wracał z miasta, ze szkoły: więc o książki nowe,\
 O autorów pytała Tadeusza zdania\
 I ze zdań wyciągała na nowo pytania.\
 Cóż, gdy potem zaczęła mówić o malarstwie,\
