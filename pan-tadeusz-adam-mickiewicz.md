@@ -1,3 +1,4 @@
+Maciek, tam kędy bagnet wkłada się na rurę,\
 Podstawia swą rękojeść, podbija broń w górę\
 I wnet spuszczając Rózgę, tnie Moskala w rękę\
 Raz, i znowu na odlew przecina mu szczękę.\
