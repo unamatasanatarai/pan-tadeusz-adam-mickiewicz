@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Na północ świeci okrąg gwiaździstego *Sita,*\
 Przez które Bóg (jak mówią) przesiał ziarnka żyta,\
 Kiedy je z nieba zrzucał dla Adama ojca\
