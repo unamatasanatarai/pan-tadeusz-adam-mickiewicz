@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;We dworze, gdzie przed chwilą tyle było krzyku,\
 Teraz pusto i głucho jak na mogilniku:\
 Wszyscy ruszyli w pole. Tadeusz nadstawił\
 Uszu i ręce do nich jak trąbki przyprawił;\
