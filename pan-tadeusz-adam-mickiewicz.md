@@ -1,3 +1,4 @@
+Już mu też czas obmyśleć los, postanowienie;\
 Ale zważaj no, aśćka, moje utrapienie!\
 Wiesz, że pan Jacek, brat mój, Tadeusza ociec,\
 Dziwny człowiek, zamiarów jego trudno dociec,\
