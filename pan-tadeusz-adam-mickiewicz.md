@@ -1,3 +1,4 @@
+I szable weźmie, kiedy bić się z kim nie będzie;\
 Napoleon sam wszystkich pobiwszy, nareszcie\
 Powie: »Obejdę się ja bez was, kto jesteście?«\
 Więc nie dość gościa czekać, nie dość i zaprosić,\
