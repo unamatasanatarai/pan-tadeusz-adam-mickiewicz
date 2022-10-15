@@ -1,3 +1,4 @@
+Gdyby choć pięćset z tyłu na Moskwę natarło,\
 Powstanie jako pożar wkoło rozpostarło,\
 Gdybyśmy my, nabrawszy Moskwie harmat, znaków,\
 Zwycięzcy szli powitać wybawców rodaków?...\
