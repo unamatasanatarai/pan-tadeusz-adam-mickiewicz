@@ -1,3 +1,4 @@
+I posiedzenie nasze na jutro solwuję,\
 I dalszych replik stronom dzisiaj nie dozwolę.\
 Woźny! odwołaj sprawę, na jutro na pole.\
 Jutro i Hrabia z całym myślistwem tu zjedzie,\
