@@ -1,3 +1,4 @@
+A Wilii widokiem i szumem Wilejki\
 Ukołysany, marzył o wilku żelaznym,\
 i zbudzony, za bogów rozkazem wyraźnym\
 Zbudował miasto Wilno, które w lasach siedzi\
