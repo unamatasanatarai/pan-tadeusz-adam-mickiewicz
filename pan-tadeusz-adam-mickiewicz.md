@@ -1,3 +1,4 @@
+Lecz mimo Tadeusza pytania i prośby,\
 Ażeby mu wyraźnie, co chce, wytłumaczył,\
 Bernardyn odpowiedzieć ni spojrzeć nie raczył;\
 Kaptur tylko nasunął i pacierz swój kończył,\
