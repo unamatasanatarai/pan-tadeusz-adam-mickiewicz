@@ -1,3 +1,4 @@
+Jechał Hrabia na czele dżokejów szeregu,\
 A zachwycony wdziękiem nocy tak pogodnej\
 I harmonią cudną orkiestry podwodnej,\
 Owych chorów, co brzmiały jak arfy eolskie,\
