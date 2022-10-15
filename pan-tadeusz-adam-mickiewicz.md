@@ -1,3 +1,4 @@
+Gdzie chcesz, jaką chcesz drogą, buja po przestworzu:\
 Czyli jak prorok patrzy w niebo, gdzie w obłoku\
 Wiele jest znaków widnych strzeleckiemu oku;\
 Czy jak czarownik gada z ziemią, która, głucha\
