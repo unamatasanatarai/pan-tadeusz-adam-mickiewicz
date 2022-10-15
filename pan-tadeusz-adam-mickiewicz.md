@@ -1,3 +1,4 @@
+Jeden za drugim lecą, miecąc krople dżdżyste,\
 Wielkie, jasne, okrągłe, jak grady ziarniste.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nagle wichry zwarły się, porwały się w poły,\
