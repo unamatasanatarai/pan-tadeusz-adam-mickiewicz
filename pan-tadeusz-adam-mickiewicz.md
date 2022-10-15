@@ -1,3 +1,4 @@
+Mszę miał w kaplicy leśnej: króciuchna oferta\
 Za myśliwych, msza zwykła świętego Huberta».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po wydanych rozkazach nastało milczenie;\
