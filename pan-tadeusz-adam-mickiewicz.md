@@ -1,3 +1,4 @@
+Pana, zwykł sam przyjmować i zabawiać gości\
 (Daleki krewny pański i przyjaciel domu).\
 Widząc gościa, na folwark dążył po kryjomu,\
 Bo nie mógł wyjść spotykać w tkackim pudermanie;\
