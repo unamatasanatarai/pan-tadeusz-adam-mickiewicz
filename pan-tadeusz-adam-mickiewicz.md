@@ -1,3 +1,4 @@
+Jeden był Mokronowski, szedł z kosą przed frontem,\
 I kanonierowi uciął rękę z lontem.\
 Oj! wy Lachy! Ojczyzna! ja to wszystko czuję,\
 Ja Ryków, car tak każe, a ja was żałuję.\
