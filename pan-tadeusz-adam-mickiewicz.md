@@ -1,3 +1,4 @@
+Gniecie, rani, zabija; gdzie stały szeregi,\
 Leżą drwa, trupy, sery białe jako śniegi,\
 Krwią i mózgiem splamione. Trójkąt w sztuki pryska,\
 A już w środku Kropidło grzmi, już Brzytwa błyska,\
