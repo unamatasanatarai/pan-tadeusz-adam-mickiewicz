@@ -1,3 +1,4 @@
+Bo z pająkiem sam na sam może się borykać.\
 Wszystko to Wojski zbadał i jeszcze dowodził,\
 Że się z tych much szlacheckich pomniejszy lud rodził,\
 Że one tym są muchom, czym dla roju matki,\
