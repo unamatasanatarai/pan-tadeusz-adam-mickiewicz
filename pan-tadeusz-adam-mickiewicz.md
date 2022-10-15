@@ -1,3 +1,4 @@
+Przywiódłszy Mickiewiczów dwiestu z Horbatowicz,\
 Którzy są szlachta liczna i dzielna, człek w człeka,\
 A nienawidzą rodu Sopliców od wieka.
 
