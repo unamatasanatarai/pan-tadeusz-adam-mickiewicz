@@ -1,3 +1,4 @@
+Asesor nowe jeszcze miał powody żalów,\
 Patrząc na Telimenę i na swych rywalów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Do Tadeusza siedzi Telimena bokiem,\
