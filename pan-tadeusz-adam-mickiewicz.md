@@ -1,3 +1,4 @@
+Gdy Hrabia ujrzał zamek i zatrzymał konia.\
 Pierwszy raz widział zamek z rana i nie wierzył,\
 Że to były też same mury; tak odświeżył\
 I upięknił poranek zarysy budowy:\
