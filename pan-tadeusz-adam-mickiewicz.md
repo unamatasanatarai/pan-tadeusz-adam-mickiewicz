@@ -1,3 +1,4 @@
+Otarł prędko, jak kochał pana Tadeusza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W ślad gospodarza wszystko ze żniwa i z boru,\
 I z łąk, i z pastwisk razem wracało do dworu.\
