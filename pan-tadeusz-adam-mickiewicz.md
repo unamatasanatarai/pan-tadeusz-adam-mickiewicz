@@ -1,3 +1,4 @@
+O Gerwazym nie wspomniał nikt, bo wszyscy biegli\
 Z boków i, co się z przodu działo, nie postrzegli.\
 Wojski głos zabrał: «Teraz jest przynajmniej za co;\
 Bo to, panowie, nie jest ów szarak ladaco,\
