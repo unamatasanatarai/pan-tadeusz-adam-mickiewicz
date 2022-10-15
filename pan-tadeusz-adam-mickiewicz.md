@@ -1,3 +1,4 @@
+I objął gospodarstwo; przyrzekł na początek\
 Dać małą wieś, a potem cały swój majątek.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Te wszystkie Tadeusza cnoty i zalety\
