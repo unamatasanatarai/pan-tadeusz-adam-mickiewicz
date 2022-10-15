@@ -1,3 +1,4 @@
+Chciałem zagaić». Na to Telimena zbladła,\
 Złożyła książkę, wstała nieco i usiadła.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jak mamę kocham — rzekła — czy to, panie bracie,\
