@@ -1,3 +1,4 @@
+Patrz, wytknął głowę oknem z kuchni refektarza;\
 Patrz, jak oczy wytrzeszczył, jak pogląda śmiało,\
 Usta otworzył, jakby chciał zjeść izbę całą;\
 Łatwo zgadnąć, że szlachcic ten zawołał: »Veto!«\
