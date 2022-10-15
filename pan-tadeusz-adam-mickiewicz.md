@@ -1,3 +1,4 @@
+Do tronu i Kropidłem, plusk, raz cara zmoczyć:\
 To już by on nie wrócił, ni kijowskim traktem,\
 Ni mińskim, ni za żadnym Buchmana kontraktem;\
 Aniby go wskrzesili z mocy bożej popi,\
