@@ -1,3 +1,4 @@
+Jedna część, pełna izbic ciasnych i podłużnych,\
 Służy dla dam wyłącznie i panów podróżnych;\
 W drugiej ogromna sala: koło każdej ściany\
 Ciągnie się wielonożny stół wąski, drewniany;\
