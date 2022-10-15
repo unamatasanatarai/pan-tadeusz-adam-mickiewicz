@@ -1,3 +1,4 @@
+Budzą się krzycząc z trwogą: «A słowo stało się...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski ukłonem dawał znak Podkomorzemu,\
 A ręką od ust lekko skinął ku Sędziemu,\
