@@ -1,3 +1,4 @@
+Bo nawałnica, boju plac mrokiem okrywszy,\
 Zalała drogi, mosty zerwała na rzece,\
 Z folwarku niedostępną zrobiła fortecę.\
 O tym więc, co się działo w obozie Soplicy,\
