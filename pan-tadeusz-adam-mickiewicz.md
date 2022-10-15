@@ -1,3 +1,4 @@
+Zostawię mu kęs niezły szlacheckiego chleba;\
 Już mu też czas obmyśleć los, postanowienie;\
 Ale zważaj no, aśćka, moje utrapienie!\
 Wiesz, że pan Jacek, brat mój, Tadeusza ociec,\
