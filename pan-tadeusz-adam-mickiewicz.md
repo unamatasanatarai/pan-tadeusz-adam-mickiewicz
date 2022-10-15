@@ -1,3 +1,4 @@
+Takiego, że zginiecie, bo to chytra sztuczka;\
 Trzeba mu gębę zatkać bankowym papierem.\
 No i cóż, panie szlachcic, ty z długim rapierem,\
 Czy już byłeś u Płuta? czyś się z nim naradził?»
