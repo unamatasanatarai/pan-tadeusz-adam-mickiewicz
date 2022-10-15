@@ -1,3 +1,4 @@
+Mignął: w las wpadła; ogon urwał się pod lasem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biedne psy, ogłupiałe, biegały pod gajem,\
 Zdawały się naradzać, oskarżać nawzajem.\
