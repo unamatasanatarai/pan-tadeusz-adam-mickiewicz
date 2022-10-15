@@ -1,3 +1,4 @@
+Jak kot znienacka wypadł, jak źle był poszczuty\
 Na roli, gdzie psom chyba trzeba by wdziać buty,\
 Tak pełno wszędzie głazów i ostrych kamieni...
 
