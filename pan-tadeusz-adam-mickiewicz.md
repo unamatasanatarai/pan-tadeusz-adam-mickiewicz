@@ -1,3 +1,4 @@
+A nie, to was wystrzelam jako w jamie wilki».\
 I to mówiąc wystrzelił, a tak dobrze mierzył,\
 Że porucznika obok Rykowa uderzył.
 
