@@ -1,3 +1,4 @@
+Pochodzi z Jasnej Góry. Księża paulinowie\
 Tabakę taką robią w mieście Częstochowie,\
 Kędy jest obraz tylu cudami wsławiony,\
 Bogarodzicy Panny, Królowej Korony\
