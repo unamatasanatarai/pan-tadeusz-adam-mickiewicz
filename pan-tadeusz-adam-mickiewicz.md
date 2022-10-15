@@ -1,3 +1,4 @@
+Z rozmaitością tęczy blask drogich kamieni:\
 Tylą farb żywych, różnych, mak źrenicę mami.\
 W środku kwiatów, jak pełnia pomiędzy gwiazdami,\
 Krągły słonecznik licem wielkim, gorejącem,\
