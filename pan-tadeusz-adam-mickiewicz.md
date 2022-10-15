@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Domeyki i Doweyki wszystkie sprzeciwieństwa\
 Pochodziły, rzecz dziwna, z nazwisk podobieństwa\
 Bardzo niewygodnego. Bo gdy w czas sejmików,\
 Przyjaciele Doweyki skarbili stronników,\
