@@ -1,3 +1,4 @@
+Wszakże w Warszawskim Księstwie mamy sto tysięcy\
 Wojska polskiego, może wkrótce będzie więcéj:\
 A któż wojsko opłaci? czy nie wy, Litwini?\
 Wy tylko grosz dajecie do moskiewskiej skrzyni».\
