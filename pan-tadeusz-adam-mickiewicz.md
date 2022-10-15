@@ -1,3 +1,4 @@
+Tak, muszę zerwać wszelkie z Soplicą układy,\
 Choćby do pistoletów przyszło lub do szpady!\
 Honor każe». Rzekł, ruszył uroczystym krokiem,\
 A Gerwazy szedł z tyłu w milczeniu głębokiem.\
