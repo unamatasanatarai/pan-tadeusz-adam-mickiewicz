@@ -1,3 +1,4 @@
+Już w ucho szepnął o tym mnie mój palec mały,\
 Że waszeć masz tu jakieś z damami kabały.\
 Za katy, prędko teraz młódź do dam się bierze!\
 No, Tadeuszku, przyznaj mi się waść, a szczerze».
