@@ -1,3 +1,4 @@
+On znowu smyk do Zosi, dybie przez konopie:\
 Złowiłem go, a zatem za uszy i kropię;\
 A on beczy i beczy jak maleńkie chłopię:\
 »Ojcze, choć zabij, muszę tam iść«, a wciąż szlocha —\
