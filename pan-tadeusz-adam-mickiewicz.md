@@ -1,3 +1,4 @@
+Stają dwa chóry: ci pić, a ci jeść wołają.\
 Odgłos leci echami; gdzie tylko dochodzi,\
 Wzbudza oskomę w ustach, głód w żołądkach rodzi.\
 I tak na dane z kuchni hasło, niespodzianie\
