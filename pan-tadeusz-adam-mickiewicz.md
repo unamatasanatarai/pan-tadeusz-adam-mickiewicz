@@ -1,3 +1,4 @@
+Wziąwszy do chwały swojej nadobną Wojszczankę,\
 Przyjaciela mojego córę Hreczeszankę.\
 Pozostała mi tylko pamiątka jej cnoty,\
 Jej wdzięków, i ten oto ślubny pierścień złoty.\
