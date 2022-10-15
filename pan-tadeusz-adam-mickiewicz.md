@@ -1,3 +1,4 @@
+Rubasznie wywijając pasek z ogórkami.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Już na dziedzińcu słychać myśliwskie okrzyki;\
 Wyprowadzają konie, zajeżdżają bryki,\
