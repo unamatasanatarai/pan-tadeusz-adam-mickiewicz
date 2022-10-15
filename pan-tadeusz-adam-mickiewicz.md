@@ -1,3 +1,4 @@
+Krzyknąć, nim głos Hrabiego usłyszał Gerwazy.\
 Szlachcic to był, służący dawnych zamku panów,\
 Pozostały ostatni z Horeszki dworzanów;\
 Starzec wysoki, siwy, twarz miał czerstwą, zdrową,\
