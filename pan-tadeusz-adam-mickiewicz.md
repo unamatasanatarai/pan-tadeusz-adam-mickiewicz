@@ -1,3 +1,4 @@
+Wspomina swe dawniejsze do Zosi konkury;\
 Jak lubił dla niej nosić kwiaty, pleść koszyczki,\
 Wybierać gniazda ptasie, robić zauszniczki.\
 Niewdzięczna! Chociaż tyle pięknych darów strwonił,\
