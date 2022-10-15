@@ -1,3 +1,4 @@
+Przypominając polskie fechtarskie wykręty:\
 *Krzyżową sztukę, młyńca, cios krzywy, raz cięty,*\
 *Cios kradziony* i tempy *kontrpunktów, tercetów,*\
 Które też umiał, bo był ze szkoły kadetów.
