@@ -1,3 +1,4 @@
+Swój róg bawoli, długi, cętkowany, kręty\
 Jak wąż boa, oburącz do ust go przycisnął,\
 Wzdął policzki jak banię, w oczach krwią zabłysnął,\
 Zasunął wpół powieki, wciągnął w głąb pół brzucha\
