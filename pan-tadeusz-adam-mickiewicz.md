@@ -1,3 +1,4 @@
+Pan Rejent wiódł Kusego, Asesor Sokoła.\
 Z tyłu damy w pojazdach; młodzieńcy, stronami\
 Cwałując tuż przy kołach, gadali z damami.
 
