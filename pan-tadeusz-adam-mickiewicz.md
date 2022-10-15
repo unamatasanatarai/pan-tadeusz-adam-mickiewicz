@@ -1,3 +1,4 @@
+Lub jeśli która wpadnie, trzy dni będzie bzykać,\
 Bo z pająkiem sam na sam może się borykać.\
 Wszystko to Wojski zbadał i jeszcze dowodził,\
 Że się z tych much szlacheckich pomniejszy lud rodził,\
