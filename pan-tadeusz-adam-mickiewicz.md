@@ -1,3 +1,4 @@
+Na wspomnienie Moskala, zawsze rękę zwracał\
 Na lewy bok: zapewne Rózeczki swej macał;\
 I stąd był nazywany powszechnie *Zabokiem*).\
 Już wzniósł głowę; słuchają w milczeniu głębokiem.\
