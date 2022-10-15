@@ -1,3 +1,4 @@
+«Za drzwi z nim!» Podkomorzy krzyknął.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    «Panie Hrabia! —\
 Zawołał Klucznik — widzisz pan, co się wyrabia.\
