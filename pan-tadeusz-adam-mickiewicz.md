@@ -1,3 +1,4 @@
+To cięcie znane tylko w Rębajłów zaścianku,\
 Od mojego imienia zwane *cios mopanku*;\
 Któż to pana nauczył? to jest moje cięcie,\
 Moje!» Wstał, jenerała porwawszy w objęcie:\
