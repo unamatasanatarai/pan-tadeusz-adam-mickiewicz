@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Weszli w zamek; Gerwazy stanął w progu sieni:\
 «Tu — rzekł — dawni panowie dworem otoczeni,\
 Często siadali w krzesłach w poobiedniej porze.\
 Pan godził spory włościan lub w dobrym humorze\
