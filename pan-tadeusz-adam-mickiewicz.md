@@ -1,3 +1,4 @@
+Podług ustaw wojennych, za takową psotę,\
 Pójdziecie już to najmniej w sybirną robotę».\
 «Apeluję — rzekł Sędzia — do gubernatora».\
 «Apeluj — rzekł Płut — choćby do Imperatora.\
