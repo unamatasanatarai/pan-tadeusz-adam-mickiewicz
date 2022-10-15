@@ -1,3 +1,4 @@
+Wpada w kotuch Konewka, jedne ptaki zdusza,\
 A drugie żywcem wiąże do pasa kontusza.\
 Próżno gęsi szyjami wywijając, chrypią,\
 Próżno gęsiory sycząc, napastnika szczypią;\
