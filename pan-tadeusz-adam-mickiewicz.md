@@ -1,3 +1,4 @@
+Możem zanadto czynnie z powstaniem się krzątał!\
 Pono źle zrozumieli! Klucznik wszystko splątał!\
 Ten wariat Hrabia, słyszę, pobiegł do Dobrzyna,\
 Nie mogłem go uprzedzić, ważna w tym przyczyna:\
