@@ -1,3 +1,4 @@
+Pijawki Podkomorzego dzierżą go pod uszy,\
 Z lewej strony Strapczyna, a z prawej zawisał\
 Sprawnik i dusząc gardziel krew czarną wysysał.
 
