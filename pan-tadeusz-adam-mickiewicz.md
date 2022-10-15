@@ -1,3 +1,4 @@
+I tak cała wygląda biała jak lilija.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Poprawiwszy raz jeszcze i włosów, i stroju,\
 Kazano jej wzdłuż i wszerz przejść się po pokoju.\
