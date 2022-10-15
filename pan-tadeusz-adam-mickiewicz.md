@@ -1,3 +1,4 @@
+Tupnąwszy nogą, usta ścisnąwszy, rzekł: «Głupia!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Odszedł; lecz wyraz «podłość» echem się powtórzył\
 W sercu. Wzdrygnął się młodzian, czuł, że nań zasłużył,\
