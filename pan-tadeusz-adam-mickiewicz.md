@@ -1,3 +1,4 @@
+Ścisnął gryf krzepko, oparł brodę o podstawek\
 I smyk jak konia w zawód puścił po skrzypicy.\
 Na to hasło, stojący obok kobeźnicy,\
 Jak gdyby w skrzydła bijąc, częstym ramion ruchem\
