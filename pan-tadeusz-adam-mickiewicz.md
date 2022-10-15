@@ -1,3 +1,4 @@
+Tylko słychać raz po raz tętent kopyt głuchy\
 I, co dziwniejsza jeszcze, szczękanie pałaszy:\
 Bardzo to Ekonoma i cieszy, i straszy.\
 Bo choć na Litwie było naonczas spokojnie,\
