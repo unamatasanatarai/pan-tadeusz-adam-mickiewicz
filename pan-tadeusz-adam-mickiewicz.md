@@ -1,3 +1,4 @@
+I rozszerza się w górze na kształt baldakimu.\
 Nad płomieniem oszczepy złożono w koziołki,\
 Na grotach zawieszono brzuchate kociołki;\
 Z wozów niosą jarzyny, mąki i pieczyste,\
