@@ -1,3 +1,4 @@
+Bo ja po oficersku ukarzę panienkę...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;To mówiąc skoczył, chwycił Telimeny rękę,\
 I szerokim całusem w blade ramię klasnął;\
