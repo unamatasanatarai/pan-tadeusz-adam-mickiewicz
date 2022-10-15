@@ -1,3 +1,4 @@
+Nie można było, głupi, ani się rozmówić,\
 Głupi, ani porządku, ani postanowić\
 Wodza nad wami, głupi! A niech no kto podda\
 Osobiste urazy, głupi, u was zgoda!\
