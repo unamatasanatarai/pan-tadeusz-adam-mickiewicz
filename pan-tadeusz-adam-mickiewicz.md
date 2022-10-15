@@ -1,3 +1,4 @@
+A owa pulchność liców i rumieńca żywość,\
 Malująca zbyteczną, prostacką szczęśliwość!\
 Znak, że myśl jeszcze drzemie, że serce nieczynne!\
 I owe odpowiedzi, tak wiejskie, tak gminne!\
