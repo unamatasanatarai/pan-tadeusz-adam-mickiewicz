@@ -1,3 +1,4 @@
+Ozwały się doń zewsząd głosami przeszłości.\
 Zbudził się z marzeń, wspomniał gdzie, u kogo gości:\
 Dziedzic Horeszków, gościem śród swych własnych progów,\
 Biesiadnikiem Sopliców, swych odwiecznych wrogów!\
