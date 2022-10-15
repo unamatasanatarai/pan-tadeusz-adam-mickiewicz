@@ -1,3 +1,4 @@
+Tyż to jesteś ów sławny rębacz Kościuszkowski,\
 Ów Maciej, zwany Rózga! znam ciebie ze sławy.\
 I proszę, takiś dotąd czerstwy, taki żwawy!\
 Ileż to lat minęło! Patrz, jam się podstarzał;\
