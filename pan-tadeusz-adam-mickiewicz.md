@@ -1,3 +1,4 @@
+Kiedy widziałem w domu naszym nieboszczyka\
 Sapiehę, pancernego znaku porucznika,\
 Co potem był nadwornym marszałkiem królewskim,\
 Na koniec umarł wielkim kanclerzem litewskim,\
