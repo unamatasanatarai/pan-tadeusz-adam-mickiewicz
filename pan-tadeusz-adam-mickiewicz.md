@@ -1,3 +1,4 @@
+Dziedzictwo starożytnej rodziny Horeszków;\
 Dziedzic zginął był w czasie krajowych zamieszków.\
 Dobra całe zniszczone sekwestrami rządu,\
 Bezładnością opieki, wyrokami sądu,\
