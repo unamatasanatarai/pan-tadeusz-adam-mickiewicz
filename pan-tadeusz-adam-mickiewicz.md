@@ -1,3 +1,4 @@
+Tu Kościuszko w czamarce krakowskiej, z oczyma\
 Podniesionymi w niebo, miecz oburącz trzyma;\
 Takim był, gdy przysięgał na stopniach ołtarzów,\
 Że tym mieczem wypędzi z Polski trzech mocarzów,\
