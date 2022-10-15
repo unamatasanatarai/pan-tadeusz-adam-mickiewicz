@@ -1,3 +1,4 @@
+Pójdź, księże, wypijemy zdrowie jegomości».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Próżno szukano księdza; wiedzą tylko tyle,\
 Że po zabiciu źwierza zjawił się na chwilę,\
