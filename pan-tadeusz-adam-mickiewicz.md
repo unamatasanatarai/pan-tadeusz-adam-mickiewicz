@@ -1,3 +1,4 @@
+Czyli jak prorok patrzy w niebo, gdzie w obłoku\
 Wiele jest znaków widnych strzeleckiemu oku;\
 Czy jak czarownik gada z ziemią, która, głucha\
 Dla mieszczan, mnóstwem głosów szepce mu do ucha.
