@@ -1,3 +1,4 @@
+Uważają tak jako mieszczanie karetę;\
 Wiedzą, czyli zajeżdża przed króla stolicę,\
 Czyli z rogatek miejskich rusza za granicę;\
 Lecz kto w niej jechał? po co? co z królem rozmawiał?\
