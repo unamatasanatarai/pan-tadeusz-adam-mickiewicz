@@ -1,3 +1,4 @@
+Wzniósł ręce, grozi mówcy, usta mu zatyka,\
 Pewnie słyszał pochwały swego przeciwnika;\
 Ten drugi, pochyliwszy czoło na kształt byka,\
 Powiedziałbyś, że mówcę pochwyci na rogi;\
