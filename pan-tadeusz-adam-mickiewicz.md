@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ryków, Podkomorzego zwalczony powagą,\
 Skłonił się i oddał mu swoję szpadę nagą,\
 Skrwawioną po rękojeść, i rzekł: «Lachy braty!\
 Oj biada mnie, żem nie miał choć jednej armaty!\
