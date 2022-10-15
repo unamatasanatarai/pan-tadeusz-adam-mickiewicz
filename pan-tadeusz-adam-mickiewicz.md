@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W tej burzy uczuć jakby kotwica spoczynku\
 Zabłysnęła mu nagle myśl o pojedynku:\
 «Zamordować Hrabiego! łotra! krzyknął w gniewie,\
