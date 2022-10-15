@@ -1,3 +1,4 @@
+I z zadziwieniem wielki rapier opatrywał\
 I innym oficerom w kolej pokazywał.\
 Próbowali go wszyscy, ale ledwie który\
 Z oficerów mógł podnieść ten rapier do góry.\
