@@ -1,3 +1,4 @@
+W końcu sekret kucharski: ryba niekrojona\
 U głowy przysmażona, we środku pieczona,\
 A mająca potrawkę z sosem u ogona.
 
