@@ -1,3 +1,4 @@
+We dworze żadna izba nie ma obszerności\
 Dostatecznej dla tylu, tak szanownych gości,\
 W zamku sień wielka, jeszcze dobrze zachowana,\
 Sklepienie całe — wprawdzie pękła jedna ściana,\
