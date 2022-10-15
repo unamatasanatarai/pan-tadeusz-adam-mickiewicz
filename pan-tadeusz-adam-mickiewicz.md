@@ -1,3 +1,4 @@
+Mam już projekt zamiany, fundum wynagrodzić\
 Ziemią, w sposób następny...» Tu zaczął wywodzić\
 Porządnie (jak zwykł zawsze) plan przyszłej zamiany.\
 Już był w połowie rzeczy: gdy ruch niespodziany\
