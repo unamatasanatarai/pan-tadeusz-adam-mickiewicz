@@ -1,3 +1,4 @@
+Znajdzie się tam półsztuczek płótna, masła faska,\
 Baran lub krówka; wspomnij księże na te słowa:\
 Szczęśliwy człowiek, trafił jak ksiądz do Zubkowa».\
 «I do nas» — rzekł Skołuba. «Do nas — Terajewicz —\
