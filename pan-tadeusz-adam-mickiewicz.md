@@ -1,3 +1,4 @@
+Może go ona kocha, za męża wybierze?\
 Jakimże prawem chciałbym zerwać to zamęście,\
 I, sam nieszczęśnik, wszystkich mam zaburzać szczęście?»
 
