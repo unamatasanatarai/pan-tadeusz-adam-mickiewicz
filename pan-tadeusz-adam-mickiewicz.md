@@ -1,3 +1,4 @@
+To Scyzorykiem skrzesam ognia, że waszeci\
 Zaraz w ślepiach jak w siedmiu kościołach zaświeci».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Gerwazeńku — rzekł Woźny — po co się tak dąsać?\
