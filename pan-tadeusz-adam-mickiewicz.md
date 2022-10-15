@@ -1,3 +1,4 @@
+Niejeden panicz krzyczy, że nie cierpi zbytków:\
 Je jak Żyd, skąpi gościom potraw i napitków,\
 Węgrzyna pożałuje, a pije szatańskie\
 Fałszywe wino modne, moskiewskie, szampańskie;\
