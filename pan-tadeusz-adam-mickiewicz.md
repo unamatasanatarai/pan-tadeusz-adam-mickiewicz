@@ -1,3 +1,4 @@
+Tadeusz i sąsiadka, tym głosu wybuchem\
 Znienacka przestraszeni właśnie w pół rozmowy,\
 Odstrychnęli od siebie mimowolnie głowy,\
 Jako wierzchołki drzewa powiązane społem\
