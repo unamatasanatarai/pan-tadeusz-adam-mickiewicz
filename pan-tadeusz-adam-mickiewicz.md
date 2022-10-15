@@ -1,3 +1,4 @@
+Roznoszono potrawy, sztućce i butelki.\
 Mężczyźni tak jak weszli, w swych zielonych strojach,\
 Z talerzami, z szklankami, chodząc po pokojach,\
 Jedli, pili lub wsparci na okien uszakach,\
