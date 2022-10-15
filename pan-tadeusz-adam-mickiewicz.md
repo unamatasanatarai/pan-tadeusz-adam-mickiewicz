@@ -1,3 +1,4 @@
+I dalibóg, że nigdy ciebie nie zapomnę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena skoczywszy padła mu na szyję:\
 «Tegom się spodziewała! Kochasz mnie, więc żyję!\
