@@ -1,3 +1,4 @@
+Panie Buchman, waścina rzecz bardzo wymowna,\
 Ale wymowa szum, drum: kropić! to rzecz główna».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«To, to, to!» pisnął, ręce trąc, Bartek Brzytewka,\
