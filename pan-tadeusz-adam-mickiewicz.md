@@ -1,3 +1,4 @@
+Lżyć w domu panów moich? i panże to zniesie!»\
 Wtem Protazy zawołał trzykroć: «Uciszcie się!\
 Na ustęp! Ja, Protazy Baltazar Brzechalski,\
 Dwojga imion, generał niegdyś trybunalski,\
