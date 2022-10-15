@@ -1,3 +1,4 @@
+Rejtan wypłatał sztukę książęciu Denassów.\
 Tej sztuki omal własnym nie przypłacił zdrowiem:\
 Jam kłótnię panów zgodził, jak — to wam opowiem».\
 Ale Wojskiego powieść przerwali kucharze,\
