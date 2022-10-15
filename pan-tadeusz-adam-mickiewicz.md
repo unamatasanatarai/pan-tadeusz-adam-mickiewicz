@@ -1,3 +1,4 @@
+Pochyliwszy konary mchem kołtunowate\
 I pnie garbiąc, brzydkimi grzybami brodate,\
 Siedzą wokoło wody jak czarownic kupa\
 Grzejąca się nad kotłem, w którym warzą trupa.
