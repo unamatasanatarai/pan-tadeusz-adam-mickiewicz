@@ -1,3 +1,4 @@
+Wesoł, na pannę młodą patrzył tryumfalnie.\
 Panna młoda kończyła robić gotowalnię:\
 Siedziała przed zwierciadłem radząc się bóstw wdzięku;\
 Pokojowe zaś, jedne z żelazkami w ręku\
