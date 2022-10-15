@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gdy śmiejąc się fechtował, Rębajło już klęczał,\
 Objął go za kolana i ze łzami jęczał;\
 Za każdym zwrotem miecza: «Pięknie! jenerale,\
 Czyś był konfederatem? pięknie, doskonale!\
