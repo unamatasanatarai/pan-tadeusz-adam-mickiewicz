@@ -1,3 +1,4 @@
+Odmawiał jego prośbom; dziś przyjął ofiarę,\
 Dla naglącej potrzeby.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Woźny patrzy, czuwa:\
