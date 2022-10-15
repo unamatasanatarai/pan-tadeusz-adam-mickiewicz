@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Po zawarciu układów wyszedł z izby Ryków,\
 A Robak kazał wezwać szlachtę wojowników,\
 Do których Podkomorzy z powagą tak mówi:\
