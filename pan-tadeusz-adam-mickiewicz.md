@@ -1,3 +1,4 @@
+Niesie w puszczę muzykę i podwaja echem.\
 Umilkli strzelcy, stali szczwacze zadziwieni\
 Mocą, czystością, dziwną harmoniją pieni.\
 Starzec cały kunszt, którym niegdyś w lasach słynął,\
