@@ -1,3 +1,4 @@
+Pan Tadeusz z przeciwnej przybliżył się strony,\
 Udając, że szukanie grzybów tam go zwabia.\
 W tymże kierunku z wolna posuwa się Hrabia.
 
