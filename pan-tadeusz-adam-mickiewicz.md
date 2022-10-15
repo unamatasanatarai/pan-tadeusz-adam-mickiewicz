@@ -1,3 +1,4 @@
+Gdy musiałem nawzajem ściskać go uprzejmie:\
 To tak we mnie złość wrzała, że ja obracałem\
 Ślinę w gębie, a dłonią rękojeść ściskałem,\
 Chcąc plunąć na tę przyjaźń i wnet szabli dostać;\
