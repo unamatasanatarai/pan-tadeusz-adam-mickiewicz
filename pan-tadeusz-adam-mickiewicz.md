@@ -1,3 +1,4 @@
+Jakby myśl z myślą, wyraz sam zbiegł się z wyrazem,\
 Wszyscy jednogłośnie, jak na dane hasło,\
 Krzyknęli: «Dąbrowskiego!» Wszystko razem wrzasło,\
 Wszystko się uścisnęło: chłop z tatarskim hrabią,\
