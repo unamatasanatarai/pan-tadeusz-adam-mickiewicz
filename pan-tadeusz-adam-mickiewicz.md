@@ -1,3 +1,4 @@
+Wolał gości przeprosić i w pustki prowadzić.\
 Po drodze Woźny ciągle Sędziemu tłumaczył,\
 Dlaczego urządzenie pańskie przeinaczył:\
 We dworze żadna izba nie ma obszerności\
