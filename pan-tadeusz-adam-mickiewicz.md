@@ -1,3 +1,4 @@
+I...» — «Nie będę — rzekł Hrabia — szczęścia pani kłócił»\
 I oczy pełne smutku i wzgardy odwrócił.\
 I ażeby ukarać niewierną kochankę,\
 Za przedmiot stałych ogniów wziął Podkomorzankę.
