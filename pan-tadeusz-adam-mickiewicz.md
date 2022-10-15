@@ -1,3 +1,4 @@
+Odgłos to był szukania i nawoływania,\
 Hasło zakończonego na dziś grzybobrania;\
 Odgłos nie smutny wcale ani pogrzebowy,\
 Jak się Hrabiemu zdało: owszem, obiadowy.\
