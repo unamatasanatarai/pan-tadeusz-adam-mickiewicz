@@ -1,3 +1,4 @@
+Płacił za włość podatki: a nie tak jest w Klecku,\
 Choć tam waść, panie Buchman, rządzisz po niemiecku.\
 Sędzia zdrajca! My się z nim od infimy znamy:\
 Poczciwe było dziecko i dziś taki samy;\
