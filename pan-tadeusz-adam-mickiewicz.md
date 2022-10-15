@@ -1,3 +1,4 @@
+Kredą, nie na wicinie, lecz na pergaminie.\
 Nie nam to pisać akta; ma Polska pisarzy\
 Koronnych i litewskich, tak robili starzy;\
 Moja rzecz Scyzorykiem wyrzynać». «Kropidłem\
