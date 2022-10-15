@@ -1,3 +1,4 @@
+Biesiadnikiem Sopliców, swych odwiecznych wrogów!\
 A przy tym zawiść, którą czuł dla Tadeusza,\
 Tym mocniej Hrabię przeciw Soplicom porusza.
 
