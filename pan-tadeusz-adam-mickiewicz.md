@@ -1,3 +1,4 @@
+Sopliców, do wsi, gruntów zasianych, ugoru,\
 Słowem, cum gais, boris et graniciebus,\
 Kmetonibus, scultetis, et omnibus rebus\
 Et quibusdam aliis. Jak tam wiesz, tak szczekaj,\
