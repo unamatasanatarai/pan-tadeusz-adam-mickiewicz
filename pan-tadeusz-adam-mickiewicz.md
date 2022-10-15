@@ -1,3 +1,4 @@
+Obok poważnym krokiem szła jego kochanka\
 Ubrana bardzo strojnie, Tekla Hreczeszanka;\
 Bo Asesor już dawno Telimenę rzucił,\
 I aby tę kokietkę tym mocniej zasmucił,\
