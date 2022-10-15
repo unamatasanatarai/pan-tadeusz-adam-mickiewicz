@@ -1,3 +1,4 @@
+A potem, czegóż jeszcze wlazł mi tu ten Hrabia?\
 Z jakim prawem do zamku? Wszak wiesz przyjacielu,\
 On Horeszkom dziesiąta woda na kisielu!\
 I ma mnie lżyć? a ja go zapraszać do zgody!»\
