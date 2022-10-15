@@ -1,3 +1,4 @@
+Z kilką przyjaciół siadłszy przy kominie,\
 Drzwi od Europy zamykał hałasów,\
 Wyrwał się myślą do szczęśliwszych czasów,\
 I dumał, marzył o swojej krainie...
