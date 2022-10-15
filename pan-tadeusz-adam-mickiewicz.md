@@ -1,3 +1,4 @@
+On jeszcze chciał zadrzemać i kręcił się wkoło,\
 Chroniąc się blasku. Nagle usłyszał stuknienie,\
 Przebudził się: wesołe było przebudzenie.\
 Czuł się rzeźwym jak ptaszek, z lekkością oddychał,\
