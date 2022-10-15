@@ -1,3 +1,4 @@
+Wszystkie zacnie zrodzone, każda młoda, ładna:\
 Tadeusz tam pogląda, gdzie nie siedzi żadna.\
 To miejsce jest zagadką; młodź lubi zagadki;\
 Roztargniony, do swojej nadobnej sąsiadki\
