@@ -1,3 +1,4 @@
+Wpadłszy niebacznie między bagna, mchy i jary,\
 Wnętrznej ich okropności rażone widokiem,\
 Uciekają skowycząc z obłąkanym wzrokiem;\
 I długo potem ręką pana już głaskane,\
