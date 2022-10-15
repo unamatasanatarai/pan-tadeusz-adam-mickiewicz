@@ -1,3 +1,4 @@
+Przesuwają w jasełkach ukryte chłopięta.\
 Biegła i wszystkich lekkim witając ukłonem,\
 Chciała usieść na miejscu sobie zostawionem:\
 Trudno było; bo krzeseł dla gości nie stało,\
