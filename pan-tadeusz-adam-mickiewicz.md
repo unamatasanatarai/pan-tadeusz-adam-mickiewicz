@@ -1,3 +1,4 @@
+A kto siedział pośrodku, nie trafił do ładu,\
 Zwłaszcza przy niewyraźnej mowie w czas obiadu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gorzej było. Raz w Wilnie jakiś szlachcic pjany\
