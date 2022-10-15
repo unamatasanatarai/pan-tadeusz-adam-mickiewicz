@@ -1,3 +1,4 @@
+Dowodzi, że posiadłość tam ma albo bierze;\
 Nawet strony przeciwne weźmiemy na świadki:\
 Pamiętam za mych czasów podobne wypadki».
 
