@@ -1,3 +1,4 @@
+W tydzień jeden tak lud nasz Prusaków wychłostał\
 I wygnał, na lekarstwo Niemca byś nie dostał!\
 Gdyby się tak obrócić i gracko, i raźnie,\
 I u nas w Litwie sprawić Moskwie taką łaźnię?\
