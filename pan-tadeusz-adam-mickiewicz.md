@@ -1,3 +1,4 @@
+«Jeśli zdrajca — rzekł Buchman — więc na szubienicę!»\
 «Hejże! — krzyknęli wszyscy — hejże na Soplicę!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Prusak śmiał podjąć się Sędziego obrony,\
