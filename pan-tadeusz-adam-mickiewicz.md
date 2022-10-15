@@ -1,3 +1,4 @@
+I której żartem skromne dał imię *Rózeczki*.\
 Z konfederata stał się stronnikiem królewskim,\
 I trzymał z Tyzenhauzem, podskarbim litewskim;\
 Lecz gdy król w Targowicy przyjął uczestnictwo,\
