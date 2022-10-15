@@ -1,3 +1,4 @@
+I wszyscy «Marsz Dąbrowski!» chórem okrzyknęli.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Muzyk, jakby sam swojej dziwił się piosence,\
 Upuścił drążki z palców, podniósł w górę ręce;\
