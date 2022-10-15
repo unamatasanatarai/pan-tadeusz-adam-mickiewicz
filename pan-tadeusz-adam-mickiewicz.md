@@ -1,3 +1,4 @@
+Więc zdziwiony niezmiernie biegł pędem do gaju.
 
 Grzybów było w bród. Chłopcy biorą krasnolice,\
 Tyle w pieśniach litewskich sławione *lisice*,\
