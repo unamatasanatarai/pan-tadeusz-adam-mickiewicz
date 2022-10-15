@@ -1,3 +1,4 @@
+I czworgiem rąk wokoło wiją jak skrzydłami.\
 Zląkł się, chciał przeżegnać się: darmo rękę chwyta,\
 Ręka prawa jak gdyby do boku przybita;\
 Ruszył lewą: niestety! czuje, że go duchy\
