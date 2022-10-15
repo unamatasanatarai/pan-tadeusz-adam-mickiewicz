@@ -1,3 +1,4 @@
+Czy ów kluczyk nie uciekł? Ręką nawet chwytał\
 I kręcił kartkę, której dotąd nie przeczytał.\
 Sędzia Podkomorzemu węgrzyna, szampana\
 Dolewał, służył pilnie, ściskał za kolana,\
