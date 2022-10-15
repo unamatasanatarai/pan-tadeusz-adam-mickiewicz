@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«A co? — krzyknął Asesor, kręcąc strzelby rurą —\
 A co? fuzyjka moja? górą nasi, górą!\
 A co? fuzyjka moja? niewielka ptaszyna,\
