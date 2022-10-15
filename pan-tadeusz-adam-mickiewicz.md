@@ -1,3 +1,4 @@
+Które, wychodząc tłumnie, razem z ust tak wielu,\
 Dążyły przecież wszystkie do jednego celu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Na wieś! — zawołał Sędzia — hej! konno, setnika!\
