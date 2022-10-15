@@ -1,3 +1,4 @@
+Kto wystąpi z oszczepem, temu z robocizny\
 Wytrącić dwa szarwarki i pięć dni pańszczyzny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«W skok — krzyknął Podkomorzy — okulbaczyć siwą,\
