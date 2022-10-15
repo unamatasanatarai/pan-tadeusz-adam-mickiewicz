@@ -1,3 +1,4 @@
+Nachmurzył brwi i znowu głowę na pierś schylił.\
 Na koniec odezwał się, z wolna każde słowo\
 Wymawiając z przyciskiem, a w takt kiwał głową.
 
