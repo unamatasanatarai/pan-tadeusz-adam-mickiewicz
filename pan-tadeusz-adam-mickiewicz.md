@@ -1,3 +1,4 @@
+Piękniejsze jest niż obcej mody małpowanie,\
 Milczał; bo by krzyczała młodzież, że przeszkadza\
 Kulturze, że tamuje progresy, że zdradza!\
 Taka była przesądów owoczesnych władza!
