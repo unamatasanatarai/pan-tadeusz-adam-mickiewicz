@@ -1,3 +1,4 @@
+Jest to dziwak, fantastyk trochę, ale młody,\
 Poczciwy, dobry Polak: potrzebny nam taki.\
 W rewolucyjach bardzo potrzebne dziwaki:\
 Wiem z doświadczenia; nawet głupi się przydadzą,\
