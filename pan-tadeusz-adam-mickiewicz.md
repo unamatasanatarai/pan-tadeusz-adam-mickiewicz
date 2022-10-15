@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia mu na to rzecze: «Panie Kapitanie,\
 Żeś człek poczciwy, wiedzą tu wszyscy ziemianie,\
 U których na kwaterach stałeś od lat wielu.\
