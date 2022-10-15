@@ -1,3 +1,4 @@
+Że to był Hrabia w długim, angielskim surducie.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wieczerzano w zamczysku. Uparty Protazy,\
 Nie dbając na wyraźne Sędziego zakazy,\
