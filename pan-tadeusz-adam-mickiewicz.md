@@ -1,3 +1,4 @@
+Milczało chwilę; potem na pół ciche słowa\
 Powtarzano: «Tabaka z Polski? Częstochowa?\
 Dąbrowski? Z ziemi włoskiej?...» Aż na koniec razem,\
 Jakby myśl z myślą, wyraz sam zbiegł się z wyrazem,\
