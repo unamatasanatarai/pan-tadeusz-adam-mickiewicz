@@ -1,3 +1,4 @@
+Że błyszczał jako święty w ognistej koronie.
 
 
 
