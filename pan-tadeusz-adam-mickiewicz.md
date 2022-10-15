@@ -1,3 +1,4 @@
+Zosia znowu dygała w kolej zapłoniona.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem jenerał Kniaziewicz wziął ją za ramiona,\
 I złożywszy ojcowski całus na jej czole,\
