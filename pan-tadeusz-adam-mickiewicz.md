@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Biedne psy, ogłupiałe, biegały pod gajem,\
 Zdawały się naradzać, oskarżać nawzajem.\
 Wreszcie wracają, z wolna skacząc przez zagony,\
