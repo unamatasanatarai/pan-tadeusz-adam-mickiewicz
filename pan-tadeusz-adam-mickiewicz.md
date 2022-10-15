@@ -1,3 +1,4 @@
+Dobył fajkę, biletem bankowym zapalił,\
 I otarłszy śniadanie z ust końcem serwety,\
 Obrócił śmiejące się oczy na kobiety,\
 I rzekł: «Ja, piękne panie, lubię was jak wety!\
