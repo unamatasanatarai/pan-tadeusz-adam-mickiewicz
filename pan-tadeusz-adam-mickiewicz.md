@@ -1,3 +1,4 @@
+Kilka już upłynęło minut cichej sceny;\
 Hrabia rozłożył papier na swym kapeluszu\
 I wydobył ołówek. Wtem przykry dla uszu\
 Odezwał się dzwon dworski i zaraz śród lasu\
