@@ -1,3 +1,4 @@
+Do Wilna, gdzie służyli oba pod Jasińskim,\
 I tam z *Rózeczką* cudów dokazał odwagi.\
 Wiadomo, że sam jeden skoczył z wałów Pragi\
 Bronić pana Pocieja, który odbieżany\
