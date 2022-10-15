@@ -1,3 +1,4 @@
+Miał wpaść... ujrzał Wojskiego, uczuł w sercu trwogę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski, cicho siedzący z przymrużonym okiem,\
 Zdawał się pogrążony w dumaniu głębokiem.\
