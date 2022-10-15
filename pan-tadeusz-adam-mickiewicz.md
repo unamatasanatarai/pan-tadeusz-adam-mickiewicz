@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Kiedy tak za szarakiem goniono, tymczasem\
 Ukazał się pan Hrabia pod zamkowym lasem.\
 Wiedziano w okolicy, że ten pan nie może\
 Nigdy nigdzie stawić się w naznaczonej porze.\
