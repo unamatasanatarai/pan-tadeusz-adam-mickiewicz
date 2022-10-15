@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;O, gdybym kiedyś dożył tej pociechy,\
 Żeby te księgi zbłądziły pod strzechy;\
 Żeby wieśniaczki kręcąc kołowrotki,\
