@@ -1,3 +1,4 @@
+Schyla głowy, zrusza się i przyśpiesza kroku.\
 Darmo szlachta wstrzymuje z przodu, strzela z boku:\
 Szereg już pół dziedzińca przeszedł bez oporu;\
 Kapitan pokazując szpadą na drzwi dworu,\
