@@ -1,3 +1,4 @@
+A obca szlachta woła w głos: «Nie pozwalamy!»\
 Rozstrycha się tłum na dwie kupy rozdzielony,\
 I kiwając głowami w dwie przeciwne strony,\
 Tamci: «Nie pozwalamy!» — ci krzyczą: «Prosiemy!»
