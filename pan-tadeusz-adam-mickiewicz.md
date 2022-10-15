@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tak chłopiec, kiedy ujrzy cykoryi kwiaty,\
 Wabiące dłoń miękkimi, lekkimi bławaty,\
 Chce je pieścić, zbliża się, dmuchnie: i z podmuchem\
