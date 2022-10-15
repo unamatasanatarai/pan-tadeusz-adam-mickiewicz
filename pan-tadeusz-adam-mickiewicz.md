@@ -1,3 +1,4 @@
+W łozach, błyskały wilcze oczy jako świeczki;\
 A dalej, u ścieśnionych widnokręgu brzegów,\
 Tu i owdzie ogniska pastuszych noclegów.\
 Nareszcie księżyc srebrną pochodnię zaniecił,\
