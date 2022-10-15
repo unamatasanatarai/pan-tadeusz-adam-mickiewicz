@@ -1,3 +1,4 @@
+Zginąć albo zmienić się, gdy podejdę blisko?\
 Ten aksamit traw, będzież to mak i botwinie?\
 W nimfie tej czyż obaczę jaką ochmistrzynię?»
 
