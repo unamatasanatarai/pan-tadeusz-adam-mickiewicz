@@ -1,3 +1,4 @@
+A gdy na rozum wzięła królowa Jadwiga,\
 To się bez sądów owa skończyła intryga.\
 Dobrze, gdy strony mają panny albo wdowy\
 Na wydaniu: to zawsze kompromis gotowy.\
