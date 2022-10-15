@@ -1,3 +1,4 @@
+Bogacz i familiant, miał jedyne dziecię,\
 Córkę piękną jak anioł; więc się zalecało\
 Stolnikównie i szlachty, i paniąt niemało.\
 Między szlachtą był jeden wielki paliwoda,\
