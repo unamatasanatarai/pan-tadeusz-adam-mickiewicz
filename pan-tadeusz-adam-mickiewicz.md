@@ -1,3 +1,4 @@
+Kędy Hrabia, Gerwazy i dżokeje spali.\
 Przebudza się Gerwazy: darmo się wydziera,\
 Związany w kij do swego własnego rapiera;\
 Patrzy: widzi przy oknie ludzi uzbrojonych,\
