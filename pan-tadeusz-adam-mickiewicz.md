@@ -1,3 +1,4 @@
+Surdut swój angielskiego kroju, biały, długi,\
 Połami na wiatr puścił; z tyłu konno sługi,\
 W kapeluszach jak grzybki, czarnych, lśniących, małych,\
 W kurtkach, w butach stryflastych, w pantalonach białych:\
