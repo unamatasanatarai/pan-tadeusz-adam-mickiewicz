@@ -1,3 +1,4 @@
+Hrabia na polowaniu bardzo dobrze zna się,\
 Nieraz gadał o łowów i miejscu, i czasie;\
 Hrabia chował się w obcych krajach od dzieciństwa\
 I powiada, że to jest znakiem barbarzyństwa\
