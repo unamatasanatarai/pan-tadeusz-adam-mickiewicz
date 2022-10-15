@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie staruszek chodził po samotnym dworze,\
 Nucąc piosenkę: *Kiedy ranne wstają zorze*,\
 Rad, że się wypogadza. Mgła nie szła do góry,\
