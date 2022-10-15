@@ -1,3 +1,4 @@
+Niełatwą, bo nie na tym kończy się, jak nogą\
 Zręcznie wierzgnąć, z uśmiechem witać lada kogo;\
 Bo taka grzeczność modna, zda mi się kupiecka,\
 Ale nie staropolska, ani też szlachecka.\
