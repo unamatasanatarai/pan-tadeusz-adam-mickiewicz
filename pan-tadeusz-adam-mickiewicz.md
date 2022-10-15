@@ -1,3 +1,4 @@
+Wszystko szło pięknym ładem, choć w tak wielkiej trwodze:\
 Dwadzieścia strzelb leżało tu na tej podłodze;\
 Wystrzeliliśmy jedną, podawano drugą.\
 Ksiądz proboszcz zatrudniał się czynnie tą usługą,\
