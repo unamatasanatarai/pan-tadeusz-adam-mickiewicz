@@ -1,3 +1,4 @@
+I, wpatrując się mocno w księdza, nic nie gadał,\
 Westchnął głęboko, w oczach łzy się zakręciły...\
 Wreszcie porwał za szyję księdza z całej siły,\
 «Mój Robaku! — wołając — czy to tylko prawda?\
