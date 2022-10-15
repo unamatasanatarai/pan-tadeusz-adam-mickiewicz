@@ -1,3 +1,4 @@
+Tak samotną rozmowę kończąc roztargniony:\
 «Szkoda, że ten Soplica stary nie ma żony\
 Lub córki pięknej, której ubóstwiałbym wdzięki!\
 Kochając i nie mogąc otrzymać jej ręki,\
