@@ -1,3 +1,4 @@
+Niesiołowskiemu borsuk kosztował wsi kilka!\
 I wy, panowie, pójdźcie za starych przykładem,\
 I rozstrzygnijcie spór wasz choć mniejszym zakładem.\
 Słowo wiatr, w sporach słownych nigdy nie masz końca;\
