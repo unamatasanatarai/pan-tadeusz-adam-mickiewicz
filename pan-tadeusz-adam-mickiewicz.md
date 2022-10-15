@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Goście weszli w porządku i stanęli kołem;\
 Podkomorzy najwyższe brał miejsce za stołem:\
 Z wieku mu i z urzędu ten zaszczyt należy,\
