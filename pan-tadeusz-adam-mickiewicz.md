@@ -1,3 +1,4 @@
+Biorę na siebie wkrótce przywieść was do zgody.\
 Znam ja te wszystkie głupstwa, wszakże byłem młody.\
 Powiedz mi wasze wszystko; ja może nawzajem\
 Coś odkryję i tak się oba poprzyznajem».
