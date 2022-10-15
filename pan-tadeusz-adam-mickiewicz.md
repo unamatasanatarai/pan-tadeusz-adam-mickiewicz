@@ -1,3 +1,4 @@
+Dobył z zanadrza księgę, odwinął, otworzył.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Księga ta miała tytuł: Kucharz doskonały.\
 W niej spisane dokładnie wszystkie specyjały\
