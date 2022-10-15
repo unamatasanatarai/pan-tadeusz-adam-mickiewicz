@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;                    Już szlachta odzierżyła pole,\
 Porozpędzanych jegrów ściga, rąbie, kole.\
 Ryków sam został; krzyczy, że broni nie złoży,\
