@@ -1,3 +1,4 @@
+Każe sobie podawać od kontuszów pasy\
 I nimi z Soplicowskiej piwnicy dobywa\
 Beczki starej siwuchy, dębniaku i piwa.\
 Jedne wnet odgwożdżono, a drugie ochoczo\
