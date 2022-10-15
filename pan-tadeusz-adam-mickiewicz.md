@@ -1,3 +1,4 @@
+Nucąc chwyciła suknie, biegła do zwierciadła:\
 Wtem ujrzała młodzieńca i z rąk jej wypadła\
 Suknia, a twarz od strachu i dziwu pobladła.\
 Twarz podróżnego barwą spłonęła rumianą,\
