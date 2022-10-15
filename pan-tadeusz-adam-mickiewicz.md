@@ -1,3 +1,4 @@
+W sercu. Wzdrygnął się młodzian, czuł, że nań zasłużył,\
 Czuł, że wyrządził wielką krzywdę Telimenie,\
 Że go słusznie skarżyła, mówiło sumienie;\
 Lecz czuł, że po tych skargach tym mocniej ją zbrzydził.\
