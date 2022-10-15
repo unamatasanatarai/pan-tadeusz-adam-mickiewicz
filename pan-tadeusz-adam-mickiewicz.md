@@ -1,3 +1,4 @@
+Byłem pod śledztwem, miałem wielkie ambarasy:\
 A jemu co do tego? Ja tańczę mazura,\
 On krzyczy z tyłu: »Złodziej!« szlachta za nim: »Ura!«\
 Skrzywdzili mnie — a co? wpadł w me szpony szlachciura!\
