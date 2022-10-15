@@ -1,3 +1,4 @@
+Podkomorzy pochwałą rzeczy nie przerywał,\
 Ale częstym skinieniem głowy potakiwał.\
 Sędzia milczał, on jeszcze skinieniem przyzwalał;\
 Więc Sędzia jego puchar i swój kielich nalał,\
