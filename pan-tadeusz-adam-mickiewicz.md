@@ -1,3 +1,4 @@
+Sporem z Sędzią i nagłym przybyciem młodzieńców,\
 Nabrała mocnych, żywszych niż zwykle rumieńców.
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Pani — rzekł Hrabia — racz mej śmiałości darować;\
