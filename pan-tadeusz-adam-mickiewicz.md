@@ -1,3 +1,4 @@
+Zawołał Klucznik — widzisz pan, co się wyrabia.\
 Czy nie dosyć się jeszcze pański honor plami,\
 Że pan jadasz i pijasz z tymi Soplicami;\
 Trzebaż jeszcze, aby mnie, zamku urzędnika,\
