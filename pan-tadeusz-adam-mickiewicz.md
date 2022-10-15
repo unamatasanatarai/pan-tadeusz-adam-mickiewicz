@@ -1,3 +1,4 @@
+Uderzyły się mocno oboje w uszaki,\
 Tak, że obojgu sine zostały się znaki.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Szczęściem, nikt nie uważał; bo dotychczasowa\
