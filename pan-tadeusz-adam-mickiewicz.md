@@ -1,3 +1,4 @@
+Ustępują mu z drogi, — i zmieniwszy szyki,\
 Puszczają się znów za nim. —
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Brzmią zewsząd okrzyki:\
