@@ -1,3 +1,4 @@
+Niech powiem, jakim trafem wpadła w moje ręce».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wtem szmer powstał za drzwiami; razem głosów wiele\
 Zawołało: «Niech żyje Kurek na kościele!»\
