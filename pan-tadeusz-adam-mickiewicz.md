@@ -1,3 +1,4 @@
+Zarosłego dziedzińca, w zielonej sukience,\
 Ustrojona w równianki i w kwieciste wieńce,\
 Śród traw i kwiatów krąży niewidzialnym lotem,\
 Rządząc tańcem, jak anioł nocnych gwiazd obrotem.\
