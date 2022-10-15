@@ -1,3 +1,4 @@
+To Major widzi, Major hańby swej nie zmyje.\
 Trzeba tego szlachcica na pole wywabić;\
 Nie można z karabina, to choć szpadą zabić.\
 »Co puka, to nie sztuka, to wolę co kole«:\
