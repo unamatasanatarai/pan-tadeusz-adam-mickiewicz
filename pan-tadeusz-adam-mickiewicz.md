@@ -1,3 +1,4 @@
+Odbiła się, jak od skał, od Moskwy szeregów,\
 Które broniły Litwę murami żelaza\
 Przed wieścią dla Rosyi straszną jak zaraza.
 
