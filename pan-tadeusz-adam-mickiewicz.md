@@ -1,3 +1,4 @@
+Nad alabastrowymi stronicami księgi,\
 Wiły się czarne pukle i różowe wstęgi.
 
 &nbsp;&nbsp;&nbsp;&nbsp;W szmaragdzie bujnych traw, na krwawnikowym szalu,\
