@@ -1,3 +1,4 @@
+List od Fiszera, który był natenczas szefem\
 Sztabu armii polskiej pod Księciem Józefem.\
 Donosi, że w cesarskim tajnym gabinecie\
 Stanęła wojna; cesarz już po całym świecie\
