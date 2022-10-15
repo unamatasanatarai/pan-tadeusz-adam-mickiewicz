@@ -1,3 +1,4 @@
+Bił się w szable z Domeyką i dostał dwie rany;\
 Potem ów szlachcic, z Wilna wracając do domu,\
 Dziwnym trafem z Doweyką zjechał się u promu.\
 Gdy więc na jednym promie płynęli Wilejką,\
