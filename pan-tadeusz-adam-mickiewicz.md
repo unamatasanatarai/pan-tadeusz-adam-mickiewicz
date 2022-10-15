@@ -1,3 +1,4 @@
+Na skroniach zielonego wianek rozmarynu;\
 Wstążki warkoczów Zosia rzuciła na barki,\
 A na czoło włożyła, zwyczajem żniwiarki,\
 Sierp krzywy, świeżym żęciem traw oszlifowany,\
