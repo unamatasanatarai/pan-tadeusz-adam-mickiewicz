@@ -1,3 +1,4 @@
+I wyznaczył mu rocznie tysiąc złotych w złocie.\
 Lecz Dobrzyński odpisał: «Niech Pociej Macieja\
 A nie Maciej Pocieja ma za dobrodzieja».\
 Odmówił więc folwarku i nie przyjął płacy;\
