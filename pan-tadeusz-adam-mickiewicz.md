@@ -1,3 +1,4 @@
+Taką radość, że całe huczne zgromadzenie\
 Milczało chwilę; potem na pół ciche słowa\
 Powtarzano: «Tabaka z Polski? Częstochowa?\
 Dąbrowski? Z ziemi włoskiej?...» Aż na koniec razem,\
