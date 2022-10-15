@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Inni już śpią. Tadeusz po sieniach się zwija,\
 Chodząc jako wartownik około drzwi stryja,\
 Bo musi w ważnych rzeczach rady jego szukać\
 Dziś jeszcze, nim spać pójdzie. Nie śmie do drzwi stukać;\
