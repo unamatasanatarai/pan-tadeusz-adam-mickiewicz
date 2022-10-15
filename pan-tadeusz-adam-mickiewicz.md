@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Więc kłótnia między zgrają wszczęła się zawzięta:\
 Ci stronę Asesora, ci brali Rejenta.\
 O Gerwazym nie wspomniał nikt, bo wszyscy biegli\
