@@ -1,3 +1,4 @@
+Z belek na krzyż wiązanych, podobna do klatki.\
 W niej świeciły się białych serów mnogie kopy;\
 Wkoło zaś wahały się suszące się snopy\
 Szałwi, benedykty, kardy, macierzanki:\
