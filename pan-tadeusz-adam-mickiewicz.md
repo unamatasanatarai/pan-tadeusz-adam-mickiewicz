@@ -1,3 +1,4 @@
+Zwłaszcza gdy zacność domu, fortuny szczodroty\
 Objaśniają wrodzone wdzięki i przymioty.\
 Stąd droga do afektów i stąd się kojarzy\
 Wspaniały domów sojusz. Tak myślili starzy.\
