@@ -1,3 +1,4 @@
+Teraz mu z całej psiarni dwa charty zostały,\
 I jeszcze z tych jednemu chciano przeczyć chwały!\
 Więc zbliżył się i z wolna gładząc faworyty\
 Rzekł z uśmiechem, a był to uśmiech jadowity:\
