@@ -1,3 +1,4 @@
+Wysmukłością kibici i barwy powabem:\
 Brzoza biała, kochanka, z małżonkiem swym grabem.\
 A dalej, jakby starce na dzieci i wnuki\
 Patrzą, siedząc w milczeniu, tu sędziwe buki,\
