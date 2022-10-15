@@ -1,3 +1,4 @@
+Ale Protazy o tej obyczajów zmianie\
 Wiedzieć nie mógł, bo dawno już pozwów nie naszał.\
 Choć zawsze gotów, choć się Sędziemu sam wpraszał,\
 Sędzia dotąd, przez winny wzgląd na lata stare,\
