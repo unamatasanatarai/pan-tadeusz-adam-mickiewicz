@@ -1,3 +1,4 @@
+Widać na grzędach, jaką przeleciała drogą,\
 Bo liść zielony, w biegu potrącony nogą,\
 Podnosił się, drżał chwilę, aż się uspokoił,\
 Jak woda, którą ptaszek skrzydłami rozkroił.\
