@@ -1,3 +1,4 @@
+Szkoda, że masz niewielki dar opowiadania!\
 Nieraz takie słyszałem i czytam podania;\
 W Anglii i w Szkocyi każdy zamek lordów,\
 W Niemczech każdy dwór grafów był teatrem mordów.\
