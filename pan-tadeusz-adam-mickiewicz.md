@@ -1,3 +1,4 @@
+W ręku trzymał błyszczący klucz jakby puginał,\
 Odemknął szafę i w niej coś kręcić zaczynał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Stały w dwóch kątach sieni, wsparte o filary,\
