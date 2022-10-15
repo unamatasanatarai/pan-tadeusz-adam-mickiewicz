@@ -1,3 +1,4 @@
+Sędzia zdrajca! My się z nim od infimy znamy:\
 Poczciwe było dziecko i dziś taki samy;\
 Polskę kocha nad wszystko, polskie obyczaje\
 Chowa, modom moskiewskim przystępu nie daje.\
