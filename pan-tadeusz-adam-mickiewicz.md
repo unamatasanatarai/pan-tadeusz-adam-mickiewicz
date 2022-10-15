@@ -1,3 +1,4 @@
+Pod lasem i tam pewnie na młodzież czekają.\
 Pójdziemy, jeśli zechcesz, i wkrótce spotkamy\
 Stryjaszka, Podkomorstwo i szanowne damy».
 
