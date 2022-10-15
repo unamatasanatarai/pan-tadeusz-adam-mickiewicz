@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Słusznie Woźny powiadał, że w zamkowej sieni\
 Zmieści się i palestra, i goście proszeni.\
 Sień wielka jak refektarz, z wypukłym sklepieniem\
