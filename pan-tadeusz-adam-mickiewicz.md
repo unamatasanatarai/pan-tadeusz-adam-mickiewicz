@@ -1,3 +1,4 @@
+Ja się nie znałem, nawet nie widziałem z Jackiem;\
 Ledwiem słyszał o jego życiu hajdamackiem,\
 Siedząc wtenczas retorem w jezuickiej szkole,\
 Potem u Wojewody służąc za pacholę.\
