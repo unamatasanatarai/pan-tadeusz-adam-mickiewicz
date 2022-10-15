@@ -1,3 +1,4 @@
+Na koniec, jakby ślepym chciał uderzyć ciosem,\
 Zasłonił oczy ręką i rzekł mocnym głosem:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Jam jest Jacek Soplica...»
