@@ -1,3 +1,4 @@
+I po fryzurze równie jak i po mundurze.\
 Śmierć matula, powiada Baka, jak cebula,\
 Łzy wyciska, gdy ściska, a równie przytula\
 I dziecko co się lula, i zucha co hula!\
