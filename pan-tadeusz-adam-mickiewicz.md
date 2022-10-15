@@ -1,3 +1,4 @@
+O cóż skarżyć? Miał trunki dobre do wyboru,\
 Rachował się ostrożnie, lecz bez oszukaństwa,\
 Ochoty nie zabraniał, nie cierpiał pijaństwa,\
 Zabaw wielki miłośnik: u niego wesele\
