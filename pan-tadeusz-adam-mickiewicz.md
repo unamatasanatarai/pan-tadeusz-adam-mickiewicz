@@ -1,3 +1,4 @@
+Pięciu ich było; służą, on sam gospodarzy.\
 Jako kuchmistrz białym się fartuchem opasał,\
 Wdział szlafmycę, a ręce do łokciów zakasał;\
 W ręku ma plackę muszą, owad lada jaki\
