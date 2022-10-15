@@ -1,3 +1,4 @@
+Sam Woźny umiał pas ten odwiązywać, składać;\
 Właśnie tym się zatrudniał i kończył tak gadać:
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Cóż złego, że przeniosłem stoły do zamczyska?\
