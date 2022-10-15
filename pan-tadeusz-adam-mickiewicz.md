@@ -1,3 +1,4 @@
+A ja klęcząc nad jego piersią pochylony\
 I miecz maczając w ranę, zemstę zaprzysiągnął,\
 Pan głowę wstrząsnął, rękę ku bramie wyciągnął\
 W stronę, gdzie stałeś, i krzyż w powietrzu naznaczył;\
