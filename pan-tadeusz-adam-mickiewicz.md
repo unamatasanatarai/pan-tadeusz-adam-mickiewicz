@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Za czym rozbito kłodę, rozcięto powrozy.\
 Szlachta, już wolna, wpada na kwestarskie wozy;\
 Z nich dobywa rapiery, pałasze, tasaki,\
 Kosy, strzelby; Konewka znalazł dwa szturmaki\
