@@ -1,3 +1,4 @@
+Noc je z burzą od nocy czarniejszą, zaciemia.\
 Czasem widnokrąg pęka od końca do końca,\
 I anioł burzy, na kształt niezmiernego słońca\
 Rozświeci twarz, i znowu okryty całunem\
