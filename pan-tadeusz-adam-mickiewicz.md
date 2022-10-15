@@ -1,3 +1,4 @@
+Że pierwszą Pogoń w Litwie zatkną krewni moi!...\
 Ta myśl... zdaje się czysta...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chciałeś zemsty? masz!... Boś ty był narzędziem kary\
