@@ -1,3 +1,4 @@
+Wszystko prędko z żołnierskim jedli apetytem,\
 Kieliszki napełniając węgrzynem obfitym.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale tymczasem wielki serwis barwę zmienił,\
