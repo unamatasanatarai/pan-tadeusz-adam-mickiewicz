@@ -1,3 +1,4 @@
+O procesach, sejmikach, łowach...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ach, nieraz przy kieliszkach, gdy się tak rozrzewniał,\
 Gdy mię tak ściskał i o przyjaźni zapewniał,\
