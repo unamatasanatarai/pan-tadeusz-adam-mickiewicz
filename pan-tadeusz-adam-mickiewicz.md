@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Tu Wojski umilknąwszy prawą rękę wznosił\
 I u Podkomorzego tabakiery prosił;\
 Długo zażywa, kończyć powieści nie raczy,\
