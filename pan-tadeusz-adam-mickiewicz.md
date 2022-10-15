@@ -1,3 +1,4 @@
+Panu polskiemu, w Polszcze — i w zmowie z Moskalem!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«Nie byłem w zmowie — Jacek odpowiedział z żalem. —\
 Gwałtem porwać? Wszak mógłbym: zza krat i zza klamek\
