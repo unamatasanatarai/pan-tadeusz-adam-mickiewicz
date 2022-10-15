@@ -1,3 +1,4 @@
+Wnet porywa za kołnierz, na dziedziniec wlecze\
 I zmierzywszy mu w piersi Scyzoryk, tak rzecze:\
 «Panie Woźny, pan Hrabia śmie waćpana prosić,\
 Abyś raczył przed szlachtą bracią wnet ogłosić\
