@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Goście ani pytali nazwiska potrawy,\
 Ani ich zastanowił ów sekret ciekawy;\
 Wszystko prędko z żołnierskim jedli apetytem,\
