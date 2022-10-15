@@ -1,3 +1,4 @@
+Przeciw niemu stał Chrzciciel zwieszony rękoma\
 Na maczudze, a głową na końcu maczugi\
 Wspartą kręcił, jak tykwą wbitą, na kij długi,\
 I na przemiany to w tył, to się naprzód kiwał,\
