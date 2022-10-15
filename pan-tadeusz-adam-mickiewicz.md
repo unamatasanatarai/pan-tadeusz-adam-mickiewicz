@@ -1,3 +1,4 @@
+Że znowu o Polakach tak na świecie głośno;\
 Jest sława, a więc będzie i Rzeczpospolita!\
 Zawżdy z wawrzynów drzewo wolności wykwita.\
 Tylko smutno, że nam, ach, tak się lata wleką\
