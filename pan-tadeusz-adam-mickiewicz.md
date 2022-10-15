@@ -1,3 +1,4 @@
+Tylko smutno, że nam, ach, tak się lata wleką\
 W nieczynności! a oni tak zawsze daleko!\
 Tak długo czekać! nawet tak rzadka nowina —\
 Ojcze Robaku (ciszej rzekł do bernardyna),\
