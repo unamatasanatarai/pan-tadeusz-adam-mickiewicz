@@ -1,3 +1,4 @@
+Wachlując batystową chusteczką ramiona:\
 «Jak mamę kocham — rzekła — Hrabia się nie myli.\
 Znam ja dobrze Rosyją. Państwo nie wierzyli,\
 Gdy im nieraz mówiłam, jak tam z wielu względów\
