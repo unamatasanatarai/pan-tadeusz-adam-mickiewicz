@@ -1,3 +1,4 @@
+Czy zachwalony cyprys długi, cienki, chudy,\
 Co zdaje się być drzewem nie smutku, lecz nudy?\
 Mówią, że bardzo smutnie wygląda na grobie;\
 Jest to jak lokaj Niemiec we dworskiej żałobie,\
