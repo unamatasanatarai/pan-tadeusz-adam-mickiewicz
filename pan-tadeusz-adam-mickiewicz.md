@@ -1,3 +1,4 @@
+Trzebaż było, ażeby jeden kaptur popi,\
 Wyrwawszy się Bóg wie skąd, jak Filip z konopi,\
 Przepisał wszystkich strzelców powiatu? O wstydzie!\
 Cóż o tym będą gadać w Oszmianie i Lidzie,\
