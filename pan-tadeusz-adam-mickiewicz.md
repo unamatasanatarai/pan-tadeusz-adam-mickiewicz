@@ -1,3 +1,4 @@
+Tak zwykł mawiać pan Sędzia, a Sędziego wola\
 Była Ekonomowi poczciwemu świętą;\
 Bo nawet wozy, w które już składać zaczęto\
 Kopę żyta, niepełne jadą do stodoły:\
