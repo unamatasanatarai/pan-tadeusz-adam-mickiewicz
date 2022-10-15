@@ -1,3 +1,4 @@
+Sernica w górze miała wszerz sążni półczwarta,\
 A u dołu na jednym wielkim słupie wsparta\
 Niby gniazdo bocianie. Stary słup dębowy\
 Pochylił się, bo już był wygnił do połowy,\
