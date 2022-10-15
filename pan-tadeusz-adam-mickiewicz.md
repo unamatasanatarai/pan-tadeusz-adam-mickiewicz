@@ -1,3 +1,4 @@
+Pod absolucją, dobra te restytuować:\
 Wziął więc Zosię, Horeszków dziedziczkę ubogą,\
 Hodować, wychowanie jej opłacał drogo;\
 Chciał ją Tadeuszkowi swojemu wyswatać\
