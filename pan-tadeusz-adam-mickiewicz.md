@@ -1,3 +1,4 @@
+Połami na wiatr puścił; z tyłu konno sługi,\
 W kapeluszach jak grzybki, czarnych, lśniących, małych,\
 W kurtkach, w butach stryflastych, w pantalonach białych:\
 Sługi, które pan Hrabia tym kształtem odzieje,\
