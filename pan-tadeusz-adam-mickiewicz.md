@@ -1,3 +1,4 @@
+Tylko pan nie zaniedbuj; szczególniej potrzeba\
 Szukać pięknej natury! O, szczęśliwe nieba\
 Krajów włoskich! różowe cezarów ogrody!\
 Wy, klasyczne Tyburu spadające wody!\
