@@ -1,3 +1,4 @@
+A więc do szerpentynek i stają na mecie.\
 Oba szanowni ludzie; co ich szlachta godzą,\
 To oni na się jeszcze zapalczywiej godzą.\
 Zmienili broń: od szabel szło na pistolety;\
