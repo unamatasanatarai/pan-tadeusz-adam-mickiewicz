@@ -1,3 +1,4 @@
+Ów czas okropny, kiedy na Ojczyzny grobie\
 Zanucili tę piosnkę i poszli w kraj świata;\
 Przywodzą na myśl długie swej wędrówki lata,\
 Po lądach, morzach, piaskach gorących i mrozie,\
