@@ -1,3 +1,4 @@
+Wleźć pod stół i ów pozew psim głosem odszczekać,\
 Że Woźny musiał co tchu w konopie uciekać.\
 Jak później Wołodkowicz, pan dumny, zuchwały,\
 Co rozpędzał sejmiki, gwałcił trybunały,\
