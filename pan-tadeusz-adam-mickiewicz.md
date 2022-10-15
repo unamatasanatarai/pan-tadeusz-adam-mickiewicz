@@ -1,3 +1,4 @@
+Ja im łoże małżeńskie kropidłem poświęcę».
 
 &nbsp;&nbsp;&nbsp;&nbsp;«I taki łotr — zawołał Klucznik — ma panować?\
 I dawnych panów, lepszych od siebie, rujnować?\
