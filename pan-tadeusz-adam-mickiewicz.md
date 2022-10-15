@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Gerwazy, od pokojów Sędziego odparty,\
 Ustąpić musiał przez wzgląd dla Hrabiowskiej warty.\
 Więc nie mogąc zemścić się na nieprzyjacielu,\
 Myślił o drugim wielkim tej wyprawy celu.\
