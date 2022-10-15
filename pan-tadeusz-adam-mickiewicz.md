@@ -1,3 +1,4 @@
+Wygnanego za grzechy z rozkoszy ogrojca.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nieco wyżej *Dawida wóz*, gotów do jazdy,\
 Długi dyszel kieruje od polarnej gwiazdy.\
