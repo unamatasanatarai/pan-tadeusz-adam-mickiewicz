@@ -1,3 +1,4 @@
+Rzekli: «Niech będzie Jezus Chrystus pochwalony»\
 «Na wieki wieków, amen» starzec odpowiedział,\
 A gdy się o ważności poselstwa dowiedział,\
 Prosi do chaty. Weszli, zasiadają ławę;\
