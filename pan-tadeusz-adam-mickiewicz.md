@@ -1,3 +1,4 @@
+Plwają na siebie i źrą jedni drugich!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chciałem pominąć, ptak małego lotu,\
 Pominąć strefy ulewy i grzmotu,\
