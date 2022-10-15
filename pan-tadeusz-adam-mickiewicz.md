@@ -1,3 +1,4 @@
+Czy syzmatyki, co ni Boga, ani wiary:\
 Sam widziałem, kobiety w wioskach napastują,\
 Przechodniów odzierają, kościoły rabują!\
 Cesarz idzie do Moskwy... daleka to droga,\
