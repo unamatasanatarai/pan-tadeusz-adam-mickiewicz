@@ -1,3 +1,4 @@
+W konopiach człowiek dworski, uchodząc kańczuka\
 Lub pięści, siedzi cicho, aż się pan wyfuka.\
 I nawet często zbiegli od rekruta chłopi,\
 Gdy ich rząd śledzi w lasach, siedzą śród konopi.\
