@@ -1,3 +1,4 @@
+Pereł, dwie łzy na wielkich błękitnych źrenicach,\
 I stoczyły się szybko po rumianych licach.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale Zosia ciekawa z głębiny alkowy\
