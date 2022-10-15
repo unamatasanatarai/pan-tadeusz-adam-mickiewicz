@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Sak, broniąc dworu, stanął z szturmakiem u proga:\
 Bo w tym dworze mieszkała jego Zosia droga,\
 Od której choć w zalotach został pogardzony,\
