@@ -1,3 +1,4 @@
+Dotąd żyje na Litwie we gminnej powieści.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Co Wojski wyczytawszy pojmie i obwieści,\
 To natychmiast kucharze robią umiejętni.\
