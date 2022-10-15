@@ -1,3 +1,4 @@
+Nareszcie dobył tasak, rozciął pysk na dwoje\
 I w tylcu głowy, mózgu rozkroiwszy słoje,\
 Znalazł kulę, wydobył, suknią ochędożył,\
 Przymierzył do ładunku, do flinty przyłożył,\
