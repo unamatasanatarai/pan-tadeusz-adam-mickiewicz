@@ -1,3 +1,4 @@
+Wczorajszej, wstali z siebie nieradzi i smutni.\
 Próżno Wojszczanka damy na kabałę sprasza,\
 Mężczyznom próżno karty dają do mariasza:\
 Nie chcą bawić się, ni grać, siedzą, cicho w kątkach,\
