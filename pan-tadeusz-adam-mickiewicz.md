@@ -1,3 +1,4 @@
+Obrócił śmiejące się oczy na kobiety,\
 I rzekł: «Ja, piękne panie, lubię was jak wety!\
 Na me szlify majorskie: gdy człek zjadł śniadanie,\
 Najlepszą jest po zrazach zakąską gadanie\
