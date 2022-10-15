@@ -1,3 +1,4 @@
+Do żołnierki jedyni, w naukach mniej pilni.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz się od przodków swoich nie odrodził:\
 Dobrze na koniu jeździł, pieszo dzielnie chodził,\
