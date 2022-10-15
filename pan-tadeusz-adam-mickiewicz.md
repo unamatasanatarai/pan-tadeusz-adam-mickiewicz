@@ -1,3 +1,4 @@
+Lewą ręką jarmułkę zruszoną poprawił,\
 Potem lewicę za pas zatknął i tak prawił,\
 Kołpakiem lisim w kolej kłaniając się nisko:
 
