@@ -1,3 +1,4 @@
+Gdyby żył dłużej, może nową alternatą,\
 Z barona przechrzciłby się kiedyś demokratą.\
 Bo Paryż częstą mody odmianą się chlubi;\
 A co Francuz wymyśli, to Polak polubi.
