@@ -1,3 +1,4 @@
+Dać małą wieś, a potem cały swój majątek.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Te wszystkie Tadeusza cnoty i zalety\
 Ściągnęły wzrok sąsiadki, uważnej kobiety.\
