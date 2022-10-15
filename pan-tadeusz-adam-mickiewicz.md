@@ -1,3 +1,4 @@
+I zaczęły cokolwiek uciszać się gwary:\
 «Nie drwijcie — rzekł — z Robaka; znam go, to ćwik klecha,\
 Ten robaczek większego od was zgryzł orzecha.\
 Raz go tylko widziałem: ledwiem okiem rzucił,\
