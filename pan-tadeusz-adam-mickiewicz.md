@@ -1,3 +1,4 @@
+A za tą mgłą na koniec (jak wieść gminna głosi)\
 Ciągnie się bardzo piękna, żyzna okolica,\
 Główna królestwa zwierząt i roślin stolica.\
 W niej są złożone wszystkich drzew i ziół nasiona,\
