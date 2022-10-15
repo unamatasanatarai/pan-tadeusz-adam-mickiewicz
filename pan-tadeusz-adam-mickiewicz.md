@@ -1,3 +1,4 @@
+«Na wieki wieków, amen» starzec odpowiedział,\
 A gdy się o ważności poselstwa dowiedział,\
 Prosi do chaty. Weszli, zasiadają ławę;\
 Pierwszy z posłów stał w środku i jął zdawać sprawę.
