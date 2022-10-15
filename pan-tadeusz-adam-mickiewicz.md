@@ -1,3 +1,4 @@
+Jakże tam o nim czule się mówiło!\
 Ile pamiątek, jaka żałość długa,\
 Tam, gdzie do pana przywiązańszy sługa\
 Niż w innych krajach małżonka do męża;\
