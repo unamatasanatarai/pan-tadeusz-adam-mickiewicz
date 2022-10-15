@@ -1,3 +1,4 @@
+Kulbaczka wąska modą z turecka kozacką,\
 Kula na przodzie, w kuli są drogie kamienie,\
 Poduszeczka z rubrontu wyścieła siedzenie;\
 A kiedy na łęk wskoczysz, na tym miękkim puszku\
