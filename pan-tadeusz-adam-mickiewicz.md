@@ -1,3 +1,4 @@
+Widział umozolone w pracy gospodarskiej.\
 Jest na to sposób. W zamku wiem ja pewną skrzynię,\
 W której jest Horeszkowskie stołowe naczynie,\
 Przy tym różne sygnety, kanaki, manele,\
