@@ -1,3 +1,4 @@
+Psom między zęby i tak paszczęki roztworzyć.\
 Kolbami przewrócono na wznak zwierza zwłoki\
 I znów trzykrotny wiwat uderzył w obłoki.
 
