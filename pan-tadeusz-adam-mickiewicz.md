@@ -1,3 +1,4 @@
+A jak dmie się, phu, phu, phu, jak nos drze do góry!\
 Pamiętacie, prosiłem na córki wesele;\
 Poję, nie chce pić, mówi: »Nie piję tak wiele\
 Jak wy szlachta; wy szlachta ciągniecie jak bąki«.\
