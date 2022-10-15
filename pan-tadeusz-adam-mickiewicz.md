@@ -1,3 +1,4 @@
+Któż by zgadł, że w nim zamku powitam dziedzica,\
 Męża panny Zofiji, mej wielmożnej pani!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tu skończyli rozmowę, piją zadumani;\
