@@ -1,3 +1,4 @@
+Już mu z dala wtórują z bagien basem bąki,\
 Już bekasy, do góry porwawszy się, wiją\
 I bekając raz po raz, jak w bębenki biją.
 
