@@ -1,3 +1,4 @@
+Nie pożałuje klasztor: dwieście owiec z braku\
 Daję na klasztor. Księże, tyś się wczoraj palił\
 Do mojego kasztanka i gniadosza chwalił:\
 Dziś, zaraz w tym kwestarskim wozie pójdą oba;\
