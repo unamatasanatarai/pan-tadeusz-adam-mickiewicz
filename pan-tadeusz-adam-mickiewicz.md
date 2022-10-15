@@ -1,3 +1,4 @@
+Czuł się rzeźwym jak ptaszek, z lekkością oddychał,\
 Czuł się szczęśliwym, sam się do siebie uśmiechał:\
 Myśląc o wszystkim, co mu wczora się zdarzyło,\
 Rumienił się i wzdychał, i serce mu biło.\
