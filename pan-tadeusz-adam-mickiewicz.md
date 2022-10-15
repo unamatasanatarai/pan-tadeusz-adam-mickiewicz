@@ -1,3 +1,4 @@
+Ale Hrabia nie słuchał, a pilnie rysował.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem weszła druga para narzeczona:\
 Asesor, niegdyś cara, dziś Napoleona\
