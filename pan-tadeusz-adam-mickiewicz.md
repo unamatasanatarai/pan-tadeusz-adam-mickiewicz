@@ -1,3 +1,4 @@
+Hrabia, prawda, fanfaron, lecz mu nie brak męstwa,\
 Na miejsce naznaczone zapewne się stawi,\
 Rozprawim się; a jeśli Bóg pobłogosławi,\
 Ukarzę go, a potem za Łososny brzegi\
