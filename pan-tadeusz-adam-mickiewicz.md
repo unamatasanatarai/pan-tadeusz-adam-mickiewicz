@@ -1,3 +1,4 @@
+Uprowadza; a szlachcie każe się rozstąpić,\
 Lepiej mierzyć, postrzałów nadaremnych skąpić,\
 Kryć się za płoty, studnie, za ściany obory;\
 Hrabia z jazdą ma czekać sposobniejszej pory.
