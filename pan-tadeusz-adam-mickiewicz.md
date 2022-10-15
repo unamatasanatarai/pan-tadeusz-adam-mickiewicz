@@ -1,3 +1,4 @@
+Stoczą walkę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Na zachód, jeszcze ozłocona\
 Świeci ziemia ponuro, żółtawo-czerwona:\
