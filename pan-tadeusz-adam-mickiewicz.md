@@ -1,3 +1,4 @@
+«Ileż — rzekł — jest piękności choć w tej prostej scenie!\
 Kiedy dusza pasterki z wojownika duszą,\
 Jak łódź z okrętem w burzy, rozłączyć się muszą!\
 Zaiste! nic tak uczuć w sercu nie rozpala,\
