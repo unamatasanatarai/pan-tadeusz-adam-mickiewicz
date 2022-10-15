@@ -1,3 +1,4 @@
+Furknęła kałamaszka, ginie w mgły obłokach;\
 Tylko kiedy niekiedy kaptur mnicha bury\
 Wznosi się nad tumany jako sęp nad chmury.
 
