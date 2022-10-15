@@ -1,3 +1,4 @@
+Pojadę tam dla sprawy; razem ułożymy,\
 Co zrobić z Tadeuszem. Znam tam wiele osób,\
 Mam wpływy: to najlepszy kreacyi sposób.\
 Za mą pomocą, znajdzie wstęp w najpierwsze domy,\
