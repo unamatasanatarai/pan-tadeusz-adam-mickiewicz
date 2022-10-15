@@ -1,3 +1,4 @@
+Że zając, psy i charty jedne tworzą ciało:\
 Jakby jakaś przez pole suwała się żmija,\
 Kot jak głowa, pył z tyłu jakby modra szyja,\
 A psami jak podwójnym ogonem wywija.
