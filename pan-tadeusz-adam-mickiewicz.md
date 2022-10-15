@@ -1,3 +1,4 @@
+Prawą u zamka, lewą w pół rury porywa,\
 Kręci się, podskakuje, czasem przysiadywa,\
 Lewą rękę opuszcza, a broń z prawej ręki\
 Suwa naprzód jak żądło z wężowej paszczęki\
