@@ -1,3 +1,4 @@
+Rozprawami, wszczęło się dziesięć rozgoworów,\
 Anegdot, opowiadań i na koniec sporów.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz z Telimeną, całkiem zapomniani,\
