@@ -1,3 +1,4 @@
+Rzucają czapki, usta otwarli, — wiwaty!\
 A tam, po drugiej stronie pan przekreskowany\
 Sam jeden, czapkę wcisnął na łeb zadumany.\
 Żona przed domem czeka, zgadła, co się dzieje,\
