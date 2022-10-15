@@ -1,3 +1,4 @@
+Widać było, że oknem do ogrodu skakał;\
 Sędzia, zostawszy jeden, siadł w krześle i płakał.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chwilę czekał Tadeusz, nim w klamkę zadzwonił;\
