@@ -1,3 +1,4 @@
+Ozdoby czół marsowych: dziś Wenery ptaki,\
 Gołębie, w nich gruchając karmią swe pisklęta.\
 W stajni kolczuga wielka nad żłobem rozpięta\
 I pierścieniasty pancerz służą za drabinę,\
