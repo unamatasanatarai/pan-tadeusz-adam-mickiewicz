@@ -1,3 +1,4 @@
+Nie milczeć i żuć: czy my ojce kapucyni?\
 Kto milczy między szlachtą, to właśnie tak czyni,\
 Jako myśliwiec, który nabój rdzawi w strzelbie.\
 Dlatego ja rozmowność naszych przodków wielbię:\
