@@ -1,3 +1,4 @@
+Jeszcze serce nic tobie nie gada? Ach bracie!\
 Jeśli Soplicowskiej krwi kroplę w żyłach macie,\
 Uważ tylko: Francuzi uderzają z przodu...\
 A gdyby z tyłu zrobić powstanie narodu?\
