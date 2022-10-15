@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena ni wilczych, ni ludzkich nie zbiera.\
 Roztargniona, znudzona, dokoła spoziera,\
 Z głową w górę zadartą. Więc pan Rejent w gniewie\
