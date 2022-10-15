@@ -1,3 +1,4 @@
+Lecz nie pojmuję, co to ściąga się do włości!\
 Boję się, żeby to coś nie było z niemiecka!\
 Wszak wolność nie jest chłopska rzecz, ale szlachecka!\
 Prawda, że się wywodzim wszyscy od Adama,\
