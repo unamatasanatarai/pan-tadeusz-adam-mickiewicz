@@ -1,3 +1,4 @@
+Aż nas objęto w ciasny krąg łańcucha,\
 I każą oddać co najprędzej ducha.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A gdy na żale ten świat nie ma ucha,\
