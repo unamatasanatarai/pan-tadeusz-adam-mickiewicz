@@ -1,3 +1,4 @@
+Słyszała, jak Tadeusz po prostu i śmiało\
 Opowiedział swą miłość — serce w niej zadrżało —\
 I widziała tych wielkich dwoje łez w źrenicach.\
 Choć dojść nie mogła wątku w jego tajemnicach:\
