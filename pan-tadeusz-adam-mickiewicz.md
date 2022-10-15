@@ -1,3 +1,4 @@
+Długo zażywa, kończyć powieści nie raczy,\
 Jak gdyby chciał zaostrzyć ciekawość słuchaczy.\
 Zaczynał wreszcie, kiedy znowu mu przerwano\
 Powieść taką ciekawą, tak pilnie słuchaną!\
