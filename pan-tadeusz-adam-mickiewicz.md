@@ -1,3 +1,4 @@
+Zmienia porę, już zboża malowane złotem,\
 Nabrawszy ciepła w izbie powoli topnieją,\
 Już trawy pożółkniały, liścia czerwienieją,\
 Sypią się: rzekłbyś, iż wiatr jesienny powiewa;\
