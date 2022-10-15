@@ -1,3 +1,4 @@
+Czeremchy oplatane dzikich chmielów wieńcem,\
 Jarzębiny ze świeżym pasterskim rumieńcem,\
 Leszczyna jak menada z zielonymi berły,\
 Ubranymi jak w grona, w orzechowe perły;\
