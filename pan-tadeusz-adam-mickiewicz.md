@@ -1,3 +1,4 @@
+Więc się Rejent rad nierad po francusku przebrał.\
 Widno, że mu frak duszy połowę odebrał,\
 Stąpa, jakby kij połknął, prosto, nieruchawo,\
 Jak żuraw; nie śmie spójrzeć ni w lewo, ni w prawo;\
