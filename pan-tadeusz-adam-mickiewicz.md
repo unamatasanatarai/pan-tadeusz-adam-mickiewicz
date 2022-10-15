@@ -1,3 +1,4 @@
+A ryczał jako niedźwiedź, bo miał silne płuca.\
 Ryczał: «Zdrada!» — Wnet cała zbudzona gromada\
 Chórem odpowiedziała: «Zdrada! gwałtu! zdrada!»
 
