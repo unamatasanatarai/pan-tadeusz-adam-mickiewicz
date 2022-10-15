@@ -1,3 +1,4 @@
+Zwłaszcza przy niewyraźnej mowie w czas obiadu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Gorzej było. Raz w Wilnie jakiś szlachcic pjany\
 Bił się w szable z Domeyką i dostał dwie rany;\
