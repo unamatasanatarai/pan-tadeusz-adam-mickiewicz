@@ -1,3 +1,4 @@
+A w części z ciekawości: bo dziś w Soplicowie\
 Na nabożeństwie mają być jenerałowie,\
 Sławni dowódcy owi naszych legijonów,\
 Których lud znał imiona i czcił jak patronów,\
