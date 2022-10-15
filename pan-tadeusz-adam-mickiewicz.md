@@ -1,3 +1,4 @@
+Bezwładną kiwnął szyją, czuł, że go sen bierze,\
 Zaczął wedle zwyczaju wieczorne pacierze.\
 Lecz między Ojczenaszem i Zdrowaś Maryją,\
 Dziwne stanęły mary, tłoczą się i wiją:\
