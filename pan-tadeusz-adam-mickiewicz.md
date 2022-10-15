@@ -1,3 +1,4 @@
+Psy jak szalone cwałem śmigają po dworze,\
 Potem biegną i kładą szyje na obroże:\
 Wszystko to bardzo dobre polowanie wróży;\
 Nareszcie Podkomorzy dał rozkaz podróży.
