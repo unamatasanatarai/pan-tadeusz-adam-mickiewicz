@@ -1,3 +1,4 @@
+Już z rozkazu Sędziego pleban stał na stole\
 I ogłaszał włościanom Tadeusza wolę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaledwie usłyszeli nowinę poddani,\
