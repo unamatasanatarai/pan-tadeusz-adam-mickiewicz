@@ -1,3 +1,4 @@
+Zląkł się, chciał przeżegnać się: darmo rękę chwyta,\
 Ręka prawa jak gdyby do boku przybita;\
 Ruszył lewą: niestety! czuje, że go duchy\
 Spowiły ciasno jako niemowlę w pieluchy.\
