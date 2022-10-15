@@ -1,3 +1,4 @@
+Wszak jestem starszy wiekiem, jestem na urzędzie!\
 Co się tycze procesu, sąd arbitrów będzie...»\
 Bernardyn trzasnął drzwiami. «No, szczęśliwa droga!»\
 Rzekł Sędzia.
