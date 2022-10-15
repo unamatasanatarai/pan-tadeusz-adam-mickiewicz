@@ -1,3 +1,4 @@
+To już by on nie wrócił, ni kijowskim traktem,\
 Ni mińskim, ni za żadnym Buchmana kontraktem;\
 Aniby go wskrzesili z mocy bożej popi,\
 Ni z mocy Belzebuba — ten mi zuch, kto kropi.\
