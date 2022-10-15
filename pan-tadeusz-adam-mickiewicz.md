@@ -1,3 +1,4 @@
+Jaki piękny nasz powrót, rycersko-feudalny!\
 Lud z kwiatami spotykał nas; córka książęcia,\
 Wdzięczna zbawcy, ze łzami padła w me objęcia.\
 Gdym przybył do Palermo, wiedziano z gazety,\
