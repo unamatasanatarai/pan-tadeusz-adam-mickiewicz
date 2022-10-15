@@ -1,3 +1,4 @@
+Mówiąc, że to grzech. Nieraz u niego gromada\
 Chłopska, ja sam widziałem, do stołu z nim siada;\
 Płacił za włość podatki: a nie tak jest w Klecku,\
 Choć tam waść, panie Buchman, rządzisz po niemiecku.\
