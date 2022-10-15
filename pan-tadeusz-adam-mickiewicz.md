@@ -1,3 +1,4 @@
+Słuchając Telimeny, czoło podniósł hardo,\
 Brwi zmarszczył, spojrzał na nią ledwie nie z pogardą;\
 Potem przysiadł się, jak mógł najbliżej, do Zosi,\
 Nalewa jej do szklanki, talerze przynosi,\
