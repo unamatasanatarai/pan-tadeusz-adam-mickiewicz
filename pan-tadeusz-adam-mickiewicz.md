@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ach, czyjeż usta śmią pochlebiać sobie,\
 Że znajdą dzisiaj to czarowne słowo,\
 Które rozczuli rozpacz marmurową,\
 Które z serc wieko podejmie kamienne,\
