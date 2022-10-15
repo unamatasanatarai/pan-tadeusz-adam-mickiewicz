@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Słynie szeroko w Litwie Dobrzyński zaścianek\
 Męstwem swoich szlachciców, pięknością szlachcianek.\
 Niegdyś możny i ludny: bo gdy król Jan Trzeci\
 Obwołał pospolite ruszenie przez wici,\
