@@ -1,3 +1,4 @@
+Na koniec zapytała: «Skąd tu pan przychodzi?\
 I czego tu po grzędach szuka pan dobrodziéj?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hrabia oczy roztworzył. Zmieszany, zdziwiony,\
