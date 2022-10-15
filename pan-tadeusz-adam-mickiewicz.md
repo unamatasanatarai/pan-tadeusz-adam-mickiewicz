@@ -1,3 +1,4 @@
+Słuchał, aż mu wiatr przyniósł, wiejący od puszczy,\
 Odgłosy trąb i wrzaski polującej tłuszczy.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Koń Tadeusza czekał w stajni osiodłany.\
