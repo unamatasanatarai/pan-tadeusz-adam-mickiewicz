@@ -1,3 +1,4 @@
+Przypomniał, że dziewczynie mówił o śniadaniu;\
 Może już wszyscy wiedzą o jego spotkaniu\
 W ogrodzie, blisko domu? może szukać wyślą?\
 Postrzegli, że uciekał? kto wie, co pomyślą?\
