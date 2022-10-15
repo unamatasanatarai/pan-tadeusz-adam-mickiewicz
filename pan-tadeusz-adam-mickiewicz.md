@@ -1,3 +1,4 @@
+Zamku Horeszków tyka swych kopców krawędzią,\
 Szanowany w powiecie, ma urząd, jest Sędzią!\
 I pan mu zamek oddasz? Niecne jego nogi\
 Mają krew pana mego zetrzeć z tej podłogi?\
