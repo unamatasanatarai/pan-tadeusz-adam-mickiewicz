@@ -1,3 +1,4 @@
+Szczęśliwy człowiek, jako kwestarz w Niehrymowie!»\
 «I do nas — rzekł Zubkowski — wstąp jeżeli łaska;\
 Znajdzie się tam półsztuczek płótna, masła faska,\
 Baran lub krówka; wspomnij księże na te słowa:\
