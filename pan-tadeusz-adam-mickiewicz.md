@@ -1,3 +1,4 @@
+Mnie, com niegdyś, rzec mogę, trząsł całym powiatem!\
 Mnie, którego Radziwiłł nazywał: kochanku!\
 Mnie, com kiedy wyjeżdżał z mojego zaścianku,\
 To liczniejszy dwór miałem niżeli książęcy,\
