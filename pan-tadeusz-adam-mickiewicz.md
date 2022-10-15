@@ -1,3 +1,4 @@
+Żeby wieśniaczki kręcąc kołowrotki,\
 Gdy odśpiewają ulubione zwrotki\
 O tej dziewczynie, co tak grać lubiła,\
 Że przy skrzypeczkach gąski pogubiła,\
