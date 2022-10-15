@@ -1,3 +1,4 @@
+Zardzewiała, tam leży szpada bez temlaku:\
 Zapewne wybierano oręż z tego braku,\
 I poruszono nawet stare broni składy.\
 Robak obejrzał pilnie rusznice i szpady,\
