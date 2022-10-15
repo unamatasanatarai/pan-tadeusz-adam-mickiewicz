@@ -1,3 +1,4 @@
+Wyczha! poszli, a zając jak struna, smyk w pole,\
 Psy tuż (to mówiąc, ręce ciągnął wzdłuż po stole\
 I palcami ruch chartów przedziwnie udawał)\
 Psy tuż, i hec od lasu odsadzili kawał;\
