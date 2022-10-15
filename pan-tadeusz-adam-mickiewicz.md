@@ -1,3 +1,4 @@
+Słowem, zrobim na urząd wielkie polowanie;\
 I Wojski towarzystwa nam też nie odmówi».\
 To mówiąc, tabakierę podawał starcowi.
 
