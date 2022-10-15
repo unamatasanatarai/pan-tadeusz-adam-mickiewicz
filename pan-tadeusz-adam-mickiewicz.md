@@ -1,3 +1,4 @@
+Dziaduś, nigdy na wielkim niebywały świecie.\
 Ja wiem lepiej, jak długo trzeba się sposobić\
 Panience, by wyszedłszy na świat efekt zrobić.\
 Wiedz Zosiu, że kto rośnie na widoku ludzi,\
