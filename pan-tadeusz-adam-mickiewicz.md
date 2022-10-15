@@ -1,3 +1,4 @@
+Kazano jej wzdłuż i wszerz przejść się po pokoju.\
 Telimena uważa znawczyni oczyma,\
 Musztruje siostrzenicę, gniewa się i zżyma;\
 Aż na dygnienie Zosi krzyknęła z rozpaczy:\
