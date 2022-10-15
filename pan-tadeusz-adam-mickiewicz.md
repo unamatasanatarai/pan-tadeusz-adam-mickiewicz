@@ -1,3 +1,4 @@
+Kto przypuści do siebie źwierza jak należy,\
 Jeśli chybił, cofnąć się może bez sromoty,\
 Albo walczyć oszczepem — lecz z własnej ochoty,\
 A nie z musu: gdyż oszczep strzelcom poruczony\
