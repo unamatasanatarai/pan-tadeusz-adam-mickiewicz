@@ -1,3 +1,4 @@
+Wszak to nieprzyzwoicie, to dalbóg jest grzechem».\
 «Grzechem! — odpowiedziała mu z gorzkim uśmiechem —\
 Niewiniątko! baranek! Ja, będąc kobiétą,\
 Jeśli z miłości nie dbam, choćby mnie odkryto,\
