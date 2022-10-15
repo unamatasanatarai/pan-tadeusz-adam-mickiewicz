@@ -1,3 +1,4 @@
+Znałem myśliwych lepszych od was, a chybiali;\
 Trafiać, chybiać, poprawiać, to kolej strzelecka.\
 Ja sam, chociaż ze strzelbą włóczę się od dziecka,\
 Chybiałem; chybiał sławny ów strzelec Tułoszczyk,\
