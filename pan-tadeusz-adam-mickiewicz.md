@@ -1,3 +1,4 @@
+
 Cicho. Próżno myśliwi natężają ucha;\
 Próżno jak najciekawszej mowy każdy słucha\
 Milczenia, długo w miejscu nieruchomy czeka:\
