@@ -1,3 +1,4 @@
+Jedna ręka na szabli, a druga do stoła,\
 Przywoławszy dwie strony, «Uciszcie się!» woła.\
 Marząc i kończąc pacierz wieczorny, pomału\
 Usnął ostatni w Litwie woźny trybunału.
