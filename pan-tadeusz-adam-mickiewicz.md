@@ -1,3 +1,4 @@
+Biegły przed nim i za nim. Sława czynów tylu,\
 Brzemienna imionami rycerzy, od Nilu\
 Szła hucząc ku północy, aż u Niemna brzegów\
 Odbiła się, jak od skał, od Moskwy szeregów,\
