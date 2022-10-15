@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Obiadowano ciszej, niż się zwykle zdarza;\
 Nikt nie gadał, pomimo wezwań gospodarza.\
 Strony biorące udział w wielkiej o psów zwadzie,\
 Myśliły o jutrzejszej walce i zakładzie;\
