@@ -1,3 +1,4 @@
+Z których wyszliśmy zawsze, jak szlachcie przystało,\
 I z zyskiem i aplauzem powszechnym i z chwałą!\
 Po cóż o tym wspominać? Dziś darmo pan Hrabia,\
 Sąsiad wasz, sprawę toczy, dekrety wyrabia:\
