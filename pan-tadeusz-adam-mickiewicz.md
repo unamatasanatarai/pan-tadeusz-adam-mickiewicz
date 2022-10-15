@@ -1,3 +1,4 @@
+Do kuchni. Gdy do kuchni weszli, widok garków,\
 Ogień ledwie zagasły, potraw zapach świeży,\
 Chrupanie psów gryzących ostatki wieczerzy,\
 Chwyta wszystkich za serca, myśl wszystkich odmienia,\
