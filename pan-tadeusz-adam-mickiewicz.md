@@ -1,3 +1,4 @@
+Tymczasem kurz na roli rośnie coraz bliżéj;\
 Pędzi na smyczy Kusy, za nim Sokół chyży,\
 Tuż Asesor z Rejentem razem wrzaśli z tyłu:\
 «Wyczha, wyczha!» i z psami znikli w kłębach pyłu.
