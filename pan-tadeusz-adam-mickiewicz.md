@@ -1,3 +1,4 @@
+Zamiast lokajów, w kielni siedziały dwa pieski,\
 A na kozłach Niemczysko chude na kształt deski;\
 Nogi miał długie, cienkie jak od chmielu tyki,\
 W pończochach, ze srebrnymi klamrami trzewiki,\
