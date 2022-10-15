@@ -1,3 +1,4 @@
+Pod Austerlicem całą utraciłem rotę,\
 A pierwej wasz Kościuszko pod Racławicami —\
 Byłem sierżantem — wysiekł mój pluton kosami:\
 I cóż stąd? To ja znowu u Maciejowiców\
