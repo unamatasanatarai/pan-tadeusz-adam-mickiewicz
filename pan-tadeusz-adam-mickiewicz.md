@@ -1,3 +1,4 @@
+Zląkł się jeszcze okropniej, wnet oko zawiera,\
 Leży nie dysząc, stygnie, ledwie nie umiera!
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lecz Kropiciel zerwał się bronić się: po czasie!\
