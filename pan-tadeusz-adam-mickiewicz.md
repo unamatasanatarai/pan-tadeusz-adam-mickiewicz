@@ -1,3 +1,4 @@
+Świat mu zawiążesz! wierz mi, kląć was kiedyś będzie!\
 Zakopać taki talent w lasach i na grzędzie!\
 Wierz mi, ile poznałam, pojętne to dziecię,\
 Warto, żeby na wielkim przetarło się świecie.\
