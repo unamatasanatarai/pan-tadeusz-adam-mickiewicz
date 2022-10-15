@@ -1,3 +1,4 @@
+Na wsi. Miał także sławę dobrego Polaka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;On pierwszy zgodził kłótnie, często nawet krwawe,\
 Między dwiema karczmami: obie wziął w dzierżawę;\
