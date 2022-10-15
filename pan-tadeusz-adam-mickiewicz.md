@@ -1,3 +1,4 @@
+Pono spór ten ze skóry niedźwiedziej pochodził;\
 I gdyby mnie Dobrodziej Sędzia nie przeszkodził,\
 Ja bym u stołu obu przeciwników zgodził.\
 Bo chciałem opowiedzieć wypadek ciekawy,\
