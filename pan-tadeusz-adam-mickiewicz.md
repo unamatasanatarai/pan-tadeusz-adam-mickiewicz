@@ -1,3 +1,4 @@
+Między szlachtą był jeden wielki paliwoda,\
 Kłótnik, Jacek Soplica, zwany Wojewoda\
 Przez żart; w istocie wiele znaczył w województwie,\
 Bo rodzinę Sopliców miał jakby w dowództwie,\
