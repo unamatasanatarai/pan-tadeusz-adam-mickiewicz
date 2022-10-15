@@ -1,3 +1,4 @@
+Prawo trzeciego maja i już szlachtę zbierał,\
 Aby konfederatom ciągnąć ku pomocy,\
 Gdy nagle Moskwa zamek opasała w nocy.\
 Ledwie był czas z moździerza na trwogę wypalić,\
