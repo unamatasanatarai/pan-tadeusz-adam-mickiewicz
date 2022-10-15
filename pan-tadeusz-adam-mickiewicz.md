@@ -1,3 +1,4 @@
+Z głową w tył wychyloną, z rozpuszczonym włosem —\
 Przez wszystko co jest świętym, na klęczkach błagamy!\
 Hrabio, śmieszże odmówić? proszą ciebie damy;\
 Okrutniku, nas pierwej musisz zamordować!»\
