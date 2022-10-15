@@ -1,3 +1,4 @@
+Bo tam, wzmogłszy się nagle, stronnicy Sokoła\
 Na partyję Kusego bez litości wsiedli.\
 Spór był wielki, już potraw ostatnich nie jedli;\
 Stojąc i pijąc obie kłóciły się strony,\
