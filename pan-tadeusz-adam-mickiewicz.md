@@ -1,3 +1,4 @@
+A sami we stolicy używają wczasu;\
 Nie giną nigdy bronią sieczną ani palną,\
 Lecz starzy umierają śmiercią naturalną.\
 Mają też i swój cmentarz, kędy bliscy śmierci,\
