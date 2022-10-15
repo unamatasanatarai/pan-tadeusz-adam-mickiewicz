@@ -1,3 +1,4 @@
+Daremnie pisać, pióro tego nie wypowie;\
 Chyba pędzel by skreślił te tiule, ptyfenie,\
 Blondyny, kaszemiry, perły i kamienie,\
 I oblicze różane i żywe wejrzenie.
