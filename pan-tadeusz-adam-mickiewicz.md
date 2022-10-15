@@ -1,3 +1,4 @@
+Obaczymy się w Litwie może nim rok minie;\
 Powiedz Litwinom, niech mnie czekają z tabaką\
 Częstochowską, nie biorę innej tylko taką».
 
