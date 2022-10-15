@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;                    Stolnik rzekł: »Panie Soplica,\
 Właśnie przyjechał do mnie swat kasztelanica;\
 Ty jesteś mój przyjaciel, cóż ty mówisz na to?\
 Wiesz wasze, że mam córkę piękną i bogatą:\
