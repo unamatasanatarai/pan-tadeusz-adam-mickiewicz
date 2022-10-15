@@ -1,3 +1,4 @@
+Trzeba było okupić dobrymi przykłady,\
 Krwią, poświęceniem się...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Biłem się za kraj; gdzie? jak? zmilczę; nie dla chwały\
