@@ -1,3 +1,4 @@
+A coraz się przybliża, kędy ptaki siedzą:\
 Tak skradał się Tadeusz.
 
 &nbsp;&nbsp;&nbsp;&nbsp;                    Sędzia czaty zmieszał\
