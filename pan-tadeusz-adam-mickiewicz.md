@@ -1,3 +1,4 @@
+Nawet gmin, który swoim tak łacnie uwłacza,\
 Tym którzy Moskwie służą, szczęśliwszym,— przebacza!\
 Wiedziałem to, a przecież — nie mogłem.
 
