@@ -1,3 +1,4 @@
+O tym, co było; bo to gadać, to daremno!\
 A czyja łaska panów Szlachty, proszę ze mną.\
 Moja Siora powiła małego Jankielka:\
 Ja dziś traktuję wszystkich, a muzyka wielka!\
