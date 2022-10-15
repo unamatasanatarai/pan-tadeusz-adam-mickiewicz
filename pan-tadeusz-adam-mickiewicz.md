@@ -1,3 +1,4 @@
+»Mości książę! kto patrzy śmiele, walczy śmiele,\
 Warte dziki tygrysów, a spis karabele«.\
 I zaczynali z Niemcem dyskurs nazbyt żwawy.\
 Szczęściem, książę jenerał przerwał te rozprawy,\
