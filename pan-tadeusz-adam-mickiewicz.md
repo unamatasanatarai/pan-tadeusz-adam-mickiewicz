@@ -1,3 +1,4 @@
+Bo na Litwie myśliwiec jak okręt na morzu,\
 Gdzie chcesz, jaką chcesz drogą, buja po przestworzu:\
 Czyli jak prorok patrzy w niebo, gdzie w obłoku\
 Wiele jest znaków widnych strzeleckiemu oku;\
