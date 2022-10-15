@@ -1,3 +1,4 @@
+Przekonałam się zimą po krótkim pobycie\
 W Wilnie, że ja na wiejskie urodzona życie:\
 Pośród zabaw tęskniłam znów do Soplicowa.\
 Pracy też nie lękam się, bom młoda i zdrowa,\
