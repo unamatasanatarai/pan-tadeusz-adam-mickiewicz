@@ -1,3 +1,4 @@
+Opuszczali rodziców i ziemię kochaną,\
 I dobra, które na skarb carski zabierano.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Czasem do Litwy kwestarz z obcego klasztoru\
