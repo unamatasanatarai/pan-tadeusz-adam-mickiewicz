@@ -1,3 +1,4 @@
+Postrzegł omyłkę; bardzo zmieszał się, spiekł raka,\
 I ręce obie schował w jedną kieszeń fraka.\
 Idzie jakby przez rózgi śród szeptów i drwinek,\
 Wstydząc się za frak, jakby za niecny uczynek;\
