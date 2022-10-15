@@ -1,3 +1,4 @@
+Do nóg jej biegło ptastwo. Stąd kury szurpate\
 Toczą się kłębkiem; stamtąd kogutki czubate,\
 Wstrząsając koralowe na głowach szyszaki\
 I wiosłując skrzydłami przez bruzdy i krzaki,\
