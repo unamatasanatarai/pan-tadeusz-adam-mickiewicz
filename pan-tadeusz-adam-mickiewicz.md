@@ -1,3 +1,4 @@
+Pan Tadeusz i Hrabia, co żywo przebrani.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Telimena sprawuje obowiązki pani,\
 Wita wchodzących, sadza, rozmową zabawia,\
