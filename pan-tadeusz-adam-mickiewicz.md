@@ -1,3 +1,4 @@
+Kto łaska, proszę za mną» — rzekła, koło głowy\
 Obwijając czerwony szal kaszemirowy;\
 Córeczkę Podkomorstwa wzięła w jedną rękę,\
 A drugą podchyliła do kostek sukienkę.\
