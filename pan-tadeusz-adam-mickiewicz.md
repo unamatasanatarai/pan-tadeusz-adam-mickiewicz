@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Dosyć, że się tak stało, jak przewidział Ryków:\
 Jegry w tłumie ulegli mocy przeciwników.\
 Dwudziestu trzech na ziemi wala się zabitych,\
 Trzydziestu kilku jęczy ranami okrytych,\
