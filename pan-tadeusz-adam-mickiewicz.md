@@ -1,3 +1,4 @@
+*O żołnierzu, tułaczu, który borem, lasem*\
 *Idzie, z biedy i z głodu przymierając czasem,*\
 *Na koniec pada u nóg konika wiernego,*\
 *A konik nogą grzebie mogiłę dla niego.*\
