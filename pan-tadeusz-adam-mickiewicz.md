@@ -1,3 +1,4 @@
+Niźli żywotów świętych; a jeżdżąc po kweście,\
 Często zastanawiał się w powiatowym mieście.\
 Miał pełno interesów: to listy odbierał,\
 Których nigdy przy obcych ludziach nie otwierał,\
