@@ -1,3 +1,4 @@
+Jestem krewną, jedyną Zosi opiekunką.\
 Nikt oprócz mnie nie będzie myślił o jej szczęściu».\
 «A jeśli ona szczęście znajdzie w tym zamęściu? —\
 Rzekł Sędzia wzrok podnosząc. — Jeśli Tadeuszka\
