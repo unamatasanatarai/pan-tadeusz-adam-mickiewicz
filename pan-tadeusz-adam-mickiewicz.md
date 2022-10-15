@@ -1,3 +1,4 @@
+Niechaj pamiątką będzie dzisiejszej zabawy,\
 Godłem szczęścia łowczego, bodźcem przyszłej sławy».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Umilknął wesół, myśląc, że Hrabię ucieszył;\
