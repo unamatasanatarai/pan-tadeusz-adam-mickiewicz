@@ -1,3 +1,4 @@
+Cicho wszędzie; w konopie z wolna ręce wsuwa,\
 I rozchylając gęstwę badylów, w jarzynie\
 Jako rybak pod wodą nurkujący płynie;\
 Wzniósł głowę: cicho wszędzie; do okien się skrada:\
