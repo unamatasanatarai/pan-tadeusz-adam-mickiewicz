@@ -1,3 +1,4 @@
+Bo dla tych wodzów, którzy w swym życiu tułaczym\
 Tak długo błąkali się w obcych stronach świata,\
 Dziwne miała powaby narodowa szata,\
 Która im wspominała i młode ich lata,\
