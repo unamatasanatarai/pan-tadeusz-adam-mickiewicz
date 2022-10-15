@@ -1,3 +1,4 @@
+Zgadując rozpacz, widząc że pobiegł nad stawy,\
 Chociaż ku niemu takim słusznym gniewem pała,\
 Przelękła się; w istocie dobre serce miała.\
 Żal jej było, że inną śmiał Tadeusz lubić,\
