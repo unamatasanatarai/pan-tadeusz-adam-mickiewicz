@@ -1,3 +1,4 @@
+Oszczep jeden chwycili czterema ramiony,\
 Wydzierali go sobie. Spojrzą, aż tu z pyska\
 Wielkiego, czerwonego dwa rzędy kłów błyska,\
 I łapa z pazurami już się na łby spuszcza;\
