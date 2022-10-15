@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Brawo! — rzekł Hrabia — plan twój, gotycko-sarmacki\
 Podoba się mi lepiej niż spór adwokacki.\
 Wiesz co? na całej Litwie narobim hałasu\
 Wyprawą niesłychaną od dawnego czasu.\
