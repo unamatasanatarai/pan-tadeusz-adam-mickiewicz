@@ -1,3 +1,4 @@
+Skoczyli do panicza, padli do nóg pani,\
 «Zdrowie państwu naszemu»! ze łzami krzyknęli;\
 Tadeusz krzyknął: «Zdrowie spółobywateli,\
 Wolnych, równych — Polaków!» — «Wnoszę ludu zdrowie!»\
