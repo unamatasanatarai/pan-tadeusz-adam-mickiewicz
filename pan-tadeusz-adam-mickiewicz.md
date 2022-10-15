@@ -1,3 +1,4 @@
+Różową, same całe jak róże się płonią.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tadeusz spał pod oknem; sam ukryty w cieniu,\
 Leżąc na wznak, cudnemu dziwił się zjawieniu\
