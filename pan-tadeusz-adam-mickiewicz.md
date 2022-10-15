@@ -1,3 +1,4 @@
+Jest wieść o jakimś krwawym lub zdradzieckim czynie,\
 Po którym zemsta spływa na dziedziców w spadku:\
 W Polsce pierwszy raz słyszę o takim wypadku.\
 Czuję, że we mnie mężnych krew Horeszków płynie!\
