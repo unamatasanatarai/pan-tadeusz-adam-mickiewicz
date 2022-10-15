@@ -1,3 +1,4 @@
+I w białej chmurce jako złoty grot zawisnął.\
 Na ten strzał, na dnia hasło, pęk ogniów wylata,\
 Tysiąc rac krzyżuje się po okręgu świata,\
 A oko słońca weszło. Jeszcze nieco senne,\
