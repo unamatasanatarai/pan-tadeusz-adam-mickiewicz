@@ -1,3 +1,4 @@
+Układać się. Wszak Hrabia może nas przeprosić,\
 Deprekować; czekaj waść, czasu jeszcze dosyć.\
 Chyba inny giez jaki waści stąd wygania,\
 To gadaj szczerze, po co takie omawiania?\
