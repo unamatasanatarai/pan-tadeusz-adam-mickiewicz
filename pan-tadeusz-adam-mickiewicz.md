@@ -1,3 +1,4 @@
+Musim kogoś posadzić na przeciwnej szali.\
 Zaś godna jest waszmościów uwagi osobnej\
 Grzeczność, którą powinna młodź dla płci nadobnej;\
 Zwłaszcza gdy zacność domu, fortuny szczodroty\
