@@ -1,3 +1,4 @@
+Z gorącego, śmietaną bielonego piwa,\
 W którym twaróg gruzłami posiekany pływa.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Zaś dla mężczyzn wędliny leżą do wyboru:\
