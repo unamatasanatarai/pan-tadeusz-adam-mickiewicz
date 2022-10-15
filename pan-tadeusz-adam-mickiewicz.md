@@ -1,3 +1,4 @@
+Dobrzyńscy, oj ja znam was, niech łajdaki mokną!\
 (I zaśmiał się na całe gardło, patrząc w okno)\
 Wszakże ten sam Dobrzyński, co siedzi w surducie,\
 — Hej zdjąć mu surdut! — w roku przeszłym na reducie\
