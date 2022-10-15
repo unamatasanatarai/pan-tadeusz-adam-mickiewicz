@@ -1,3 +1,4 @@
+Ale i on...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Żeby już raz otwarcie był mnie zrekuzował!...\
 Bo znał nasze uczucia... Gdyby nie przyjmował\
