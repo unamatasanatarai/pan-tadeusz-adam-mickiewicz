@@ -1,3 +1,4 @@
+Powietrze tylą klątwami ciężarne,\
 Tam myśl nie śmiała swoich zwrócić lotów,\
 W sferę okropną nawet ptakom grzmotów.
 
