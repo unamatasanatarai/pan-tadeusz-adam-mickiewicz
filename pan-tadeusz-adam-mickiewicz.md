@@ -1,3 +1,4 @@
+Słychać świsty kul, zamków chrzęsty, sztenflów dźwięki:\
 Cały szereg zdaje się być ruchomym płazem,\
 Który tysiąc błyszczących nóg wywija razem.
 
