@@ -1,3 +1,4 @@
+I nawet wiem z pewnością, że sam cesarz śmiał się».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Śmiech powstał w obu izbach. Sędzia z bernardynem\
 Grał w mariasza i właśnie z wyświeconym winem\
