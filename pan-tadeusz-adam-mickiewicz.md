@@ -1,3 +1,4 @@
+Kogoż on komisarzem słał do swych dóbr pińskich?\
 Dobrzyńskiego! Rachmistrzów kogo miał? Dobrzyńskich!\
 Marszałkostwa, kredensu nie zwierzał nikomu,\
 Tylko Dobrzyńskim: pełno Dobrzyńskich miał w domu!\
