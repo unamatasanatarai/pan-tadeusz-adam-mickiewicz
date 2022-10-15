@@ -1,3 +1,4 @@
+Cóż, kiedy sam majora Płuta musiał słuchać.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ten Major, Polak rodem z miasteczka Dzierowicz,\
 Nazywał się (jak słychać) po polsku Płutowicz,\
