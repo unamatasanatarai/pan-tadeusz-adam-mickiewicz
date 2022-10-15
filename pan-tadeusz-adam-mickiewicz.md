@@ -1,3 +1,4 @@
+Zbłądziliśmy i nikt tu z nas nie jest bez winy:\
 Ksiądz Robak, że zbyt czynnie rozszerzał nowiny,\
 Klucznik i szlachta, że je pojęła opacznie.\
 Wojna z Rosyją jeszcze nieprędko się zacznie;\
