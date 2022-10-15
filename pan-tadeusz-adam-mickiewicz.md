@@ -1,3 +1,4 @@
+«Wyczha, wyczha!» i z psami znikli w kłębach pyłu.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kiedy tak za szarakiem goniono, tymczasem\
 Ukazał się pan Hrabia pod zamkowym lasem.\
