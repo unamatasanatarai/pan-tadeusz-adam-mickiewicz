@@ -1,3 +1,4 @@
+Na przyszłość; krewna Zosi i Hrabiego swatka,\
 Dla młodego małżeństwa byłaby jak matka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Po tej z sobą odbytej, stanowczej naradzie,\
