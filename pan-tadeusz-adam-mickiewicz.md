@@ -1,3 +1,4 @@
+Bo u Moskalów lada jenerał, mospanie,\
 To tak świeci się w złocie jak szczupak w szafranie».\
 «Ba — przerwał Rymsza — przecież widziałem za młodu\
 Kościuszkę, naczelnika naszego narodu:\
