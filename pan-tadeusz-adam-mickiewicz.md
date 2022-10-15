@@ -1,3 +1,4 @@
+Wstano od stołu, pierwszy Podkomorzy ruszył,\
 Z wieku mu i z urzędu ten zaszczyt należy,\
 Idąc kłaniał się damom, starcom i młodzieży;\
 Za nim szedł kwestarz, Sędzia tuż przy bernardynie.\
