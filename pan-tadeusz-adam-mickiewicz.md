@@ -1,3 +1,4 @@
+Wojski zaś, uważając że tak wszyscy milczą,\
 Nazywał tę wieczerzę nie polską, lecz wilczą.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hreczecha na milczenie miał słuch bardzo czuły.\
