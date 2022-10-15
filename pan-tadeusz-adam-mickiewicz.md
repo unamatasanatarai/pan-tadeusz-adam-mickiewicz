@@ -1,3 +1,4 @@
+Kiwnął niedbale ręką, jak gdyby znać dawał,\
 Że już wszystko załatwił. Lecz Ryków nastawał:\
 «Cóż, czy Płut będzie milczeć, czy słowem zaręczył?»\
 Klucznik zły, że go Ryków pytaniami dręczył,\
