@@ -1,3 +1,4 @@
+Bo tabenki są gęsto złotem nakrapiane,\
 I szerokie strzemiona srebrne pozłacane;\
 Na rzemieniach munsztuka i na uździenicy\
 Połyskają guziki perłowej macicy,\
