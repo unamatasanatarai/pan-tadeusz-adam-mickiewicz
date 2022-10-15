@@ -1,3 +1,4 @@
+Zły przykład i pomiędzy młokosami zwady,\
 Które mogą pomieszać twe prawne układy».\
 «Układy? — krzyknął Sędzia z niezwykłym zapałem —\
 Z układów kwita, już je skończyłem, zerwałem».\
