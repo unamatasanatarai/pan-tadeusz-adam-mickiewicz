@@ -1,3 +1,4 @@
+Tyle ją obraziłem! winienem jej tyle!\
 Przerwałem chwilę dumań; winienem ci chwile\
 Natchnienia, chwile błogie! Potępiaj człowieka;\
 Ale sztukmistrz twojego przebaczenia czeka!\
