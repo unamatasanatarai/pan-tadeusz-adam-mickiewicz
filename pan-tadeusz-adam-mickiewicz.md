@@ -1,3 +1,4 @@
+Drugi staw, z dnem błotnistym i gardzielem mętnym,\
 Odpowiedział mu krzykiem żałośnie namiętnym:\
 W obu stawach piały żab niezliczone hordy,\
 Oba chóry zgodzone w dwa wielkie akordy.\
