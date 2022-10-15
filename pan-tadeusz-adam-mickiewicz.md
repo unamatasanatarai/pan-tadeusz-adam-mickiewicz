@@ -1,3 +1,4 @@
+«To Scyzoryk! niech żyje Scyzoryk! — krzykniono —\
 Wiwat Scyzoryk, klejnot Rębajłów zaścianku!\
 Wiwat Rębajło, Szczerbiec, Półkozic, Mopanku!»
 
