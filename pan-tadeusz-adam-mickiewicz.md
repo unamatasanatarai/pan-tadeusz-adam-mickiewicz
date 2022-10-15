@@ -1,3 +1,4 @@
+Prawe dziecię Sopliców! Tobie Bóg przeznacza\
 Oczyścić grzechy brata twojego tułacza!\
 Zawszem ciebie szanował; ale od tej chwili\
 Kocham cię, jak gdybyśmy bracią sobie byli!...\
