@@ -1,3 +1,4 @@
+Prawą ręką i prawym grożąc sobie okiem;\
 Wtem lewymi rękami odkrywają głowy\
 I kłaniają się grzecznie (zwyczaj honorowy,\
 Nim przyjdzie do zabójstwa, naprzód się przywitać).\
