@@ -1,3 +1,4 @@
+Nim kto w karczmę zajedzie i do drzwi zapuka.\
 Z Napoleonem pobić Moskalów nie sztuka.\
 Jużci on Szwabom skórę trzy razy wymłócił,\
 Brzydkie Prusactwo zdeptał, Anglików wyrzucił\
