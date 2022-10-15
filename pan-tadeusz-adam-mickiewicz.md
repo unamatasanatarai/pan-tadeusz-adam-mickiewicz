@@ -1,3 +1,4 @@
+Wszystko się uścisnęło: chłop z tatarskim hrabią,\
 Mitra z Krzyżem, Poraje z Gryfem i z Korabią;\
 Zapomnieli wszystkiego, nawet bernardyna,\
 Tylko śpiewali krzycząc: «Wódki, miodu, wina!»
