@@ -1,3 +1,4 @@
+Mówił o niej, że grzybów szukała na drzewie;\
 Asesor ją złośliwiej równał do samicy,\
 Która miejsca na gniazdo szuka w okolicy.
 
