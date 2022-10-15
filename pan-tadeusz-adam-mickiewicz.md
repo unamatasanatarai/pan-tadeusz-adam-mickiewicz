@@ -1,3 +1,4 @@
+Przyjmował mnie jak dawniej, a nawet nalegał\
 Abym częściej przyjeżdżał; a ilekroć sami\
 Byliśmy, widząc oczy me przyćmione łzami\
 I pierś zbyt pełną i już wybuchnąć gotową,\
