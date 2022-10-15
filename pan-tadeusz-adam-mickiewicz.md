@@ -1,3 +1,4 @@
+To gość, dobry pan, patrzcie tylko jaki ładny».
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sama spojrzała: Hrabia uśmiechnął się mile,\
 I widocznie był wdzięczny jej za pochwał tyle;\
