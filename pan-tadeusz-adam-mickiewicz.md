@@ -1,3 +1,4 @@
+Jak promień, kiedy wpadłszy gaśnie między lasem.
 
 &nbsp;&nbsp;&nbsp;&nbsp;I znowu cichość w dole. Dzięcioł na jedlinie\
 Stuka z lekka i dalej odlatuje, ginie,\
