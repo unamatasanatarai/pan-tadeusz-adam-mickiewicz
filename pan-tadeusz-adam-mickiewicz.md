@@ -1,3 +1,4 @@
+Ogłasza ją, sejm walny w Warszawie zwołany,\
 I skonfederowane mazowieckie stany\
 Wyrzekną uroczyście przyłączenie Litwy.
 
