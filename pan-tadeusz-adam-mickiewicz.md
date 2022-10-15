@@ -1,3 +1,4 @@
+Widzi tłum szlachty konnej, błyszczą karabele:\
 Zajazd! zajazd Korelicz i Rymsza na czele!\
 I ogląda sam siebie, jak na koniu siwym,\
 Z podniesionym nad głową rapierem straszliwym\
