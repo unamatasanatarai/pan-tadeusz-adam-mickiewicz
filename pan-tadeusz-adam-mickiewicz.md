@@ -1,3 +1,4 @@
+Tak przybrał inną postać. Zwyczajnie ponury,\
 Zamyślony: a teraz głowę wzniósł do góry,\
 I z miną rozjaśnioną, jak kwestarz rubacha,\
 Nim zaczął gadać, długo śmiał się:
