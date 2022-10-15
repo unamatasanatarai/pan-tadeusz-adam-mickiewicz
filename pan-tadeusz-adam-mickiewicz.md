@@ -1,3 +1,4 @@
+Tuż stało wody pełne naczynie blaszane,\
 Ale nigdzie nie widać było ogrodniczki;\
 Tylko co wyszła: jeszcze kołyszą się drzwiczki\
 Świeżo trącone, blisko drzwi ślad widać nóżki\
