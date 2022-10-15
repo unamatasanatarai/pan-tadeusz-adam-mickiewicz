@@ -1,3 +1,4 @@
+Stanie i grożąc twarzą, dech wiatrów zatrzyma,\
 Milczy, obiega ziemię błyskawic oczyma,\
 Znacząc te miejsca, gdzie wnet ciśnie grom po gromie:\
 Tej ciszy chwila była w Soplicowskim domie.\
