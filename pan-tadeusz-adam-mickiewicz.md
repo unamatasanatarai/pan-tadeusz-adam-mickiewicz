@@ -1,3 +1,4 @@
+W dzień szukał rozmów, w nocy musiano mu gwarzyć\
 Pacierze różańcowe albo gadać bajki.\
 Stąd też nieprzyjacielem zabitym był fajki,\
 Wymyślonej od Niemców, by nas zcudzoziemczyć;\
