@@ -1,3 +1,4 @@
+Jak świat jest boży, tak on był nasz własny!\
 Jakże tam wszystko do nas należało,\
 Jak pomnim wszystko, co nas otaczało:\
 Od lipy, która koroną wspaniałą\
