@@ -1,3 +1,4 @@
+Miłe i piękne, jadowite rzucił,\
 Ku pożytecznym oka nie odwrócił.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ten kraj szczęśliwy, ubogi i ciasny,\
