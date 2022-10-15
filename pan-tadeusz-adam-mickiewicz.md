@@ -1,3 +1,4 @@
+«Ależ, najsłodszy Jezu! trzeba pierwej wiedzieć\
 Z kim wojna? o co? trzeba to światu powiedzieć —\
 Wołał Prusak — bo jakże lud ruszy za nami?\
 Gdzie pójdzie, kiedy gdzie iść, my nie wiemy sami?\
