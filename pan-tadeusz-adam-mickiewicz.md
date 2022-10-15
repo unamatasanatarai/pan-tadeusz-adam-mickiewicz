@@ -1,3 +1,4 @@
+To na czole zawiesza, to nad czołem wstrząsa,\
 Aż włożył ją na bakier i pokręcił wąsa.\
 Idzie; wszyscy zazdroszczą, biegą w jego ślady,\
 On by rad ze swą damą wymknąć się z gromady:\
