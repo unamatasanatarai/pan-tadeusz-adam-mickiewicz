@@ -1,3 +1,4 @@
+Jako w twarzy lekarza wzrok przyjaciół czyta\
 Wyrok życia lub zgonu miłej im osoby,\
 Tak strzelcy, ufni w sztuki Wojskiego sposoby,\
 Topili w nim spojrzenia nadziei i trwogi.\
