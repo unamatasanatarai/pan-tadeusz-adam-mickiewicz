@@ -1,3 +1,4 @@
+I Rejenta; ci byli gniewliwsi niż wczora,\
 Kłócąc się o zalety, ten swej Sanguszkówki,\
 A ten bałabanowskiej swej Sagalasówki.\
 Hrabia też i Tadeusz jadą nieweseli,\
