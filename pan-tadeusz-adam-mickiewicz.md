@@ -1,3 +1,4 @@
+Za przedmiot stałych ogniów wziął Podkomorzankę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Wojski pragnął młodzieńców poróżnionych zgodzić\
 Przykładami mądrymi: więc zaczął wywodzić\
