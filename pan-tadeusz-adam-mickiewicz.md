@@ -1,3 +1,4 @@
+Zaś powrozami mocniej sznurowano ręce\
 Na plecach szlachty. Major ku większej ich męce\
 Kazał pierwej pozdzierać z głów konfederatki,\
 Z pleców płaszcze, kontusze, nawet taratatki,\
