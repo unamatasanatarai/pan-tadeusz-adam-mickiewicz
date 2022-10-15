@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;«He! czekać? szczekać? zwlekać?» przerwał Maciej drugi\
 Ochrzczony Kropicielem, od wielkiej maczugi,\
 Którą zwał Kropidełkiem. Miał ją dziś przy sobie;\
