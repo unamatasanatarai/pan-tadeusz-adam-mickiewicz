@@ -1,3 +1,4 @@
+Jedną ręką zdrój leje z bezdennego dzbanka,\
 A drugą ręką w wodę dla zabawki miota\
 Brane z fartuszka garście zaklętego złota.
 
