@@ -1,3 +1,4 @@
+Panny szeptały z sobą. Nie było porządku,\
 Jaki się przy obiadach i wieczerzach chowa;\
 Była to w staropolskim domu moda nowa:\
 Przy śniadaniach pan Sędzia, choć nierad, pozwalał\
