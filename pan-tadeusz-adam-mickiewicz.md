@@ -1,3 +1,4 @@
+Polska dla Lacha; ale cóż? car nie pozwala!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Sędzia mu na to rzecze: «Panie Kapitanie,\
 Żeś człek poczciwy, wiedzą tu wszyscy ziemianie,\
