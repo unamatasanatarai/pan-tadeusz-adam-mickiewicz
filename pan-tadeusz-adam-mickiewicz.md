@@ -1,3 +1,4 @@
+Gdy Asesor z Rejentem wyskoczyli z boków,\
 A Gerwazy biegł z przodu o jakie sto kroków,\
 Z nim Robak, choć bez strzelby — i trzej w jednej chwili\
 Jak gdyby na komendę razem wystrzelili.\
