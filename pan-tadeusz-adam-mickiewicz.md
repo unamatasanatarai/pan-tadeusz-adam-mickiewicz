@@ -1,3 +1,4 @@
+Wymknąwszy się, wsiadł na koń, wrócił do zaścianka.
 
 &nbsp;&nbsp;&nbsp;&nbsp;A tymczasem Rejenta nadobna kochanka,\
 Telimena, roztacza blaski swej urody,\
