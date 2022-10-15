@@ -1,3 +1,4 @@
+Ba, nawet wszyscy, ilu was tu jest z Dobrzyna.\
 Bo pamiętacie starzy, słyszeliście młodzi,\
 Że Stolnik był was wszystkich ojciec i dobrodziéj:\
 Kogoż on komisarzem słał do swych dóbr pińskich?\
