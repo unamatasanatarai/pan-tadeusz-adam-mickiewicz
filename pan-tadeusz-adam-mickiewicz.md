@@ -1,3 +1,4 @@
+Kometa go przywiedzie do nas, co daj Boże!»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Na to rzekł Wojski, głowę pochyliwszy smutnie:\
 «Kometa czasem wojny, czasem wróży kłótnie!\
