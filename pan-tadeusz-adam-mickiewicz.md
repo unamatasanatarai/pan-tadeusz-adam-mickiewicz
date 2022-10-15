@@ -1,3 +1,4 @@
+I każe na nim wyryć albo swoje imię,\
 Lub gdy zechce, herbowne Hreczechów ozdoby;\
 Krwawnik jest gładki, złoto jedenastej proby.\
 Konia teraz ułani pod jazdę zabrali,\
