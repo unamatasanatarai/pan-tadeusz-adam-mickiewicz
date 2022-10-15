@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ksiądz porwał się z poduszek i posępny siedział.\
 Na koniec rzekł, spojrzawszy bystro na Klucznika:\
 «Wielki grzech bezbronnego zabić niewolnika!\
 Chrystus zabrania mścić się nawet i nad wrogiem!\
