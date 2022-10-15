@@ -1,3 +1,4 @@
+Dusza jego, jak ziemia po słońca zachodzie,\
 Ostygała powoli, barwy brała ciemne;\
 Zaczął marzyć, lecz sny miał bardzo nieprzyjemne.\
 Zbudził się, sam nie wiedząc, na kogo się gniewał:\
