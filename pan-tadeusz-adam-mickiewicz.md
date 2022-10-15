@@ -1,3 +1,4 @@
+Rzekł Dąbrowski; lud krzyknął «Niech żyją wodzowie!\
 Wiwat wojsko, wiwat lud, wiwat wszystkie stany!»\
 Tysiącem głosów, zdrowia grzmiały na przemiany.
 
