@@ -1,3 +1,4 @@
+W Polszcze, w domu porządnym, z dawnego zwyczaju,\
 Jest do robienia kawy osobna niewiasta,\
 Nazywa się kawiarka; ta sprowadza z miasta,\
 Lub z wicin bierze ziarna w najlepszym gatunku\
