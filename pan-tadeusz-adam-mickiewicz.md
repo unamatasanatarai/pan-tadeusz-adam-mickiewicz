@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ledwie słuchacze mieli czas wyjść z zadziwienia,\
 Znowu muzyka inna — znów zrazu brzęczenia\
 Lekkie i ciche; kilka cienkich strunek jęczy,\
