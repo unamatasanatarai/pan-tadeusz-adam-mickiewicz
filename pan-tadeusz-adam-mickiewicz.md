@@ -1,3 +1,4 @@
+Skurczył się, a karabin porwał w ręce obie,\
 Prawą u zamka, lewą w pół rury porywa,\
 Kręci się, podskakuje, czasem przysiadywa,\
 Lewą rękę opuszcza, a broń z prawej ręki\
