@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;W środku karczmy jest podział jak w żydowskiej szkole:\
 Jedna część, pełna izbic ciasnych i podłużnych,\
 Służy dla dam wyłącznie i panów podróżnych;\
