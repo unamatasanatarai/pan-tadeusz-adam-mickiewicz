@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Protazy śpieszył włożyć swą woźnieńską odzież.\
 Przecież żupana ani kontusza nie kładzie:\
 One służą ku wielkiej sądowej paradzie;\
