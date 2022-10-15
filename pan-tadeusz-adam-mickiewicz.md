@@ -1,3 +1,4 @@
+I owe odpowiedzi, tak wiejskie, tak gminne!\
 «Po cóż się łudzić — krzyknął — zgaduję po czasie:\
 Moja nimfa tajemna pono gęsi pasie!»
 
