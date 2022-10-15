@@ -1,3 +1,4 @@
+Ta myśl, że dom Sopliców pierwszy się uzbroi,\
 Że pierwszą Pogoń w Litwie zatkną krewni moi!...\
 Ta myśl... zdaje się czysta...
 
