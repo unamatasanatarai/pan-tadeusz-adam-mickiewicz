@@ -1,3 +1,4 @@
+Brama na wciąż otwarta przechodniom ogłasza,\
 Że gościnna, i wszystkich w gościnę zaprasza.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Właśnie dwukonną bryką wjechał młody panek\
