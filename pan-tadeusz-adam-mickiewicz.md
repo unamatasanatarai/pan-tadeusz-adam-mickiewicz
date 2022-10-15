@@ -1,3 +1,4 @@
+Obuchowicz z kahałem, Juraha z Piotrowskim,\
 Maleski z Mickiewiczem, a na koniec Hrabia\
 Z Soplicą; i czytając, z tych imion wywabia\
 Pamięć spraw wielkich, wszystkie procesu wypadki,\
