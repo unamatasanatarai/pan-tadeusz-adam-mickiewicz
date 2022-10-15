@@ -1,3 +1,4 @@
+Jak też wziąłem na oko: postójże, marucha,\
 Pomyśliłem, i basta: ot, leży bez ducha!\
 Tęga strzelba, prawdziwa to Sagalasówka,\
 Napis: *Sagalas London à Bałabanówka...*\
