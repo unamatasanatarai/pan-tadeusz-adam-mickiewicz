@@ -1,3 +1,4 @@
+Bez ręki lub bez nogi, przyjąwszy jałmużnę,\
 Stanął i oczy wkoło obracał ostróżne.\
 Gdy nie widział we dworze rosyjskich żołnierzy\
 Ani jarmułek, ani czerwonych kołnierzy,\
