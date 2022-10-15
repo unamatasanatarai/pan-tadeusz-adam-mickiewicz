@@ -1,3 +1,4 @@
+W majowej zieloności tonąc po kolana;\
 Z grzęd zniżając się w bruzdy, zdała się nie stąpać,\
 Ale pływać po liściach, w ich barwie się kąpać.\
 Słomianym kapeluszem osłoniła głowę,\
