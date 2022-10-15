@@ -1,3 +1,4 @@
+Dostatecznej dla tylu, tak szanownych gości,\
 W zamku sień wielka, jeszcze dobrze zachowana,\
 Sklepienie całe — wprawdzie pękła jedna ściana,\
 Okna bez szyb, lecz latem nic to nie zawadzi;\
