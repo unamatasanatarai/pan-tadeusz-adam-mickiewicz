@@ -1,3 +1,4 @@
+Mówił stary Suworów; wyjdź Majorze w pole,\
 Bo on nas powystrzela; patrz, bierze do celu».\
 Na to rzekł Major: «Ryków! miły przyjacielu!\
 Ty jesteś zuch na szpady: wyjdź ty bracie Ryków.\
