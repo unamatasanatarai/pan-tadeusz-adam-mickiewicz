@@ -1,3 +1,4 @@
+Oj Kluczniku! odpowiesz ty ciężko przed Bogiem.\
 Jedna jest restrykcyja: jeśli popełniono\
 Nie z zemsty głupiej, ale pro publico bono».\
 Klucznik głową i ręką kiwał wyciągnioną,\
