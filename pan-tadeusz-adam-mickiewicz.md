@@ -1,3 +1,4 @@
+Skruszył kość; już Proporszczyk szponton z rąk upuszcza,\
 Słania się: wpada Chrzciciel, za nim szlachty tłuszcza,\
 A za szlachtą Moskale od lewego skrzydła\
 Biegą zmieszani. Wszczął się bój koło Kropidła.
