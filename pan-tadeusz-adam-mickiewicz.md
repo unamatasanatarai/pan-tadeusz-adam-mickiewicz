@@ -1,3 +1,4 @@
+Leszczyna jak menada z zielonymi berły,\
 Ubranymi jak w grona, w orzechowe perły;\
 A niżej dziatwa leśna: głóg w objęciu kalin,\
 Ożyna czarne usta tuląca do malin.\
