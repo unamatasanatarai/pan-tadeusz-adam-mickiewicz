@@ -1,3 +1,4 @@
+Nie są bardzo pochopni, pewno nie z lenistwa,\
 Lecz z gustów cudzoziemskich; i książę jenerał\
 Częściej do książek niźli do psiarni zazierał\
 I do alkówek damskich częściej niż do lasów.
