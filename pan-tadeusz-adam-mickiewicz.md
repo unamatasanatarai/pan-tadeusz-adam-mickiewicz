@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Prawda! prawda! — rzekł na to Gerwazy wzruszony. —\
 Dziwneć to były losy tej naszej Korony\
 I naszej Litwy! Wszak to jak małżonków dwoje!\
 Bóg złączył, a czart dzieli; Bóg swoje, czart swoje!\
