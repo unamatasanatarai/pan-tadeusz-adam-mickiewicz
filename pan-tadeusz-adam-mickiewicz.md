@@ -1,3 +1,4 @@
+Wyrwał się myślą do szczęśliwszych czasów,\
 I dumał, marzył o swojej krainie...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale o krwi tej, co się świeżo lała,\
