@@ -1,3 +1,4 @@
+Sędzia obchodzi gości i wiejską gromadę,\
 Wszystkich do Soplicowa wzywa na biesiadę.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ale na przyźbie domu usiedli dwaj starce,\
