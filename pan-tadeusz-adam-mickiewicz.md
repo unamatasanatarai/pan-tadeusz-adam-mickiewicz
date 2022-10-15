@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;Ksiądz poglądał za okno, przerwawszy rozmowę;\
 Ujrzał coś ciekawego, z okna wytknął głowę,\
 Po chwili rzekł powstając: «Dziś czasu nie mamy;\
 Potem o tym obszerniej z sobą pogadamy.\
