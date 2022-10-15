@@ -1,3 +1,4 @@
+Więc ja w domu podobnych spraw nie decyduję,\
 I posiedzenie nasze na jutro solwuję,\
 I dalszych replik stronom dzisiaj nie dozwolę.\
 Woźny! odwołaj sprawę, na jutro na pole.\
