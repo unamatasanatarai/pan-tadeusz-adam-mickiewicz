@@ -1,3 +1,4 @@
+Ale Stolnik, jak zawsze spokojny, wesoły,\
 Dawał na zamku bale, zbierał przyjacioły.\
 Mnie już nie prosił: na cóż byłem mu potrzebny?\
 Mój bezład w domu, bieda, mój nałóg haniebny,\
