@@ -1,3 +1,4 @@
+Wznosząc głowę i patrząc w oczy mu nieśmiało:\
 «Nie pamiętam już dobrze, co się dawniej działo;\
 Wiem, że wszyscy mówili, iż za mąż iść trzeba\
 Za pana: ja się zawsze zgadzam z wolą Nieba\
