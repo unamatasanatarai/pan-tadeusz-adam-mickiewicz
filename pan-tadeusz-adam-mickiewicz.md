@@ -1,3 +1,4 @@
+We łzach i krwi tonęła; gdy ów mąż, bóg wojny,\
 Otoczon chmurą pułków, tysiącem dział zbrojny,\
 Wprzągłszy w swój rydwan orły złote obok srebrnych,\
 Od puszcz Libijskich łatał do Alpów podniebnych,\
