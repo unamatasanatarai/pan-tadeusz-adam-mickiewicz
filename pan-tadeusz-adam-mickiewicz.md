@@ -1,3 +1,4 @@
+Geranium, lewkonija, astry i fijołki.\
 Podróżny stanął w jednym z okien — nowe dziwo:\
 W sadzie, na brzegu niegdyś zarosłym pokrzywą,\
 Był maleńki ogródek ścieżkami porznięty,\
