@@ -1,3 +1,4 @@
+Co myślisz? gdyby wazę dobrego ponczyku?»
 
 &nbsp;&nbsp;&nbsp;&nbsp;«To prawda ojcze — rzekli dwaj oficerowie —\
 Czas by już zjeść i wypić pana Sędzi zdrowie!»
