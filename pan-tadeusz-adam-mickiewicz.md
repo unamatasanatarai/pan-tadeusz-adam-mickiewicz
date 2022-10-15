@@ -1,3 +1,4 @@
+Kędy Tadeusz mieszkał przed dziesięcią laty.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Teraz bawił tam Rejent cudnie wystrojony,\
 I usługiwał damie, swojej narzeczonéj,\
