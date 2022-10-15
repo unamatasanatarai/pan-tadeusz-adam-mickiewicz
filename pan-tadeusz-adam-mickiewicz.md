@@ -1,3 +1,4 @@
+
 &nbsp;&nbsp;&nbsp;&nbsp;Biada nam zbiegi, żeśmy w czas morowy\
 Lękliwe nieśli za granicę głowy!\
 Bo gdzie stąpili, szła przed nami trwoga,\
