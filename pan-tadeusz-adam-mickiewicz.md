@@ -1,3 +1,4 @@
+Panie Buchman, czy Bóg nam chciał cara narzucić,\
 Czy diabeł, ja z waszmością nie będę się kłócić:\
 Panie Buchman, gadaj Waść, jakby cara zrzucić».
 
