@@ -1,3 +1,4 @@
+Całej rodziny, zwan był *Kurkiem na kościele*;\
 Potem, z siedemset dziewięćdziesiąt czwartym rokiem\
 Odmieniwszy przydomek, ochrzcił się *Zabokiem*;\
 Toż *Królikiem* Dobrzyńscy mianują go sami,\
