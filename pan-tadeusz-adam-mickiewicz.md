@@ -1,3 +1,4 @@
+Jak bajeczne żurawie, na dzikim ostrowie,\
 Nad zaklętym pałacem przelatując wiosną,\
 I słysząc zaklętego chłopca skargę głośną,\
 Każdy ptak chłopcu jedno pióro rzucił:\
