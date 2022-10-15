@@ -1,3 +1,4 @@
+Że nie stało się zadość Buchmanowej radzie.\
 Bo na dziedzińcu zamku już stali parami\
 Oficery z damami, wiara z wieśniaczkami.\
 «Poloneza!» krzyknęli wszyscy w jedno słowo.\
