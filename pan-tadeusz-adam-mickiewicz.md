@@ -1,3 +1,4 @@
+Następnie, jak wysłaniec, z tajnymi rozkazy\
 Biegał po różnych stronach ducha ludzi badać,\
 Towarzystwa tajemne wiązać i zakładać;\
 Na koniec w Soplicowie, w swym ojczystym gnieździe,\
