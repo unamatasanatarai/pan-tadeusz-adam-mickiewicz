@@ -1,3 +1,4 @@
+I podał im nareszcie filiżanki spodek\
 Pełen biszkoktów, mówiąc: «Zakąście wasz miodek.\
 A ja wam też opowiem historią ciekawą\
 Sporu, który miał bitwą zakończyć się krwawą,\
