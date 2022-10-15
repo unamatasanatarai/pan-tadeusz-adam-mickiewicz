@@ -1,3 +1,4 @@
+Jedli, pili lub wsparci na okien uszakach,\
 Rozprawiali o flintach, chartach i szarakach.\
 Podkomorstwo i Sędzia przy stole; a w kątku\
 Panny szeptały z sobą. Nie było porządku,\
