@@ -1,3 +1,4 @@
+Z głową na dół skłonioną; na dole u głowy,\
 Błysnął francuskiej książki papier welinowy;\
 Nad alabastrowymi stronicami księgi,\
 Wiły się czarne pukle i różowe wstęgi.
