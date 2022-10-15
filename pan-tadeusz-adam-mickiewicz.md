@@ -1,3 +1,4 @@
+O muzyce, o tańcach, nawet o rzeźbiarstwie,\
 Dowiodła, że zna równie pędzel, nuty, druki;\
 Aż osłupiał Tadeusz na tyle nauki!\
 Lękał się, by nie został pośmiewiska celem,\
