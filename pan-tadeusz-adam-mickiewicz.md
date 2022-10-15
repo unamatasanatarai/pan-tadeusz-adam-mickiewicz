@@ -1,3 +1,4 @@
+&nbsp;&nbsp;&nbsp;&nbsp;«Widzi aśćka, od czasu jak tu u nas gości\
 Tadeuszek, niemało mam niespokojności.\
 Jestem bezdzietny, stary; ten dobry chłopczyna,\
 Wszak to moja na świecie pociecha jedyna,\
