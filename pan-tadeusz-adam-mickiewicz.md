@@ -1,3 +1,4 @@
+Przysięgam: kto Horeszków krwi kroplę wysączył...»
 
 &nbsp;&nbsp;&nbsp;&nbsp;Tymczasem ksiądz na łożu usiadł i tak kończył:\
 «Jeździłem koło zamku. Ile biesów w głowie\
