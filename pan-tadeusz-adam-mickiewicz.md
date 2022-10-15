@@ -1,3 +1,4 @@
+Krzyknął: «Za broń!» — wnet szereg karabiny chwyta;\
 Chrząsnęła broń, a była już dawno nabita;\
 Krzyknął: «Cel!» — rury rzędem zabłysnęły długim;\
 Krzyknął: «Ognia koleją!» — grzmią jeden po drugim.\
