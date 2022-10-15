@@ -1,3 +1,4 @@
+Zbrojnej, nie trzeba było policyi żadnej:\
 Dopóki wiara kwitła, szanowano prawa,\
 Była wolność z porządkiem i z dostatkiem sława!\
 W innych krajach, jak słyszę, trzyma urząd drabów,\
