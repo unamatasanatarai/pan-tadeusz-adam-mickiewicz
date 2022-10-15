@@ -1,3 +1,4 @@
+I czarną mu polewkę do stołu podano.\
 Podobno Stolnikównie wpadł Soplica w oko,\
 Ale przed rodzicami taiła głęboko.
 
