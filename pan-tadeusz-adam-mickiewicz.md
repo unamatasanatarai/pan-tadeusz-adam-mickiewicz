@@ -1,3 +1,4 @@
+Każdy zbrojny ogromnym drągiem jakby dzidą;\
 Za nimi ochmistrzyni dąży przez konopie\
 I kuchcik, małe, ale bardzo silne chłopię.\
 Przyszedłszy, drągi wparli w wierzch słupa nadgniły,\
