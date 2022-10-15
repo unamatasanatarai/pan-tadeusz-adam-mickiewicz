@@ -1,3 +1,4 @@
+Właśnie ułan ująwszy jej dłoń lewą ręką,\
 (Prawą miał na temlaku, widać, że był ranny)\
 Z takimi odezwał się słowami do panny:
 
