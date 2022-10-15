@@ -1,3 +1,4 @@
+I szła muzyka coraz szersza, coraz dalsza,\
 Coraz cichsza i coraz czystsza, doskonalsza,\
 Aż znikła gdzieś daleko, gdzieś na niebios progu!
 
